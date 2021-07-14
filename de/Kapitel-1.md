@@ -34,11 +34,11 @@ Alle genannten Wissenschaften sind echte Wissenschaften. Bitte bedenken Sie aber
 
 * * *
 
-_Im Mondlicht schimmert ein winziges Silberfragment, ein Bruchteil einer Linie... _
+_Im Mondlicht schimmert ein winziges Silberfragment, ein Bruchteil einer Linie..._
 
 _(schwarze Gewänder, fallend)_
 
-_.. Das Blut fließt literweise heraus, und jemand schreit ein Wort._
+_... Das Blut fließt literweise heraus, und jemand schreit ein Wort._
 
 * * *
 
@@ -52,7 +52,7 @@ Der Professor und seine Frau sprechen sich scharf an, aber sie schreien nicht. D
 
 "Du machst Witze", sagte Michael zu Petunia. Sein Ton verriet, dass er sehr befürchtete, dass sie es ernst meinte.
 
-"Meine Schwester war eine Hexe", wiederholte Petunia. Sie sah verängstigt aus, blieb aber standhaft. "Ihr Mann war ein Zauberer. "
+"Meine Schwester war eine Hexe", wiederholte Petunia. Sie sah verängstigt aus, blieb aber standhaft. "Ihr Mann war ein Zauberer."
 
 "Das ist absurd!" sagte Michael scharf. "Sie waren auf unserer Hochzeit - sie haben uns zu Weihnachten besucht -"
 
@@ -76,13 +76,13 @@ Petunia blieb stehen.
 
 "Liebling", sagte Michael sanft, "du wurdest krank, du hast etwas zugenommen, während du im Bett lagst, und deine Haut hat sich von selbst aufgeklärt. Oder die Krankheit hat Dich dazu gebracht, Deine Ernährung umzustellen -"
 
-"Sie war eine Hexe", wiederholte Petunia. "Ich habe es gesehen. "
+"Sie war eine Hexe", wiederholte Petunia. "Ich habe es gesehen."
 
 "Petunia," sagte Michael. Die Verärgerung schlich sich in seine Stimme. "Du _weißt_, dass das nicht wahr sein kann. Muss ich wirklich erklären, warum?"
 
 Petunia rang mit den Händen. Sie schien den Tränen nahe zu sein. "Schatz, ich weiß, dass ich keine Diskussionen mit dir gewinnen kann, aber bitte, du musst mir in dieser Sache vertrauen -"
 
-"_Papa! Mama!_ "
+"_Papa! Mama!_"
 
 Die beiden blieben stehen und sahen Harry an, als hätten sie vergessen, dass noch eine dritte Person im Raum war.
 
@@ -92,9 +92,9 @@ Harry nahm einen tiefen Atemzug. "Mama, _deine_ Eltern hatten keine Magie, oder?
 
 "Dann wusste niemand in Ihrer Familie von Magie, als Lily ihren Brief bekam. Wie sind _sie_ überzeugt worden?"
 
-"Ah... ", sagte Petunia. "Sie haben nicht nur einen Brief geschickt. Sie haben einen Professor aus Hogwarts geschickt. Er -" Petunias Augen flackerten zu Michael. "Er hat uns etwas Magie gezeigt. "
+"Ah...", sagte Petunia. "Sie haben nicht nur einen Brief geschickt. Sie haben einen Professor aus Hogwarts geschickt. Er -" Petunias Augen flackerten zu Michael. "Er hat uns etwas Magie gezeigt."
 
-"Dann müsst ihr euch nicht darum streiten", sagte Harry fest. In der Hoffnung, dass sie diesmal, nur dieses eine Mal, auf ihn hören würden. "Wenn es wahr ist, können wir einfach einen Hogwarts-Professor herholen und die Magie mit eigenen Augen sehen, und Dad wird zugeben, dass es wahr ist. Und wenn nicht, dann wird Mum zugeben, dass es falsch ist. Dafür ist die experimentelle Methode da, damit wir die Dinge nicht nur mit Argumenten lösen müssen. "
+"Dann müsst ihr euch nicht darum streiten", sagte Harry fest. In der Hoffnung, dass sie diesmal, nur dieses eine Mal, auf ihn hören würden. "Wenn es wahr ist, können wir einfach einen Hogwarts-Professor herholen und die Magie mit eigenen Augen sehen, und Dad wird zugeben, dass es wahr ist. Und wenn nicht, dann wird Mum zugeben, dass es falsch ist. Dafür ist die experimentelle Methode da, damit wir die Dinge nicht nur mit Argumenten lösen müssen."
 
 Der Professor drehte sich um und schaute auf ihn herab, abweisend wie immer. "Ach, komm schon, Harry. Wirklich, _Magie?_ Ich dachte, _du würdest_ es besser wissen, als das ernst zu nehmen, Sohn, auch wenn du erst zehn bist. Magie ist so ziemlich die unwissenschaftlichste Sache, die es gibt!"
 
@@ -156,7 +156,7 @@ Dann öffnete er seine Tür und ging wieder nach unten. Sein Vater saß im Wohnz
 
 "Mama", sagte Harry in die beunruhigende Stille hinein, "ich werde die Hypothese testen. Wie kann ich nach deiner Theorie eine Eule nach Hogwarts schicken?"
 
-Seine Mutter drehte sich von der Küchenspüle um und starrte ihn mit schockiertem Blick an. "Ich - ich weiß nicht, ich glaube, man muss einfach eine magische Eule besitzen. "
+Seine Mutter drehte sich von der Küchenspüle um und starrte ihn mit schockiertem Blick an. "Ich - ich weiß nicht, ich glaube, man muss einfach eine magische Eule besitzen."
 
 Das hätte höchst verdächtig klingen müssen, _oh, dann gibt es also keine Möglichkeit, deine Theorie zu testen,_ aber die eigentümliche Gewissheit in Harry schien bereit zu sein, ihren Hals noch weiter herauszustrecken.
 
@@ -206,4 +206,4 @@ Es herrschte eine lange Zeit Stille im Garten.
 
 Dann sagte eine Jungenstimme, ruhig und leise, "Was."
 
-[Kapitel 2](Kapitel-2.md)
+→ [Kapitel 2](Kapitel-2.md)
