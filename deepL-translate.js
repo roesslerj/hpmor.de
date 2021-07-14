@@ -66,9 +66,11 @@ async function run() {
     const en_filename = path.join(__dirname, 'en', file);
     const text = fs.readFileSync(en_filename, 'utf8');
     const translated = await (await translateText(text))
-      .replace('\. \. \.', '...')
-      .replace('"\.', '"')
-      .replace('_\.', '_');
+      .replace('. . .', '...')
+      .replace('".', '"')
+      .replace('_.', '_')
+      .replace('Mum', 'Mama')
+      .replace('Dad', 'Papa');
     fs.writeFileSync(filename, translated, err => {
         if (err) {
           console.error(err);

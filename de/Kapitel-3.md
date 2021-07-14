@@ -1,62 +1,62 @@
-Kapitel 3: Vergleich der Realität mit ihren Alternativen.
+# Kapitel 3: Vergleich der Realität mit ihren Alternativen.
 
-Wenn J. K. Wenn Rowling Sie nach dieser Geschichte fragt, wissen Sie nichts.
+Wenn J. K. Rowling Sie nach dieser Geschichte fragt, wissen Sie nichts.
 
-* * *.
+* * *
 
-"Aber dann ist die Frage - wer?"_
+> _"Aber dann ist die Frage - wer?"_
 
-* * *.
+* * *
 
 "Großer Gott", sagte der Barmann und schaute Harry an, "ist das - kann das sein -?"
 
-Harry lehnte sich, so gut es ging, an die Theke des Leaky Cauldron, obwohl sie ihm irgendwo bis zu den Spitzen seiner Augenbrauen reichte. Eine Frage wie _diese_ verdiente sein Bestes.
+Harry lehnte sich, so gut es ging, an die Theke des Tropfenden Kessels, obwohl sie ihm irgendwo bis zu den Spitzen seiner Augenbrauen reichte. Eine Frage wie _diese_ verdiente seine beste Darbietung.
 
-"Bin ich - könnte ich sein - vielleicht - man weiß ja nie - wenn ich _nicht_ bin - aber dann ist die Frage - _wer?_ ".
+"Bin ich - könnte ich sein - vielleicht - man weiß ja nie - wenn ich _nicht_ bin - aber dann ist die Frage - _wer?_"
 
-"Du meine Güte", flüsterte der alte Barmann. "Harry Potter"... Was für eine Ehre. ".
+"Du meine Güte", flüsterte der alte Barmann. "Harry Potter ... Was für eine Ehre."
 
-Harry blinzelte, dann sammelte er sich. "Nun, ja, Sie sind ziemlich scharfsinnig; die meisten Menschen erkennen das nicht so schnell -".
+Harry blinzelte, dann sammelte er sich. "Nun, ja, Sie sind ziemlich scharfsinnig; die meisten Menschen erkennen das nicht so schnell -"
 
-"Das ist genug", sagte Professor McGonagall. Ihre Hand legte sich fester auf Harrys Schulter. "Belästigen Sie den Jungen nicht, Tom, das ist alles neu für ihn. ".
+"Das ist genug", sagte Professor McGonagall. Ihre Hand legte sich fester auf Harrys Schulter. "Belästigen Sie den Jungen nicht, Tom, das ist alles neu für ihn."
 
 "Aber er ist es?", zitterte eine alte Frau. "Es ist Harry Potter?" Mit einem schabenden Geräusch erhob sie sich von ihrem Stuhl.
 
 "Doris -" sagte McGonagall warnend. Der Blick, den sie durch den Raum schoss, hätte ausreichen müssen, um jeden einzuschüchtern.
 
-"Ich will ihm nur die Hand schütteln", flüsterte die Frau. Sie beugte sich herunter und streckte eine faltige Hand aus, die Harry, der sich verwirrt und unbehaglicher fühlte als jemals zuvor in seinem Leben, vorsichtig schüttelte. Tränen fielen aus den Augen der Frau auf ihre verschränkten Hände. "Mein Großonkel war ein Auror", flüsterte sie ihm zu. "Starb in neunundsiebzig. Danke, Harry Potter. Dem Himmel sei Dank für Sie. ".
+"Ich will ihm nur die Hand schütteln", flüsterte die Frau. Sie beugte sich herunter und streckte eine faltige Hand aus, die Harry, der sich verwirrt und unbehaglicher fühlte als jemals zuvor in seinem Leben, vorsichtig schüttelte. Tränen fielen aus den Augen der Frau auf ihre verschränkten Hände. "Mein Großonkel war ein Auror", flüsterte sie ihm zu. "Starb neunundsiebzig. Danke, Harry Potter. Dem Himmel sei Dank für Sie."
 
 "Gern geschehen", sagte Harry automatisch, dann drehte er den Kopf und warf Professor McGonagall einen ängstlichen, flehenden Blick zu.
 
-Professor McGonagall knallte mit dem Fuß auf den Boden, als der allgemeine Ansturm gerade beginnen wollte. Es machte ein Geräusch, das Harry einen neuen Bezugspunkt für die Phrase "Crack of Doom" gab, und alle erstarrten auf der Stelle.
+Professor McGonagall knallte mit dem Fuß auf den Boden, als der allgemeine Ansturm gerade beginnen wollte. Es machte ein Geräusch, das Harry einen neuen Bezugspunkt für die Phrase "Weltuntergangsdonner" gab, und alle erstarrten auf der Stelle.
 
 "Wir haben es eilig", sagte Professor McGonagall mit einer Stimme, die ganz, ganz normal klang.
 
 Sie verließen die Bar ohne Probleme.
 
-"Professor?" sagte Harry, als sie im Innenhof waren. Er wollte eigentlich fragen, was los war, aber seltsamerweise stellte er sich stattdessen eine ganz andere Frage. "Wer war der bleiche Mann da an der Ecke? Der Mann mit dem zuckenden Auge?".
+"Professor?" sagte Harry, als sie im Innenhof waren. Er wollte eigentlich fragen, was los war, aber seltsamerweise stellte er sich stattdessen eine ganz andere Frage. "Wer war der bleiche Mann da an der Ecke? Der Mann mit dem zuckenden Auge?"
 
-"Hm?", sagte Professor McGonagall und klang ein wenig überrascht; vielleicht hatte sie diese Frage auch nicht erwartet. "Das war Professor Quirinus Quirrell. Er wird dieses Jahr in Hogwarts Verteidigung gegen die dunklen Künste unterrichten. ".
+"Hm?", sagte Professor McGonagall und klang ein wenig überrascht; vielleicht hatte sie diese Frage auch nicht erwartet. "Das war Professor Quirinus Quirrell. Er wird dieses Jahr in Hogwarts Verteidigung gegen die dunklen Künste unterrichten."
 
-"Ich hatte das seltsame Gefühl, dass ich ihn kannte. . . " Harry rieb sich die Stirn. "Und dass ich ihm nicht die Hand schütteln sollte. " Wie jemanden zu treffen, der einmal ein Freund war, bevor etwas drastisch schief ging. . . das war es eigentlich gar nicht, aber Harry fand keine Worte. "Und was _war. . . _ all das?".
+"Ich hatte das seltsame Gefühl, dass ich ihn kannte... " Harry rieb sich die Stirn. "Und dass ich ihm nicht die Hand schütteln sollte. "Wie jemanden zu treffen, der einmal ein Freund war, bevor etwas drastisch schief ging... das war es eigentlich gar nicht, aber Harry fand keine Worte. "Und was war... _all das_?"
 
-Professor McGonagall warf ihm einen seltsamen Blick zu. "Mr. Potter. . . kennen Sie. . . wie _viel_ hat man Ihnen gesagt. . . darüber, wie Ihre Eltern gestorben sind?".
+Professor McGonagall warf ihm einen seltsamen Blick zu. "Mr. Potter... kennen Sie... _wie viel_ hat man Ihnen gesagt... darüber, wie Ihre Eltern gestorben sind?"
 
-Harry erwiderte einen festen Blick. "Meine Eltern leben und sind gesund, und sie haben sich immer geweigert, darüber zu sprechen, wie meine _genetischen_ Eltern gestorben sind. Daraus schließe ich, dass es nicht gut war. ".
+Harry erwiderte einen festen Blick. "Meine Eltern leben und sind gesund, und sie haben sich immer geweigert, darüber zu sprechen, wie meine _genetischen_ Eltern gestorben sind. Daraus schließe ich, dass es nicht gut war."
 
-"Eine bewundernswerte Loyalität", sagte Professor McGonagall. Ihre Stimme wurde leise. "Auch wenn es ein wenig weh tut, dich das so sagen zu hören. Lily und James waren Freunde von mir. ".
+"Eine bewundernswerte Loyalität", sagte Professor McGonagall. Ihre Stimme wurde leise. "Auch wenn es ein wenig weh tut, Sie das so sagen zu hören. Lily und James waren Freunde von mir."
 
-Harry schaute weg, plötzlich beschämt. "Es tut mir leid", sagte er mit leiser Stimme. "Aber ich _habe_ eine Mum und einen Dad. Und ich weiß, dass ich mich nur unglücklich machen würde, wenn ich diese Realität damit vergleichen würde. . . etwas Perfektes, das ich in meiner Vorstellung aufgebaut habe. ".
+Harry schaute weg, plötzlich beschämt. "Es tut mir leid", sagte er mit leiser Stimme. "Aber ich _habe_ eine Mama und einen Papa. Und ich weiß, dass ich mich nur unglücklich machen würde, wenn ich diese Realität damit vergleichen würde... etwas Perfektes, das ich in meiner Vorstellung aufgebaut habe."
 
-"Das ist erstaunlich weise von Ihnen", sagte Professor McGonagall leise. "Aber deine _genetischen_ Eltern sind sehr wohl gestorben und haben dich beschützt. ".
+"Das ist erstaunlich weise von Ihnen", sagte Professor McGonagall leise. "Aber deine _genetischen_ Eltern starben auf eine denkwürdige Art: Sie starben um Sie zu schützen."
 
-Mich zu beschützen?_.
+_Mich zu beschützen?_
 
-Etwas Seltsames klammerte sich an Harrys Herz. "Was. . . _did_ happen?".
+Etwas Seltsames klammerte sich an Harrys Herz. "Was... _ist_ passiert?"
 
-Professor McGonagall seufzte. Ihr Zauberstab berührte Harrys Stirn, und seine Sicht verschwamm für einen Moment. "Eine Art Verkleidung", sagte sie, "damit das nicht noch einmal passiert, nicht bevor du bereit bist. " Dann holte sie ihren Zauberstab wieder hervor und klopfte dreimal an eine Backsteinmauer. . .
+Professor McGonagall seufzte. Ihr Zauberstab berührte Harrys Stirn, und seine Sicht verschwamm für einen Moment. "Eine Art Verkleidung", sagte sie, "damit das nicht noch einmal passiert, nicht bevor Sie bereit sind. " Dann holte sie ihren Zauberstab wieder hervor und klopfte dreimal an eine Backsteinmauer...
 
-. . . die sich zu einem Loch aushöhlte und sich zu einem riesigen Torbogen ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte.
+... die sich zu einem Loch aushöhlte und sich zu einem riesigen Torbogen ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte.
 
 Harry hat nicht geblinzelt. Es war ja nicht so, dass sich jemand in eine Katze verwandelt hätte.
 
@@ -70,23 +70,23 @@ Dann entdeckte Harry etwas, das ihn, ganz ohne nachzudenken, von der stellvertre
 
 "Mr. Potter?", sagte sie.
 
-Harry blinzelte, dann wurde ihm klar, was er gerade getan hatte. "Es tut mir leid! Ich habe für einen Moment vergessen, dass ich mit Ihnen zusammen bin und nicht mit meiner Familie. " Harry gestikulierte zum Schaufenster, in dem in feurigen Buchstaben, die durchdringend hell und doch fern leuchteten, _Bigbam's Brilliant Books_ zu lesen war. "Wenn man an einer Buchhandlung vorbeikommt, die man noch nie besucht hat, muss man hineingehen und sich umsehen. Das ist die Familienregel. ".
+Harry blinzelte, dann wurde ihm klar, was er gerade getan hatte. "Es tut mir leid! Ich habe für einen Moment vergessen, dass ich mit Ihnen zusammen bin und nicht mit meiner Familie. " Harry gestikulierte zum Schaufenster, in dem in feurigen Buchstaben, die durchdringend hell und doch fern leuchteten, _Bigbam's Brilliant Books_ zu lesen war. "Wenn man an einer Buchhandlung vorbeikommt, die man noch nie besucht hat, muss man hineingehen und sich umsehen. Das ist die Familienregel. "
 
-"Das ist das Ravenclawigste, was ich je gehört habe. ".
+"Das ist das Ravenclawigste, was ich je gehört habe. "
 
-"Was?".
+"Was?"
 
-"Nichts. Herr Potter, unser erster Schritt ist der Besuch von Gringotts, der Bank der Zaubererwelt. Dein _genetischer_ Familientresor ist dort, mit dem Erbe, das dir deine _genetischen_ Eltern hinterlassen haben, und du wirst Geld für Schulsachen brauchen. " Sie seufzte. "Und ein gewisses Taschengeld für Bücher könnte man wohl auch entschuldigen. Allerdings sollten Sie vielleicht eine Zeit lang damit warten. Hogwarts hat eine ziemlich große Bibliothek zu magischen Themen. Und der Turm, in dem Sie, wie ich stark vermute, wohnen werden, hat eine eigene, umfangreichere Bibliothek. Jedes Buch, das Sie jetzt kaufen würden, wäre wahrscheinlich ein Duplikat. ".
+"Nichts. Herr Potter, unser erster Schritt ist der Besuch von Gringotts, der Bank der Zaubererwelt. Dein _genetischer_ Familientresor ist dort, mit dem Erbe, das dir deine _genetischen_ Eltern hinterlassen haben, und du wirst Geld für Schulsachen brauchen. " Sie seufzte. "Und ein gewisses Taschengeld für Bücher könnte man wohl auch entschuldigen. Allerdings sollten Sie vielleicht eine Zeit lang damit warten. Hogwarts hat eine ziemlich große Bibliothek zu magischen Themen. Und der Turm, in dem Sie, wie ich stark vermute, wohnen werden, hat eine eigene, umfangreichere Bibliothek. Jedes Buch, das Sie jetzt kaufen würden, wäre wahrscheinlich ein Duplikat. "
 
 Harry nickte, und sie gingen weiter.
 
-"Verstehen Sie mich nicht falsch, es ist eine _große_ Ablenkung", sagte Harry, während er den Kopf weiter schwenkte, "wahrscheinlich die beste Ablenkung, die je jemand bei mir versucht hat, aber glauben Sie nicht, dass ich unsere anstehende Diskussion vergessen habe. ".
+"Verstehen Sie mich nicht falsch, es ist eine _große_ Ablenkung", sagte Harry, während er den Kopf weiter schwenkte, "wahrscheinlich die beste Ablenkung, die je jemand bei mir versucht hat, aber glauben Sie nicht, dass ich unsere anstehende Diskussion vergessen habe. "
 
-Professor McGonagall seufzte. "Deine Eltern - oder jedenfalls deine Mutter - waren vielleicht sehr klug, es dir nicht zu sagen. ".
+Professor McGonagall seufzte. "Deine Eltern - oder jedenfalls deine Mutter - waren vielleicht sehr klug, es dir nicht zu sagen. "
 
-"Sie wünschen also, dass ich in seliger Unwissenheit fortfahren kann? Es gibt einen gewissen Fehler in diesem Plan, Professor McGonagall. ".
+"Sie wünschen also, dass ich in seliger Unwissenheit fortfahren kann? Es gibt einen gewissen Fehler in diesem Plan, Professor McGonagall. "
 
-"Ich nehme an, es wäre ziemlich sinnlos", sagte die Hexe knapp, "wenn jeder auf der Straße die Geschichte erzählen könnte. Nun gut. ".
+"Ich nehme an, es wäre ziemlich sinnlos", sagte die Hexe knapp, "wenn jeder auf der Straße die Geschichte erzählen könnte. Nun gut. "
 
 Und sie erzählte ihm von dem, der nicht genannt werden darf, dem Dunklen Lord, Voldemort.
 
@@ -110,13 +110,13 @@ Als Harry damit fertig war, in die Hexenroben zu schluchzen, schaute er auf und 
 
 "Also, was ist passiert?" sagte Harry, seine Stimme zitterte.
 
-"Der Dunkle Lord kam nach Godrics Hollow", sagte Professor McGonagall im Flüsterton. "Du hättest versteckt werden sollen, aber du wurdest verraten. Der Dunkle Lord tötete James und er tötete Lily, und am Ende kam er zu dir, zu deinem Kinderbett. Er hat Sie mit dem Tötungsfluch belegt, und das war's dann. Der Tötungsfluch wird aus reinem Hass gebildet und schlägt direkt auf die Seele ein und trennt sie vom Körper. Er kann nicht geblockt werden, und wer von ihm getroffen wird, stirbt. Aber Sie haben überlebt. Sie sind der einzige Mensch, der jemals überlebt hat. Der Tötungsfluch prallte ab und traf den Dunklen Lord, wobei nur der verbrannte Rumpf seines Körpers und eine Narbe auf Ihrer Stirn zurückblieb. Das war das Ende des Terrors, und wir waren frei. Das, Harry Potter, ist der Grund, warum die Leute die Narbe auf deiner Stirn sehen wollen, und warum sie dir die Hand schütteln wollen. ".
+"Der Dunkle Lord kam nach Godrics Hollow", sagte Professor McGonagall im Flüsterton. "Du hättest versteckt werden sollen, aber du wurdest verraten. Der Dunkle Lord tötete James und er tötete Lily, und am Ende kam er zu dir, zu deinem Kinderbett. Er hat Sie mit dem Tötungsfluch belegt, und das war's dann. Der Tötungsfluch wird aus reinem Hass gebildet und schlägt direkt auf die Seele ein und trennt sie vom Körper. Er kann nicht geblockt werden, und wer von ihm getroffen wird, stirbt. Aber Sie haben überlebt. Sie sind der einzige Mensch, der jemals überlebt hat. Der Tötungsfluch prallte ab und traf den Dunklen Lord, wobei nur der verbrannte Rumpf seines Körpers und eine Narbe auf Ihrer Stirn zurückblieb. Das war das Ende des Terrors, und wir waren frei. Das, Harry Potter, ist der Grund, warum die Leute die Narbe auf deiner Stirn sehen wollen, und warum sie dir die Hand schütteln wollen. "
 
 Der Sturm des Weinens, der Harry durchflutet hatte, hatte all seine Tränen aufgebraucht; er konnte nicht mehr weinen, er war fertig.
 
 (Und irgendwo in seinem Hinterkopf war ein kleiner, kleiner Hauch von Verwirrung, ein Gefühl, dass an dieser Geschichte etwas nicht stimmte; und es hätte zu Harrys Kunst gehören sollen, diesen winzigen Hauch zu bemerken, aber er war abgelenkt. Denn es ist eine traurige Regel, dass man immer dann, wenn man seine Kunst als Rationalist am meisten braucht, sie am ehesten vergisst. ).
 
-Harry löste sich von Professor McGonagalls Seite. "Ich werde - darüber nachdenken müssen", sagte er und versuchte, seine Stimme unter Kontrolle zu halten. Er starrte auf seine Schuhe. "Ähm. Sie können sie ruhig meine Eltern nennen, wenn Sie wollen, Sie müssen nicht "genetische Eltern" oder so sagen. Ich denke, es gibt keinen Grund, nicht zwei Mütter und zwei Väter zu haben. ".
+Harry löste sich von Professor McGonagalls Seite. "Ich werde - darüber nachdenken müssen", sagte er und versuchte, seine Stimme unter Kontrolle zu halten. Er starrte auf seine Schuhe. "Ähm. Sie können sie ruhig meine Eltern nennen, wenn Sie wollen, Sie müssen nicht "genetische Eltern" oder so sagen. Ich denke, es gibt keinen Grund, nicht zwei Mütter und zwei Väter zu haben. "
 
 Es gab keinen Ton von Professor McGonagall.
 
