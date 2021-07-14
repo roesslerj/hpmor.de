@@ -158,7 +158,7 @@ Dracos Assistentin stieß einen Laut aus, als ob sie erstickte, fuhr aber mit ih
 
 "Kann ich ein Autogramm von Dir haben? Nein, warte, ich will erst ein Foto mit Dir!"
 
-„Halt's Maul Halt's Maul _Halt's Maul_“
+„Halt's Maul! Halt's Maul! _Halt's Maul!_“
 
 "Ich bin so _erfreut_, Dich kennenzulernen!"
 
