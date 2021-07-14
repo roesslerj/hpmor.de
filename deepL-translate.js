@@ -17,6 +17,8 @@ function translateChunk(text2Translate) {
   }).then(response => {
     console.debug("Translated to: " + response.data.translations[0].text);
     return response.data.translations[0].text;
+  }).catch(error => {
+    console.error(error)
   });
 }
 
