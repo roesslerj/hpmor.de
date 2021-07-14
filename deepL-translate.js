@@ -56,7 +56,7 @@ const re = /Chapter (\d*) .*/i;
 
 async function run() {
   const files = fs.readdirSync('en').filter(file => file.startsWith("Chapter"));
-  for (var idx = 0; idx <= 122; idx++) {
+  for (var idx = 0; idx <= 121; idx++) {
     const file = files[idx];
     const chapter = file.match(re)[1];
     if (process.argv.length > 2 && process.argv[2] != chapter) {
