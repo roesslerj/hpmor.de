@@ -54,7 +54,7 @@ _Mich zu beschützen?_
 
 Etwas Seltsames klammerte sich an Harrys Herz. "Was... _ist_ passiert?"
 
-Professor McGonagall seufzte. Ihr Zauberstab berührte Harrys Stirn, und seine Sicht verschwamm für einen Moment. "Eine Art Verkleidung", sagte sie, "damit das nicht noch einmal passiert, nicht bevor Sie bereit sind. " Dann holte sie ihren Zauberstab wieder hervor und klopfte dreimal an eine Backsteinmauer...
+Professor McGonagall seufzte. Ihr Zauberstab berührte Harrys Stirn, und seine Sicht verschwamm für einen Moment. "Eine Art Verkleidung", sagte sie, "damit das nicht noch einmal passiert, nicht bevor Sie bereit sind." Dann holte sie ihren Zauberstab wieder hervor und klopfte dreimal an eine Backsteinmauer...
 
 ... die sich zu einem Loch aushöhlte und sich zu einem riesigen Torbogen ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte und ausdehnte.
 
