@@ -70,7 +70,10 @@ async function run() {
       .replace('".', '"')
       .replace('_.', '_')
       .replace('Mum', 'Mama')
-      .replace('Dad', 'Papa');
+      .replace('Dad', 'Papa')
+      .replace('Diagon Alley', 'Winkelgasse')
+      .replace('Moke', 'Eselsfell')
+      .replace('Pouch', 'Beutel');
     fs.writeFileSync(filename, translated, err => {
         if (err) {
           console.error(err);

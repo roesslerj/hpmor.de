@@ -104,20 +104,22 @@ Bis die Namen von James und Lily Potter an die Spitze dieser Liste stiegen.
 
 Und diese beiden hätten mit ihren Zauberstäben in der Hand sterben und ihre Entscheidung nicht bereuen können, denn sie _waren_ Helden; aber dafür hatten sie ein kleines Kind, ihren Sohn, Harry Potter.
 
-Tränen traten in Harrys Augen. Er wischte sie in Wut oder vielleicht Verzweiflung weg, _ich kannte diese Leute nicht, nicht wirklich, sie sind jetzt nicht meine Eltern_, _es wäre sinnlos, so traurig um sie zu sein -_.
+Tränen traten in Harrys Augen. Er wischte sie in Wut oder vielleicht Verzweiflung weg, _ich kannte diese Leute nicht, nicht wirklich, sie sind jetzt nicht meine Eltern, es wäre sinnlos, so traurig um sie zu sein -_
 
 Als Harry damit fertig war, in die Hexenroben zu schluchzen, schaute er auf und fühlte sich ein wenig besser, als er auch in Professor McGonagalls Augen Tränen sah.
 
 "Also, was ist passiert?" sagte Harry, seine Stimme zitterte.
 
-"Der Dunkle Lord kam nach Godrics Hollow", sagte Professor McGonagall im Flüsterton. "Du hättest versteckt werden sollen, aber du wurdest verraten. Der Dunkle Lord tötete James und er tötete Lily, und am Ende kam er zu dir, zu deinem Kinderbett. Er hat Sie mit dem Tötungsfluch belegt, und das war's dann. Der Tötungsfluch wird aus reinem Hass gebildet und schlägt direkt auf die Seele ein und trennt sie vom Körper. Er kann nicht geblockt werden, und wer von ihm getroffen wird, stirbt. Aber Sie haben überlebt. Sie sind der einzige Mensch, der jemals überlebt hat. Der Tötungsfluch prallte ab und traf den Dunklen Lord, wobei nur der verbrannte Rumpf seines Körpers und eine Narbe auf Ihrer Stirn zurückblieb. Das war das Ende des Terrors, und wir waren frei. Das, Harry Potter, ist der Grund, warum die Leute die Narbe auf deiner Stirn sehen wollen, und warum sie dir die Hand schütteln wollen. "
+"Der Dunkle Lord kam nach Godrics Hollow", sagte Professor McGonagall im Flüsterton. "Du hättest versteckt werden sollen, aber du wurdest verraten. Der Dunkle Lord tötete James und er tötete Lily, und am Ende kam er zu dir, zu deinem Kinderbett. Er hat Sie mit dem Tötungsfluch belegt, und das war's dann. Der Tötungsfluch wird aus reinem Hass gebildet und schlägt direkt auf die Seele ein und trennt sie vom Körper. Er kann nicht geblockt werden, und wer von ihm getroffen wird, stirbt. Aber Sie haben überlebt. Sie sind der einzige Mensch, der jemals überlebt hat. Der Tötungsfluch prallte ab und traf den Dunklen Lord, wobei nur der verbrannte Rumpf seines Körpers und eine Narbe auf Ihrer Stirn zurückblieb. Das war das Ende des Terrors, und wir waren frei. Das, Harry Potter, ist der Grund, warum die Leute die Narbe auf deiner Stirn sehen wollen, und warum sie dir die Hand schütteln wollen."
 
 Der Sturm des Weinens, der Harry durchflutet hatte, hatte all seine Tränen aufgebraucht; er konnte nicht mehr weinen, er war fertig.
 
-(Und irgendwo in seinem Hinterkopf war ein kleiner, kleiner Hauch von Verwirrung, ein Gefühl, dass an dieser Geschichte etwas nicht stimmte; und es hätte zu Harrys Kunst gehören sollen, diesen winzigen Hauch zu bemerken, aber er war abgelenkt. Denn es ist eine traurige Regel, dass man immer dann, wenn man seine Kunst als Rationalist am meisten braucht, sie am ehesten vergisst. ).
+(Und irgendwo in seinem Hinterkopf war ein kleiner, kleiner Hauch von Verwirrung, ein Gefühl, dass an dieser Geschichte etwas nicht stimmte; und es hätte zu Harrys Kunst gehören sollen, diesen winzigen Hauch zu bemerken, aber er war abgelenkt. Denn es ist eine traurige Regel, dass man immer dann, wenn man seine Kunst als Rationalist am meisten braucht, sie am ehesten vergisst.)
 
-Harry löste sich von Professor McGonagalls Seite. "Ich werde - darüber nachdenken müssen", sagte er und versuchte, seine Stimme unter Kontrolle zu halten. Er starrte auf seine Schuhe. "Ähm. Sie können sie ruhig meine Eltern nennen, wenn Sie wollen, Sie müssen nicht "genetische Eltern" oder so sagen. Ich denke, es gibt keinen Grund, nicht zwei Mütter und zwei Väter zu haben. "
+Harry löste sich von Professor McGonagalls Seite. "Ich werde - darüber nachdenken müssen", sagte er und versuchte, seine Stimme unter Kontrolle zu halten. Er starrte auf seine Schuhe. "Ähm. Sie können sie ruhig meine Eltern nennen, wenn Sie wollen, Sie müssen nicht "genetische Eltern" oder so sagen. Ich denke, es gibt keinen Grund, nicht zwei Mütter und zwei Väter zu haben."
 
 Es gab keinen Ton von Professor McGonagall.
 
-Und sie gingen schweigend zusammen, bis sie vor ein großes weißes Gebäude mit riesigen Bronzetüren kamen, über denen die geschnitzten Worte _Gringotts Bank_ standen. _.
+Und sie gingen schweigend zusammen, bis sie vor ein großes weißes Gebäude mit riesigen Bronzetüren kamen, über denen die geschnitzten Worte _Gringotts Bank_ standen.
+
+→ [Kapitel 4](Kapitel-4.md)
