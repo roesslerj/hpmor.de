@@ -55,10 +55,13 @@ function translateText(text) {
 const re = /Chapter (\d*) .*/i;
 
 async function run() {
-  var files = fs.readdirSync('en').filter(file => file.startsWith("Chapter"));
-  for (var idx = 0; idx <= 1; idx++) {
+  const files = fs.readdirSync('en').filter(file => file.startsWith("Chapter"));
+  for (var idx = 0; idx <= 122; idx++) {
     const file = files[idx];
     const chapter = file.match(re)[1];
+    if (process.argv.length > 2 && process.argv[2] != chapter) {
+      continue;
+    }
     const filename = `de/Kapitel-${chapter}.md`;
     const en_filename = path.join(__dirname, 'en', file);
     const text = fs.readFileSync(en_filename, 'utf8');
@@ -66,7 +69,7 @@ async function run() {
       .replace('\. \. \.', '...')
       .replace('"\.', '"')
       .replace('_\.', '_');
-    fs.writeFile(filename, translated, err => {
+    fs.writeFileSync(filename, translated, err => {
         if (err) {
           console.error(err);
         }
