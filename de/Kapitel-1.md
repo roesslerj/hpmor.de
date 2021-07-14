@@ -34,11 +34,11 @@ Alle genannten Wissenschaften sind echte Wissenschaften. Bitte bedenken Sie aber
 
 * * *
 
-_Im Mondlicht schimmert ein winziges Silberfragment, ein Bruchteil einer Linie..._
-
-_(schwarze Gewänder, fallend)_
-
-_... Das Blut fließt literweise heraus, und jemand schreit ein Wort._
+> _Im Mondlicht schimmert ein winziges Silberfragment, ein Bruchteil einer Linie..._
+>
+> _(schwarze Gewänder, fallend)_
+>
+>_... Das Blut fließt literweise heraus, und jemand schreit ein Wort._
 
 * * *
 

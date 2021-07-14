@@ -1,10 +1,12 @@
-Kapitel 2: Alles, was ich glaube, ist falsch.
+# Kapitel 2: Alles, was ich glaube, ist falsch.
 
+```
 #include "stddisclaimer.h"
+```
 
 * * *
 
-_"Natürlich war es meine Schuld. Es gibt hier niemanden, der für irgendetwas verantwortlich sein könnte."_
+> _"Natürlich war es meine Schuld. Es gibt hier niemanden, der für irgendetwas verantwortlich sein könnte."_
 
 * * *
 
