@@ -62,7 +62,10 @@ async function run() {
     const filename = `de/Kapitel-${chapter}.md`;
     const en_filename = path.join(__dirname, 'en', file);
     const text = fs.readFileSync(en_filename, 'utf8');
-    const translated = await translateText(text);
+    const translated = await (await translateText(text))
+      .replace('\. \. \.', '...')
+      .replace('"\.', '"')
+      .replace('_\.', '_');
     fs.writeFile(filename, translated, err => {
         if (err) {
           console.error(err);
