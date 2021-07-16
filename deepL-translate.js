@@ -72,22 +72,22 @@ async function run() {
     const en_filename = path.join(__dirname, 'en', file);
     const text = fs.readFileSync(en_filename, 'utf8');
     const translated = await (await translateText(text))
-      .replace('. . .', '...')
-      .replace('* * *.', '* * *')
-      .replace('".', '"')
-      .replace('_.', '_')
-      .replace(' -".', '."')
-      .replace('Mum', 'Mama')
-      .replace('Dad', 'Papa')
-      .replace('Diagon Alley', 'Winkelgasse')
-      .replace('Leaky Cauldron', 'Tropfender Kessel')
-      .replace('Moke', 'Eselsfell')
-      .replace('Präfektin', 'Vertrauensschülerin')
-      .replace('Präfekt', 'Vertrauensschüler')
-      .replace('Pouch', 'Beutel')
-      .replace('Comed-Tea', 'Seltsaft')
-      .replace('{/\an8}', '_');
-    fs.writeFileSync(filename, '#' + translated, err => {
+      .replaceAll('. . .', '...')
+      .replaceAll('* * *.', '* * *')
+      .replaceAll('".', '"')
+      .replaceAll('_.', '_')
+      .replaceAll(' -".', '."')
+      .replaceAll('Mum', 'Mama')
+      .replaceAll('Dad', 'Papa')
+      .replaceAll('Diagon Alley', 'Winkelgasse')
+      .replaceAll('Leaky Cauldron', 'Tropfender Kessel')
+      .replaceAll('Moke', 'Eselsfell')
+      .replaceAll('Präfektin', 'Vertrauensschülerin')
+      .replaceAll('Präfekt', 'Vertrauensschüler')
+      .replaceAll('Pouch', 'Beutel')
+      .replaceAll('Comed-Tea', 'Seltsaft')
+      .replaceAll('{/\an8}', '_');
+    fs.writeFileSync(filename, '# ' + translated, err => {
         if (err) {
           console.error(err);
         }
