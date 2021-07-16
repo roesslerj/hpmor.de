@@ -13,6 +13,7 @@ function translateChunk(text2Translate) {
     free_api: true,
     text: text2Translate,
     target_lang: 'DE',
+    formality: 'less',
     auth_key: auth_key,
   }).then(response => {
     console.debug("Translated to: " + response.data.translations[0].text);
