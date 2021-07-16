@@ -12,7 +12,6 @@ function translateChunk(text2Translate) {
     console.debug("Text does not contain chars to translate: " + text2Translate);
     return text2Translate;
   }
-  console.debug("Translating '" + text2Translate + "'.");
   return translate({
     free_api: true,
     text: text2Translate,
@@ -20,10 +19,11 @@ function translateChunk(text2Translate) {
     formality: 'less',
     auth_key: auth_key,
   }).then(response => {
-    console.debug("Translated to: " + response.data.translations[0].text);
+    console.debug("Translated this: " + text2Translate);
+    console.debug("Translated to:   " + response.data.translations[0].text);
     return response.data.translations[0].text;
   }).catch(error => {
-    console.error(error)
+    console.error("Error " + error.code + " translating: " + text2Translate);
     return "UNTRANSLATED: " + text2Translate;
   });
 }
@@ -73,14 +73,21 @@ async function run() {
     const text = fs.readFileSync(en_filename, 'utf8');
     const translated = await (await translateText(text))
       .replace('. . .', '...')
+      .replace('* * *.', '* * *')
       .replace('".', '"')
       .replace('_.', '_')
+      .replace(' -".', '."')
       .replace('Mum', 'Mama')
       .replace('Dad', 'Papa')
       .replace('Diagon Alley', 'Winkelgasse')
+      .replace('Leaky Cauldron', 'Tropfender Kessel')
       .replace('Moke', 'Eselsfell')
-      .replace('Pouch', 'Beutel');
-    fs.writeFileSync(filename, translated, err => {
+      .replace('Präfektin', 'Vertrauensschülerin')
+      .replace('Präfekt', 'Vertrauensschüler')
+      .replace('Pouch', 'Beutel')
+      .replace('Comed-Tea', 'Seltsaft')
+      .replace('{/\an8}', '_');
+    fs.writeFileSync(filename, '#' + translated, err => {
         if (err) {
           console.error(err);
         }
