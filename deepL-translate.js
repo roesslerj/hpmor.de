@@ -20,6 +20,7 @@ function translateChunk(text2Translate) {
     return response.data.translations[0].text;
   }).catch(error => {
     console.error(error)
+    return "UNTRANSLATED: " + text2Translate;
   });
 }
 
