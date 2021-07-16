@@ -3,7 +3,8 @@ const fs = require('fs');
 const path = require('path');
 const request = require('request');
 const querystring = require('querystring');
-const translate = require("deepl");
+const translate = require('deepl');
+const error_prefix = 'UNTRANSLATED: ';
 
 const auth_key = fs.readFileSync('deepl.auth-key', 'utf8').trim();
 
@@ -24,7 +25,7 @@ function translateChunk(text2Translate) {
     return response.data.translations[0].text;
   }).catch(error => {
     console.error("Error " + error.code + " translating: " + text2Translate);
-    return "UNTRANSLATED: " + text2Translate;
+    return error_prefix + text2Translate;
   });
 }
 
@@ -61,7 +62,7 @@ function translateText(text) {
 const re = /Chapter (\d*) .*/i;
 
 async function run() {
-  const files = fs.readdirSync('en').filter(file => file.startsWith("Chapter"));
+  const files = fs.readdirSync('en').filter(file => file.startsWith('Chapter'));
   for (var idx = 0; idx <= 121; idx++) {
     const file = files[idx];
     const chapter = file.match(re)[1];
@@ -86,12 +87,13 @@ async function run() {
       .replaceAll('Präfekt', 'Vertrauensschüler')
       .replaceAll('Pouch', 'Beutel')
       .replaceAll('Comed-Tea', 'Seltsaft')
-      .replaceAll('{/\an8}', '_');
+      .replaceAll('\{\\an8\}', '_');
+    console.log("/n/n/n");
+    console.log("Writing translated chapter " + chapter + " into file " + filename + ".");
     fs.writeFileSync(filename, '# ' + translated, err => {
         if (err) {
           console.error(err);
         }
-        console.log("Translated chapter " + chapter + " into file " + filename + ".");
       });
   }
 }
