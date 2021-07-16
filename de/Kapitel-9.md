@@ -158,14 +158,14 @@ _"HARRY POTTER! HARRY POTTER! HARRY POTTER!"_
 
 Harry machte seine letzten Schritte in Richtung des Sprechenden Hutes. Er verbeugte sich vor dem Chaosorden am Gryffindor-Tisch, dann drehte er sich um und verbeugte sich noch einmal zur anderen Seite der Halle und wartete, bis der Applaus und das Kichern verklungen waren.
 
-(Im Hinterkopf fragte er sich, ob der Sprechende Hut wirklich _bewusst_ war, in dem Sinne, dass er sich seines eigenen Bewusstseins bewusst war, und wenn ja, ob er damit zufrieden war, nur einmal im Jahr mit Elfjährigen sprechen zu dürfen. Sein Lied hatte das angedeutet: _Oh, ich bin der Sortierhut und mir geht's gut, ich schlafe das ganze Jahr und arbeite einen Tag...)
+(Im Hinterkopf fragte er sich, ob der Sprechende Hut wirklich _bewusst_ war in dem Sinne, dass er sich seines eigenen Bewusstseins bewusst war, und wenn ja, ob er damit zufrieden war, nur einmal im Jahr mit Elfjährigen sprechen zu dürfen. Sein Lied hatte das angedeutet: _Oh, ich bin der Sortierhut und mir geht's gut, ich schlafe das ganze Jahr und arbeite einen Tag...)_
 
 Als wieder Stille im Raum herrschte, setzte sich Harry auf den Hocker und legte _sorgfältig_ das 800 Jahre alte telepathische Artefakt vergessener Magie auf seinen Kopf.
 
-Er dachte, so fest er nur konnte: _Sortiere mich noch nicht! Ich habe Fragen, die ich dir stellen muss! Wurde ich jemals vergiftet? Hast du den Dunklen Lord als Kind sortiert und kannst du mir etwas über seine Schwächen sagen? Kannst du mir sagen, warum ich den Bruderstab des Dunklen Lords bekommen habe? Ist der Geist des Dunklen Lords an meine Narbe gebunden und werde ich deshalb manchmal so wütend? Das sind die wichtigsten Fragen, aber wenn du noch einen Moment Zeit hast, kannst du mir etwas darüber sagen, wie ich die verlorene Magie, die dich erschaffen hat, wiederfinden kann?_
+Er dachte, so fest er nur konnte: _Sortier mich noch nicht! Ich habe Fragen, die ich dir stellen muss! Wurde jemals ein Vergessenszauber auf mich gesprochen? Hast du den Dunklen Lord als Kind sortiert und kannst du mir etwas über seine Schwächen sagen? Kannst du mir sagen, warum ich den Bruderstab des Dunklen Lords bekommen habe? Ist der Geist des Dunklen Lords an meine Narbe gebunden und werde ich deshalb manchmal so wütend? Das sind die wichtigsten Fragen, aber wenn du noch einen Moment Zeit hast, kannst du mir etwas darüber sagen, wie ich die verlorene Magie, die dich erschaffen hat, wiederfinden kann?_
 
-In die Stille von Harrys Geist, wo vorher nur eine Stimme zu hören gewesen war, kam eine zweite, unbekannte Stimme, die deutlich besorgt klang:
+In die Stille von Harrys Geist, in der vorher nur eine Stimme zu hören gewesen war, kam eine zweite, unbekannte Stimme, die deutlich besorgt klang:
 
-_"Oh, je. Das ist bisher noch nie passiert... "_
+_"Oh, je. Das ist bisher noch nie passiert..."_
 
 → [Kapitel 10](Kapitel-10.md)

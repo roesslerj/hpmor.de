@@ -24,7 +24,7 @@ Im Zentrum eines außergewöhnlichen und kuriosen Ereignisses zu stehen und dann
 
 "Nein, ich habe dem Sprechenden Hut wirklich versprochen, nicht darüber zu reden."
 
-"Gut, ich habe dem Sprechenden Hut versprochen, über _das meiste_ nicht zu reden, und der Rest ist _privat_, so wie _deiner_ es war, also _hör auf zu fragen._"
+"Gut, ich habe dem Sprechenden Hut versprochen, über _das meiste_ nicht zu reden, und der Rest ist _privat_, so wie _es bei Dir war_, also _hör auf zu fragen._"
 
 "Ihr wollt wissen, was passiert ist? Gut! Hier ist ein Teil von dem, was passiert ist! Ich habe dem Hut gesagt, dass Professor McGonagall gedroht hat, ihn anzuzünden, und er hat mir gesagt, dass ich Professor McGonagall sagen soll, dass sie ein unverschämtes junges Ding ist und sie sich da raushalten soll!"
 
@@ -32,7 +32,7 @@ Im Zentrum eines außergewöhnlichen und kuriosen Ereignisses zu stehen und dann
 
 "Nein, ich weiß auch nicht, wie ich den Dunklen Lord besiegt habe! Sag's mir, wenn du's rausgefunden hast!"
 
-"_Stille!_", rief Professor McGonagall am Podium des Haupttisches. "_Nicht reden, bis die Sortierzeremonie beendet ist!_"
+"_Ruhe!_", rief Professor McGonagall am Podium des Haupttisches. "_Nicht reden, bis die Sortierzeremonie beendet ist!_"
 
 Es gab ein kurzes Abflauen der Lautstärke, da alle darauf warteten, ob sie irgendwelche konkreten und glaubwürdigen Drohungen aussprechen würde, und dann ging das Geflüster wieder los.
 
@@ -44,7 +44,7 @@ Der fröhlich wirkende alte Mann setzte sich wieder.
 
 _Notiz an mich selbst: Leg dich nicht mit Dumbledore an._
 
-Harry versuchte immer noch, alles zu verarbeiten, was während des Vorfalls mit dem Sprechenden Hut geschehen war. Nicht zuletzt war das passiert, was in dem Moment geschah, als Harry den Hut von seinem Kopf genommen hatte; in diesem Moment hatte er ein winziges Flüstern wie aus dem Nichts gehört, etwas, das seltsam nach Englisch und gleichzeitig nach einem Zischen klang, etwas, das gesagt hatte: "Gruß von Sslytherin zu Sslytherin: Wenn du meine sGeheimnisse sersuchen willst, ssprich mit meiner ssSchlange."-
+Harry versuchte immer noch, alles zu verarbeiten, was während des Vorfalls mit dem Sprechenden Hut geschehen war. Nicht zuletzt war das passiert, was in dem Moment geschah, als Harry den Hut von seinem Kopf genommen hatte; in diesem Moment hatte er ein winziges Flüstern wie aus dem Nichts gehört, etwas, das seltsam nach Englisch und gleichzeitig nach einem Zischen klang, etwas, das gesagt hatte: "Ssssei gegrüssssst von Ssslytherin zu Sssslytherin. Wenn Du meine Geheimnissse ssuchsst, sssprich mit meiner Ssschlange."
 
 Harry vermutete irgendwie, dass das nicht Teil des offiziellen Sortiervorgangs sein sollte. Und dass es ein bisschen Extra-Magie war, die von Salazar Slytherin während der Herstellung des Hutes hinzugefügt wurde. Und dass der Hut selbst nichts davon wusste. Und dass es ausgelöst wurde, als der Hut "SLYTHERIN" sagte, plus oder minus einiger anderer Bedingungen. Und dass ein Ravenclaw wie er es _wirklich, wirklich nicht hätte hören dürfen_. Und wenn er einen zuverlässigen Weg finden könnte, Draco zur Verschwiegenheit zu verpflichten, damit er ihn danach fragen konnte, wäre das ein hervorragender Zeitpunkt, um etwas Seltsaft parat zu haben.
 
@@ -116,7 +116,7 @@ Eine andere Studentin senkte ihre Stimme zu einem Flüstern. "Ich habe gehört, 
 
 Das konnte nicht anders, als Harrys Aufmerksamkeit zu erregen.
 
-"Ich verstehe", flüsterte Harry und senkte seine eigene Stimme. "Also weiß jeder, dass Dumbledore insgeheim ein Superhirn ist. ".
+"Ich verstehe", flüsterte Harry und senkte seine eigene Stimme. "Also weiß jeder, dass Dumbledore insgeheim ein Superhirn ist."
 
 Die meisten der Studenten nickten. Ein oder zwei sahen plötzlich nachdenklich aus, darunter auch der ältere Schüler, der neben Harry saß.
 
