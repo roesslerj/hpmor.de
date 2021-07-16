@@ -8,6 +8,10 @@ const translate = require("deepl");
 const auth_key = fs.readFileSync('deepl.auth-key', 'utf8').trim();
 
 function translateChunk(text2Translate) {
+  if (!/\w+/.test(text2Translate)) {
+    console.debug("Text does not contain chars to translate: " + text2Translate);
+    return text2Translate;
+  }
   console.debug("Translating '" + text2Translate + "'.");
   return translate({
     free_api: true,
