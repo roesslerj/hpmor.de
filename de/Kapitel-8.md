@@ -201,13 +201,13 @@ Hermine fühlte einen Stich der Enttäuschung. Sie wünschte wirklich, sie _hät
 
 Sie begann, sich über den ach so überlegenen Ton des Jungen zu ärgern, obwohl er nur ein Elfjähriger wie sie war, doch gegenüber ihrem Drang, herauszufinden, was sie falsch gemacht hatte, war das nachrangig. "In Ordnung."
 
-Der Ausdruck des Jungen wurde intensiver. "Dieses Spiel basiert auf einem berühmten Experiment, der 2-4-6-Aufgabe, und so funktioniert es. Ich habe eine _Regel_ - die mir bekannt ist, Dir aber nicht -, die auf einige Drillinge aus drei Zahlen passt, aber nicht auf andere. 2-4-6 ist ein Beispiel für eine Triple, das zu dieser Regel passt. In der Tat... Lass mich die Regel aufschreiben, nur damit Du weist, dass es eine feste Regel ist, und den Zettel falten und Dir geben. Bitte schauen Sie nicht hin, denn ich hab eben festgestellt, dass Du verkehrt herum lesen kannst."
+Der Ausdruck des Jungen wurde intensiver. "Dieses Spiel basiert auf einem berühmten Experiment, der 2-4-6-Aufgabe, und so funktioniert es. Ich habe eine _Regel_ - die mir bekannt ist, Dir aber nicht -, die auf einige Drillinge aus drei Zahlen passt, aber nicht auf andere. 2-4-6 ist ein Beispiel für eine Triple, das zu dieser Regel passt. Lass mich die Regel aufschreiben, nur damit Du weist, dass es eine feste Regel ist, und den Zettel falten und Dir geben. Bitte schau nicht hin, denn ich hab eben festgestellt, dass Du verkehrt herum lesen kannst."
 
 Der Junge sagte "Papier" und "Bleistift" zu seiner Tasche, und sie schloss ihre Augen fest, während er schrieb.
 
 "Da", sagte der Junge und hielt ein fest gefaltetes Stück Papier in der Hand. "Steck das in deine Tasche", und das tat sie.
 
-"Nun, die Art und Weise, wie dieses Spiel funktioniert", sagte der Junge, "ist, dass du mir einen Drilling aus drei Zahlen gibst, und ich sage dir 'Ja', wenn die drei Zahlen ein Beispiel für die Regel sind, und 'Nein', wenn sie es nicht sind. Ich bin die Natur, die Regel ist eines meiner Gesetze, und du untersuchst mich. Du weist bereits, dass 2-4-6 ein "Ja" erhält. Wenn Du alle weiteren Experimente durchgeführt hast - frag so viele Drillinge, wie Du für nötig hälst - errate die Regel, und dann kannst Du das Blatt Papier aufklappen und sehen, wie Du abgeschnitten hast. Verstehst Du das Spiel?"
+"Nun, die Art und Weise, wie dieses Spiel funktioniert", sagte der Junge, "ist, dass du mir einen Drilling aus drei Zahlen gibst, und ich sage dir 'Ja', wenn die drei Zahlen ein Beispiel für die Regel sind, und 'Nein', wenn sie es nicht sind. Ich bin die Natur, die Regel ist eines meiner Gesetze, und du untersuchst mich. Du weist bereits, dass 2-4-6 ein "Ja" erhält. Wenn Du alle weiteren Experimente durchgeführt hast - frag so viele Drillinge, wie Du für nötig hälst - errate die Regel, und dann kannst Du das Blatt Papier aufklappen und sehen, ob Du richtig liegst. Verstehst Du das Spiel?"
 
 "Natürlich tue ich das", sagte Hermine.
 
@@ -281,27 +281,27 @@ Der Junge stand auf und verbeugte sich feierlich vor ihr. Er grinste jetzt breit
 
 "Ich, ah... " Hermine spürte immer noch den Rausch der Euphorie, aber sie war sich nicht ganz sicher, wie sie _das_ beantworten sollte.
 
-Sie wurden durch ein schwaches, zaghaftes, schwaches, eher _unwilliges_ Klopfen an der Tür unterbrochen.
+Sie wurden durch ein schwaches, zaghaftes, eher _unwilliges_ Klopfen an der Tür unterbrochen.
 
-Der Junge drehte sich um, schaute aus dem Fenster und sagte: "Ich habe meinen Schal nicht an, kannst du den holen?".
+Der Junge drehte sich um, schaute aus dem Fenster und sagte: "Ich habe meinen Schal nicht an, kannst du den holen?"
 
 An diesem Punkt wurde Hermine klar, warum der Junge - nein, der Junge-der-lebte, Harry Potter - den Schal überhaupt über dem Kopf trug, und sie fühlte sich ein wenig dumm, weil sie es nicht früher bemerkt hatte. Es war tatsächlich irgendwie seltsam, denn sie hätte gedacht, dass Harry Potter sich stolz der Welt zeigen würde; und der Gedanke kam ihr, dass er vielleicht tatsächlich schüchterner war, als er schien.
 
-Als Hermine die Tür aufzog, wurde sie von einem zitternden Jungen begrüßt, der genauso aussah, als hätte er geklopft.
+Als Hermine die Tür aufzog, wurde sie von einem zitternden Jungen begrüßt, der genauso aussah, wie er geklopft hatte.
 
-"Entschuldigung", sagte der Junge mit leiser Stimme, "ich bin Neville Longbottom. Ich suche meine Lieblingskröte, ich kann sie nirgends auf diesem Wagen finden... Hast du meine Kröte gesehen?"
+"Entschuldigung", sagte der Junge mit leiser Stimme, "ich bin Neville Longbottom. Ich suche meine Lieblingskröte, ich kann sie nirgends in diesem Wagen finden... Hast du meine Kröte gesehen?"
 
-"Nein", sagte Hermine, und dann kam ihre Hilfsbereitschaft voll zum Tragen. "Hast Du bereits alle anderen Fächer überprüft?"
+"Nein", sagte Hermine, und dann kam ihre Hilfsbereitschaft voll zum Tragen. "Hast Du bereits alle anderen Abteile überprüft?"
 
 "Ja", flüsterte der Junge.
 
-"Dann müssen wir eben alle anderen Wagen überprüfen", sagte Hermine forsch. "Ich werde Dir helfen. Mein Name ist Hermine Granger, nebenbei bemerkt."
+"Dann müssen wir eben alle anderen Wagen überprüfen", sagte Hermine forsch. "Ich werde Dir helfen. Mein Name ist Hermine Granger, ganz nebenbei bemerkt."
 
 Der Junge sah aus, als könnte er vor Dankbarkeit in Ohnmacht fallen.
 
 "Warte mal", kam die Stimme des _anderen_ Jungen - Harry Potter. "Ich bin mir nicht sicher, ob das der beste Weg ist, das zu tun."
 
-Daraufhin sah Neville aus, als könnte er weinen, und Hermine schwang sich verärgert herum. Wenn Harry Potter die Art von Person wäre, die einen kleinen Jungen im Stich lassen würde, nur weil er nicht unterbrochen werden wollte... "Was? Warum _nicht?_"
+Daraufhin sah Neville aus, als könnte er weinen, und Hermine drehte sich verärgert herum. Wenn Harry Potter die Art von Person wäre, die einen kleinen Jungen im Stich lassen würde, nur weil er nicht unterbrochen werden wollte... "Was? Warum _nicht?_"
 
 "Nun", sagte Harry Potter, "es wird eine Weile dauern, den ganzen Zug von Hand zu durchsuchen, und wir könnten die Kröte sowieso übersehen, und wenn wir sie nicht finden, bis wir in Hogwarts sind, wäre er in Schwierigkeiten. Was also viel mehr Sinn machen würde, ist, wenn er direkt zum vorderen Wagen geht, wo die Vertrauensschüler sind, und einen Vertrauensschüler um Hilfe bittet. Das war das Erste, was ich getan habe, als ich nach dir gesucht habe, Hermine, obwohl sie es eigentlich nicht wussten. Aber vielleicht haben sie Zaubersprüche oder magische Gegenstände, die es viel einfacher machen würden, eine Kröte zu finden. Wir sind erst im ersten Jahr."
 
@@ -325,7 +325,7 @@ Hermine setzte sich hart auf ihre Bank. Harry Potter schloss die Tür und setzte
 
 "Kannst du mir bitte erklären, was hier los ist?" sagte Hermine mit schwacher Stimme. Sie fragte sich, ob das Zusammensein mit Harry Potter bedeutete, immer so verwirrt zu sein.
 
-"Oh, also, was passiert ist, war, dass Fred und George und ich diesen armen kleinen Jungen am Bahnhof gesehen haben - die Frau neben ihm war für eine Weile weggegangen, und er sah wirklich verängstigt aus, als wäre er sicher, dass er von Todessern oder so angegriffen werden würde. Nun, es gibt ein Sprichwort, dass die Angst oft schlimmer ist als die Sache selbst, also kam mir in den Sinn, dass dies ein Junge war, der tatsächlich davon profitieren könnte, zu sehen, dass sein schlimmster Albtraum wahr wurde und dass es nicht so schlimm war, wie er befürchtet hatte -"
+"Oh, also, was passiert ist, war, dass Fred und George und ich diesen armen kleinen Jungen am Bahnhof gesehen haben - die Frau neben ihm war für eine Weile weggegangen, und er sah wirklich verängstigt aus, als wäre er sicher, dass er von Todesstern oder so angegriffen werden würde. Nun, es gibt ein Sprichwort, dass die Angst oft schlimmer ist als die Sache selbst, also kam mir in den Sinn, dass dies ein Junge war, der tatsächlich davon profitieren könnte, zu sehen, dass sein schlimmster Albtraum wahr wurde und dass es nicht so schlimm war, wie er befürchtet hatte -"
 
 Hermine saß mit weit offenem Mund da.
 
@@ -339,11 +339,11 @@ Okay, sie hatte _nicht_ richtig vermutet, worauf das hinauslaufen würde.
 
 Das brennende Feuer der Empörung, das einer von Hermines primären Antrieben war, sprudelte zum Leben, obwohl ein Teil von ihr irgendwie sah, was sie versuchten zu tun. "Das ist furchtbar! Du bist furchtbar! Der arme Junge! Was du getan hast, war _böse_!"
 
-"Ich glaube, das Wort, das Du suchst, ist _unterhaltsam_, und auf jeden Fall stellst Du die falsche Frage. Die Frage ist, hat es mehr Nutzen als Schaden gebracht, oder mehr Schaden als Nutzen? Wenn Du irgendwelche Argumente zu _dieser_ Frage beizutragen hast, bin ich froh, sie zu hören, aber ich werde keine anderen Kritiken akzeptieren, bis diese Frage geklärt ist. Ich stimme sicherlich zu, dass das, was ich getan habe, schrecklich und schikanös und gemein _aussieht_, da es sich um einen verängstigten kleinen Jungen handelt und so weiter, aber das ist wohl kaum der entscheidende Punkt, oder? Das nennt man übrigens _Konsequentialismus_, es bedeutet, dass die Frage, ob eine Handlung richtig oder falsch ist, nicht davon abhängt, ob sie schlecht oder gemein oder sonst wie _aussieht_, die einzige Frage ist, wie sie am Ende bewirkt - was die Konsequenzen sind."
+"Ich glaube, das Wort, das Du suchst, ist _unterhaltsam_, und auf jeden Fall stellst Du die falsche Frage. Die Frage ist, hat es mehr Nutzen als Schaden gebracht, oder mehr Schaden als Nutzen? Wenn Du irgendwelche Argumente zu _dieser_ Frage beizutragen hast, bin ich froh, sie zu hören, aber ich werde keine anderen Kritiken akzeptieren, bis diese Frage geklärt ist. Ich stimme sicherlich zu, dass das, was ich getan habe, schrecklich und schikanös und gemein _aussieht_, da es sich um einen verängstigten kleinen Jungen handelt und so weiter, aber das ist wohl kaum der entscheidende Punkt, oder? Das nennt man übrigens _Konsequentialismus_, es bedeutet, dass die Frage, ob eine Handlung richtig oder falsch ist, nicht davon abhängt, ob sie schlecht oder gemein oder sonst wie _aussieht_, die einzige Frage ist, was sie am Ende bewirkt - was die Konsequenzen sind."
 
 Hermine öffnete den Mund, um etwas absolut _Vernichtendes_ zu sagen, aber leider schien sie den Teil vernachlässigt zu haben, in dem sie an etwas dachte, das sie sagen wollte, bevor sie den Mund öffnete. Alles, was ihr einfiel, war: "Was ist, wenn er _Albträume hat_?"
 
-"Ehrlich gesagt glaube ich nicht, dass er unsere Hilfe brauchte, um Albträume zu haben, und wenn er stattdessen Albträume über _das_ hat, dann sind es Albträume mit schrecklichen Monstern, die einem Schokolade geben, und das war Prinzip das _Ziel_."
+"Ehrlich gesagt glaube ich nicht, dass er unsere Hilfe brauchte, um Albträume zu haben, und wenn er stattdessen Albträume über _das_ hat, dann sind es Albträume mit schrecklichen Monstern, die einem Schokolade geben, und das war im Prinzip das _Ziel_."
 
 Hermines Gehirn hustete immer wieder verwirrt, wenn sie versuchte, richtig wütend zu werden. "Ist Dein Leben immer so eigenartig?", fragte sie schließlich.
 
@@ -353,7 +353,7 @@ Harry Potters Gesicht glänzte vor Stolz. "Ich _mache_ es so eigenartig. Du sieh
 
 "Also", sagte Harry Potter, "wie gut kennst Du Dich mit Wissenschaft genau aus? Ich kann rechnen und kenne etwas Bayes'sche Wahrscheinlichkeitstheorie und Entscheidungstheorie und eine Menge Kognitionswissenschaft, und ich habe _Die Feynman-Vorlesungen_ (oder zumindest Band 1) gelesen und _Entscheidungen unter Unsicherheit: Heuristiken und Vorurteile_ und _Semantik: Sprache im Handeln und Denken_ und _Die Psychologie der Beeinflussung_ und _Rationale Entscheidungen in einer Unsicheren Welt_ und _Godel, Escher, Bach_ und _Einen Schritt weiter_ und -"
 
-Das anschließende Quiz und Gegenquiz dauerte mehrere Minuten, bevor es durch ein weiteres zaghaftes Klopfen an der Tür unterbrochen wurde. "Herein", sagten sie und Harry Potter fast gleichzeitig, und es glitt zurück, um Neville Longbottom zu enthüllen.
+Das anschließende Quiz und Gegenquiz dauerte mehrere Minuten, bevor es durch ein weiteres zaghaftes Klopfen an der Tür unterbrochen wurde. "Herein", sagten sie und Harry Potter fast gleichzeitig, und die Tür glitt zurück, um Neville Longbottom zu enthüllen.
 
 Neville weinte jetzt tatsächlich. "Ich ging zum vorderen Wagen und fand einen Vertrauensschüler, aber er sagte mir, dass Vertrauensschüler nicht wegen Kleinigkeiten wie fehlenden Kröten belästigt werden sollten."
 
@@ -365,13 +365,13 @@ Das Gesicht des Jungen-der-lebte veränderte sich. Seine Lippen verzogen sich zu
 
 Harry Potter _zischte_ daraufhin, ein beängstigendes Geräusch, das von einer lebenden Schlange hätte kommen können und sowohl sie als auch Neville zusammenzucken ließ. "Ich _nehme an_," spuckte Harry Potter, "dass das Auffinden der Kröte eines Erstklässlers nicht _heroisch_ genug ist, um eines _Gryffindor_-Vertrauensschüler würdig zu sein. Komm schon, Neville, _ich_ komme dieses Mal mit, mal sehen, ob der Junge-der-lebte mehr Aufmerksamkeit bekommt. Zuerst werden wir einen Vertrauensschüler finden, der einen Zauberspruch kennen sollte, und wenn das nicht funktioniert, werden wir einen Vertrauensschüler finden, der keine Angst hat, sich die Hände schmutzig zu machen, und wenn _das_ nicht funktioniert, werde ich anfangen, meine Fans zu rekrutieren, und wenn es sein muss, werden wir den ganzen Zug Schraube für Schraube auseinandernehmen."
 
-Der Junge-der-lebte stand auf und nahm Nevilles Hand in seine, und Hermine erkannte mit einem plötzlichen Hirnhusten, dass sie fast gleich groß waren, obwohl ein Teil von ihr darauf bestanden hatte, dass Harry Potter einen Fuß größer und Neville mindestens sechs Zoll kleiner war.
+Der Junge-der-lebte stand auf und nahm Nevilles Hand in seine, und Hermine erkannte mit einem plötzlichen Hirnhusten, dass sie fast gleich groß waren, obwohl ein Teil von ihr darauf bestanden hatte, dass Harry Potter einen Kopf größer und Neville mindestens halben Kopf kleiner war.
 
 "_Bleib hier!_" Harry Potter schnauzte sie an - nein, warte, seinen _Koffer_ - und er schloss die Tür fest hinter sich, als er ging.
 
 Wahrscheinlich hätte sie mitgehen sollen, aber in einem kurzen Moment war Harry Potter so unheimlich geworden, dass sie eigentlich ganz froh war, dass sie nicht daran gedacht hatte, es vorzuschlagen.
 
-Hermines Gedanken waren jetzt so durcheinander, dass sie nicht einmal mehr glaubte, "Hogwarts: Eine Geschichte". Sie fühlte sich, als wäre sie gerade von einer Dampfwalze überrollt und in einen Pfannkuchen verwandelt worden. Sie war sich nicht sicher, was sie dachte oder was sie fühlte oder warum. Sie saß einfach nur am Fenster und starrte auf die sich bewegende Szenerie.
+Hermines Gedanken waren jetzt so durcheinander, dass sie nicht einmal mehr glaubte, "Hogwarts: Eine Geschichte" lesen zu können. Sie fühlte sich, als wäre sie gerade von einer Dampfwalze überrollt und in einen Pfannkuchen verwandelt worden. Sie war sich nicht sicher, was sie dachte oder was sie fühlte oder warum. Sie saß einfach nur am Fenster und starrte auf die sich bewegende Szenerie.
 
 Nun, sie wusste zumindest, warum sie sich innerlich ein wenig traurig fühlte.
 

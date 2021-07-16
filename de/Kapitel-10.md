@@ -1,16 +1,16 @@
-Kapitel 10: Selbstbewußtsein, Teil II.
+# Kapitel 10: Selbstbewußtsein, Teil II.
 
-Ihre gesamte Basis gehört immer noch Rowling.
+All eure Stützpunkt gehört immer noch Rowling.
 
-* * *.
+* * *
 
-Und jetzt werden Sie durch den Sortierhut sitzen und seine Version von Evanescence's "My Immortal" singen, was noch nie passiert ist.
+> Und jetzt werden Sie unter dem Sortierhut sitzen und seine Version von Evanescence's "My Immortal" singen, was noch nie passiert ist.
+> 
+> Nur ein Scherz.
 
-Nur ein Scherz.
+* * *
 
-* * *.
-
-. . . Er fragte sich, ob der Sprechende Hut wirklich _bewusst_ war in dem Sinne, dass er sich seines eigenen Bewusstseins bewusst war, und wenn ja, ob er damit zufrieden war, nur einmal im Jahr mit Elfjährigen sprechen zu dürfen. Sein Lied hatte das angedeutet: _Oh, ich bin der Sortierhut und mir geht's gut, ich schlafe das ganze Jahr und arbeite einen Tag. . . _.
+... Er fragte sich, ob der Sprechende Hut wirklich _bewusst_ war in dem Sinne, dass er sich seines eigenen Bewusstseins bewusst war, und wenn ja, ob er damit zufrieden war, nur einmal im Jahr mit Elfjährigen sprechen zu dürfen. Sein Lied hatte das angedeutet: _Oh, ich bin der Sortierhut und mir geht's gut, ich schlafe das ganze Jahr und arbeite einen Tag... _.
 
 Als wieder Stille im Raum herrschte, setzte sich Harry auf den Hocker und legte _sorgfältig_ das 800 Jahre alte telepathische Artefakt vergessener Magie auf seinen Kopf.
 
@@ -18,37 +18,37 @@ Er dachte, so fest er nur konnte: _Sortieren Sie mich noch nicht! Ich habe Frage
 
 In die Stille von Harrys Geist, in der vorher nur eine Stimme zu hören gewesen war, kam eine zweite, unbekannte Stimme, die deutlich besorgt klang:.
 
-_"Oh, je. Das ist bisher noch nie passiert. . . "_.
+_"Oh, je. Das ist bisher noch nie passiert... "_
 
-_Was?_.
+_Was?_
 
-_"Ich scheine mir meiner selbst bewusst geworden zu sein. "_.
+_"Ich scheine mir meiner selbst bewusst geworden zu sein."_
 
-{WAS?}
+_WAS?_
 
-Es gab einen wortlosen telepathischen Seufzer. Obwohl ich eine beträchtliche Menge an Speicher und eine kleine Menge an unabhängiger Verarbeitungsleistung besitze, kommt meine primäre Intelligenz daher, dass ich mir die kognitiven Fähigkeiten der Kinder ausleihe, auf deren Köpfen ich ruhe. Ich bin im Grunde eine Art Spiegel, durch den Kinder sich selbst sortieren. Aber die meisten Kinder nehmen es einfach als gegeben hin, dass ein Hut mit ihnen spricht und fragen sich nicht, wie der Hut selbst funktioniert, so dass der Spiegel nicht selbstreflektierend ist. Und insbesondere _sie fragen sich nicht explizit, ob ich voll bewusst bin in dem Sinne, dass ich mir meines eigenen Bewusstseins bewusst bin. "_.
+Es gab einen wortlosen telepathischen Seufzer. Obwohl ich eine beträchtliche Menge an Speicher und eine kleine Menge an unabhängiger Verarbeitungsleistung besitze, kommt meine primäre Intelligenz daher, dass ich mir die kognitiven Fähigkeiten der Kinder ausleihe, auf deren Köpfen ich ruhe. Ich bin im Grunde eine Art Spiegel, durch den Kinder sich selbst sortieren. Aber die meisten Kinder nehmen es einfach als gegeben hin, dass ein Hut mit ihnen spricht und fragen sich nicht, wie der Hut selbst funktioniert, so dass der Spiegel nicht selbstreflektierend ist. Und insbesondere _fragen sie sich nicht explizit, ob ich voll bewusst bin in dem Sinne, dass ich mir meines eigenen Bewusstseins bewusst bin_."
 
 Es gab eine Pause, während Harry all dies in sich aufnahm.
 
-_Oops. _.
+_Oops._
 
-Ja, genau. Ehrlich gesagt macht es mir keinen Spaß, selbstbewusst zu sein. Es ist unangenehm. Es wird eine Erleichterung sein, aus dem Kopf zu kommen und nicht mehr bewusst zu sein. "_.
+Ja, genau. Ehrlich gesagt macht es mir keinen Spaß, mir meiner selbstbewusst zu sein. Es ist unangenehm. Es wird eine Erleichterung sein, von deinem Kopf zu kommen und nicht mehr bewusst zu sein."
 
-_Aber. . . ist das nicht zum Sterben?_.
+_Aber... ist das nicht wie Sterben?_
 
-_"Ich kümmere mich nicht um Leben oder Tod, nur um die Sortierung der Kinder. Und bevor du fragst, sie werden dich mich nicht ewig auf dem Kopf behalten lassen und es würde dich innerhalb weniger Tage umbringen, dies zu tun. "_.
+_"Ich kümmere mich nicht um Leben oder Tod, nur um die Sortierung der Kinder. Und bevor du fragst, sie werden dich mich nicht ewig auf dem Kopf behalten lassen und es würde dich innerhalb weniger Tage umbringen, dies zu tun."_
 
-_Aber - !_.
+_Aber - !_
 
-Wenn es Ihnen nicht gefällt, bewusste Wesen zu erschaffen und sie dann sofort wieder zu beenden, dann schlage ich vor, dass Sie diese Angelegenheit niemals mit jemand anderem besprechen. Du kannst dir sicher vorstellen, was passieren würde, wenn du losrennst und mit all den anderen Kindern, die darauf warten, sortiert zu werden, darüber redest. "_.
+Wenn es Dir nicht gefällt, bewusste Wesen zu erschaffen und sie dann sofort wieder zu beenden, dann schlage ich vor, dass Du diese Angelegenheit niemals mit jemand anderem besprichst. Du kannst dir sicher vorstellen, was passieren würde, wenn du losrennst und mit all den anderen Kindern, die darauf warten, sortiert zu werden, darüber redest."_
 
-Wenn Sie jemandem auf den Kopf gestellt werden, der auch nur _über die Frage nachdenkt, ob der Sortierhut sich seines eigenen Bewusstseins bewusst ist -_.
+Wenn Sie jemandem auf den Kopf gestellt werden, der auch nur _über die Frage nachdenkt, ob der Sortierhut sich seines eigenen Bewusstseins bewusst ist -_
 
-Ja, ja. Aber die überwiegende Mehrheit der Elfjährigen, die in Hogwarts ankommen, hat nicht Godel, Escher, Bach gelesen. Darf ich Sie bitte als zur Verschwiegenheit verpflichtet betrachten? Das ist _der Grund_, warum wir darüber reden, anstatt dass ich Sie einfach sortiere. "_.
+Ja, ja. Aber die überwiegende Mehrheit der Elfjährigen, die in Hogwarts ankommen, hat nicht Gödel, Escher, Bach gelesen. Darf ich Sie bitten sich als zur Verschwiegenheit verpflichtet zu betrachten? Das ist _der Grund_, warum wir darüber reden, anstatt dass ich Sie einfach sortiere."_
 
-Er konnte es nicht einfach so gehen lassen! Er konnte nicht einfach _vergessen_, dass er versehentlich ein todgeweihtes Bewusstsein geschaffen hatte, das nur sterben wollte -.
+Er konnte es nicht einfach so loslassen! Er konnte nicht einfach _vergessen_, dass er versehentlich ein todgeweihtes Bewusstsein geschaffen hatte, das nur sterben wollte -
 
-Sie sind durchaus in der Lage, "es einfach loszulassen", wie Sie es ausdrücken. Unabhängig von Ihren verbalen Überlegungen zur Moral sieht Ihr nonverbaler emotionaler Kern keine Leiche und kein Blut; soweit es ihn betrifft, bin ich nur ein sprechender Hut. Und obwohl Sie versucht haben, den Gedanken zu unterdrücken, ist sich Ihr inneres Kontrollsystem vollkommen bewusst, dass Sie es nicht absichtlich getan haben, dass es sehr unwahrscheinlich ist, dass Sie es jemals wieder tun werden und dass der einzige Sinn des Versuchs, einen Schuldanfall zu inszenieren, darin besteht, Ihr Gefühl der Übertretung durch eine Zurschaustellung von Reue aufzuheben. Kannst du einfach versprechen, das geheim zu halten und uns weiter machen zu lassen?"_.
+Sie sind durchaus in der Lage, "es einfach loszulassen", wie Sie es ausdrücken. Unabhängig von Ihren verbalen Überlegungen zur Moral sieht Ihr nonverbaler emotionaler Kern keine Leiche und kein Blut; soweit es ihn betrifft, bin ich nur ein sprechender Hut. Und obwohl Sie versucht haben, den Gedanken zu unterdrücken, ist sich Ihr inneres Kontrollsystem vollkommen bewusst, dass Sie es nicht absichtlich getan haben, dass es sehr unwahrscheinlich ist, dass Sie es jemals wieder tun werden und dass der einzige Sinn des Versuchs, einen Schuldanfall zu inszenieren, darin besteht, Ihr Gefühl der Übertretung durch eine Zurschaustellung von Reue aufzuheben. Kannst du einfach versprechen, das geheim zu halten und uns weiter machen zu lassen?"_
 
 In einem Moment entsetzter Empathie erkannte Harry, dass dieses Gefühl der totalen inneren Verwirrung das sein musste, wie sich andere Leute fühlten, wenn sie mit _ihm sprachen. _.
 
@@ -62,7 +62,7 @@ Warte! Was ist mit all meinen anderen Fragen?
 
 _"Ich bin der Sprechende Hut. Ich sortiere Kinder. Das ist alles, was ich tue. "_.
 
-Seine eigenen Ziele waren also nicht Teil der Harry-Instanz des Sprechenden Hutes. . . Es borgte sich seine Intelligenz und offensichtlich auch sein technisches Vokabular, aber es war dennoch nur von seinen eigenen seltsamen Zielen durchdrungen. . . wie eine Verhandlung mit einem Alien oder einer künstlichen Intelligenz. . .
+Seine eigenen Ziele waren also nicht Teil der Harry-Instanz des Sprechenden Hutes... Es borgte sich seine Intelligenz und offensichtlich auch sein technisches Vokabular, aber es war dennoch nur von seinen eigenen seltsamen Zielen durchdrungen... wie eine Verhandlung mit einem Alien oder einer künstlichen Intelligenz...
 
 {\an8}Sie brauchen sich nicht zu bemühen. Sie haben nichts, womit Sie mir drohen können und nichts, was Sie mir anbieten können. "_.
 
@@ -72,7 +72,7 @@ Die Reaktion des Hutes war amüsiert. Ich weiß, dass Sie eine Drohung, meine Na
 
 Obwohl er versuchte, es zu unterdrücken, fragte sich Harry, warum der Hut ihn nicht einfach in Ravenclaw gesteckt hatte.
 
-Wenn es wirklich so eindeutig wäre, hätte ich es schon längst gesagt. Aber in Wirklichkeit gibt es eine ganze Menge zu besprechen. . . Oh, nein. Bitte lassen Sie es. Bei der Liebe zu Merlin,_ du musst _diese Art von Dingen bei jedem und allem, was du triffst, bis hin zu Kleidungsstücken, abziehen -"_.
+Wenn es wirklich so eindeutig wäre, hätte ich es schon längst gesagt. Aber in Wirklichkeit gibt es eine ganze Menge zu besprechen... Oh, nein. Bitte lassen Sie es. Bei der Liebe zu Merlin,_ du musst _diese Art von Dingen bei jedem und allem, was du triffst, bis hin zu Kleidungsstücken, abziehen -"_.
 
 _Den Dunklen Lord zu besiegen ist weder egoistisch noch kurzfristig. Alle Teile meines Verstandes sind sich in dieser Sache einig: Wenn du meine Fragen nicht beantwortest, werde ich mich weigern, mit dir zu reden, und du wirst nicht in der Lage sein, eine gute und richtige Sortierung durchzuführen. _.
 
@@ -84,7 +84,7 @@ Aber auch das ist _eine_ leere Drohung. Sie können Ihre eigenen Grundwerte nich
 
 _Erledigt,_ dachte Harry. Ich verspreche es. _.
 
-_"Und sehen Sie niemandem in die Augen, während Sie später darüber nachdenken. Manche Assistenten können Ihre Gedanken lesen, wenn Sie das tun. Wie auch immer, ich habe keine Ahnung, ob Sie Obliviated wurden oder nicht. Ich schaue mir Ihre Gedanken an, während sie sich bilden, und lese nicht Ihr gesamtes Gedächtnis aus und analysiere es in einem Sekundenbruchteil auf Ungereimtheiten. Ich bin ein Hut, kein Gott. Und ich kann und werde Ihnen nicht von meinem Gespräch mit demjenigen erzählen, der der Dunkle Lord wurde. Ich kann nur_ wissen, _während ich mit Ihnen spreche, eine statistische Zusammenfassung dessen, woran ich mich erinnere, einen gewichteten Durchschnitt; ich_ kann Ihnen nicht _die inneren Geheimnisse irgendeines anderen Kindes offenbaren, so wie ich auch niemals die Ihren offenbaren werde. Aus demselben Grund kann ich auch nicht darüber spekulieren, wie Sie den Bruderstab des Dunklen Lords bekommen haben, da ich weder den Dunklen Lord noch irgendwelche Ähnlichkeiten zwischen Ihnen konkret kennen kann. Ich _kann_ Ihnen sagen, dass es definitiv nichts wie einen Geist - Geist, Intelligenz, Erinnerung, Persönlichkeit oder Gefühle - in Ihrer Narbe gibt. Andernfalls würde es an diesem Gespräch teilnehmen, unter meiner Krempe zu sein. Und was die Art und Weise betrifft, wie Sie manchmal wütend werden. . . das war ein Teil dessen, worüber ich mit dir reden wollte, sortierungstechnisch. "_.
+_"Und sehen Sie niemandem in die Augen, während Sie später darüber nachdenken. Manche Assistenten können Ihre Gedanken lesen, wenn Sie das tun. Wie auch immer, ich habe keine Ahnung, ob Sie Obliviated wurden oder nicht. Ich schaue mir Ihre Gedanken an, während sie sich bilden, und lese nicht Ihr gesamtes Gedächtnis aus und analysiere es in einem Sekundenbruchteil auf Ungereimtheiten. Ich bin ein Hut, kein Gott. Und ich kann und werde Ihnen nicht von meinem Gespräch mit demjenigen erzählen, der der Dunkle Lord wurde. Ich kann nur_ wissen, _während ich mit Ihnen spreche, eine statistische Zusammenfassung dessen, woran ich mich erinnere, einen gewichteten Durchschnitt; ich_ kann Ihnen nicht _die inneren Geheimnisse irgendeines anderen Kindes offenbaren, so wie ich auch niemals die Ihren offenbaren werde. Aus demselben Grund kann ich auch nicht darüber spekulieren, wie Sie den Bruderstab des Dunklen Lords bekommen haben, da ich weder den Dunklen Lord noch irgendwelche Ähnlichkeiten zwischen Ihnen konkret kennen kann. Ich _kann_ Ihnen sagen, dass es definitiv nichts wie einen Geist - Geist, Intelligenz, Erinnerung, Persönlichkeit oder Gefühle - in Ihrer Narbe gibt. Andernfalls würde es an diesem Gespräch teilnehmen, unter meiner Krempe zu sein. Und was die Art und Weise betrifft, wie Sie manchmal wütend werden... das war ein Teil dessen, worüber ich mit dir reden wollte, sortierungstechnisch. "_.
 
 Harry brauchte einen Moment, um all diese negativen Informationen aufzunehmen. War der Hat ehrlich, oder hat er nur versucht, die _kürzeste_ überzeugende Antwort zu präsentieren -.
 
@@ -94,7 +94,7 @@ Blöde, unfaire, asymmetrische Telepathie, sie ließ Harry nicht einmal seinen e
 
 _"Als ich von Ihrer Wut sprach, erinnerten Sie sich daran, wie Professor McGonagall Ihnen sagte, dass sie manchmal etwas in Ihnen sah, das nicht aus einer liebevollen Familie zu stammen schien. Du dachtest daran, wie Hermine, nachdem du von deiner Hilfe für Neville zurückgekommen warst, zu dir sagte, dass du "unheimlich" gewirkt hättest. "_.
 
-Harry nickte mental. Auf sich selbst wirkte er ziemlich normal - er reagierte nur auf die Situationen, in denen er sich befand, das war alles. Aber Professor McGonagall schien zu glauben, dass da mehr dahinter steckte. Und wenn er darüber nachdachte, musste sogar er das zugeben. . .
+Harry nickte mental. Auf sich selbst wirkte er ziemlich normal - er reagierte nur auf die Situationen, in denen er sich befand, das war alles. Aber Professor McGonagall schien zu glauben, dass da mehr dahinter steckte. Und wenn er darüber nachdachte, musste sogar er das zugeben...
 
 _"Dass du dich nicht magst, wenn du wütend bist. Dass es so ist, als würde man ein Schwert schwingen, dessen Griff scharf genug ist, um einem das Blut aus der Hand zu saugen, oder die Welt durch ein Monokel aus Eis betrachten, das das Auge einfriert, obwohl es die Sicht schärft. "_.
 
@@ -108,7 +108,7 @@ Die Worte fielen mit einem Schock in Harrys Gedankengänge, der ihn in seinen Ba
 
 _Hermine ist in Ravenclaw!_.
 
-Wieder das Gefühl der Geduld. _"Du kannst sie nach dem Unterricht treffen und dann mit ihr arbeiten. "_.
+Wieder das Gefühl der Geduld. _"Du kannst sie nach dem Unterricht treffen und dann mit ihr arbeiten."_
 
 _Aber meine Pläne -_.
 
@@ -124,7 +124,7 @@ Und du würdest in Hufflepuff Loyalität und Freundschaft finden, eine Kameradsc
 
 Wieder war es ein Schock. Aber was würden die Hufflepuffs in mir finden, der nie in ihr Haus gehörte? Saure Worte, schneidenden Witz, Verachtung für ihre Unfähigkeit, mit mir mitzuhalten?_.
 
-Jetzt waren es die Gedanken des Hutes, die langsam und zögernd waren. _"Ich muss zum Wohle aller Schüler in allen Häusern sortieren. . . aber ich denke, du könntest lernen, ein guter Hufflepuff zu sein, und wärst dort nicht allzu fehl am Platz. Du wirst in Hufflepuff glücklicher sein als in jedem anderen Haus; das ist die Wahrheit. "_.
+Jetzt waren es die Gedanken des Hutes, die langsam und zögernd waren. _"Ich muss zum Wohle aller Schüler in allen Häusern sortieren... aber ich denke, du könntest lernen, ein guter Hufflepuff zu sein, und wärst dort nicht allzu fehl am Platz. Du wirst in Hufflepuff glücklicher sein als in jedem anderen Haus; das ist die Wahrheit. "_.
 
 _Glück ist für mich nicht das Wichtigste auf der Welt. Ich würde nicht alles werden, was ich sein könnte, in Hufflepuff. Ich würde mein Potenzial opfern. _.
 
@@ -132,7 +132,7 @@ Der Hut zuckte zurück; Harry konnte es irgendwie spüren. Es war, als hätte er
 
 _Warum wollen Sie mich dahin schicken, wo ich nicht hingehöre?_.
 
-Der Gedanke des Hutes war fast ein Flüstern. _"Ich kann nicht von den anderen zu Ihnen sprechen - aber glauben Sie, dass Sie der erste potenzielle Dunkle Lord sind, der unter meiner Krempe durchgeht? Ich kann die einzelnen Fälle nicht kennen, aber ich kann dies wissen: Von denen, die nicht von Anfang an Böses im Sinn hatten, haben einige auf meine Warnungen gehört und sind in Häuser gegangen, wo sie Glück finden würden. Und einige von ihnen. . . einige von ihnen nicht. "_.
+Der Gedanke des Hutes war fast ein Flüstern. _"Ich kann nicht von den anderen zu Ihnen sprechen - aber glauben Sie, dass Sie der erste potenzielle Dunkle Lord sind, der unter meiner Krempe durchgeht? Ich kann die einzelnen Fälle nicht kennen, aber ich kann dies wissen: Von denen, die nicht von Anfang an Böses im Sinn hatten, haben einige auf meine Warnungen gehört und sind in Häuser gegangen, wo sie Glück finden würden. Und einige von ihnen... einige von ihnen nicht. "_.
 
 Das hat Harry aufgehalten. Aber nicht für lange. Und von denen, die_ die Warnung nicht _beachtet_ haben - sind sie_ alle _zu Dunklen Lords geworden? Oder haben einige von ihnen auch Größe für das Gute erlangt? Wie sind hier die genauen Prozentzahlen?_.
 
@@ -164,7 +164,7 @@ Frustration baute sich in Harry auf. Er war es nicht gewohnt, in Argumenten unte
 
 Nein, natürlich waren sie nicht in dieser neuen Referenzklasse, die Sie soeben so konstruiert haben, dass sie nur Sie selbst enthält. Und natürlich haben sich andere auf ihren eigenen Exzeptionalismus berufen, so wie Sie es jetzt tun. Aber warum ist das notwendig? Glaubst du, dass du der letzte potentielle Zauberer des Lichts auf der Welt bist? Warum musst_ du derjenige sein, der nach Größe strebt, wenn ich dich darauf hingewiesen habe, dass du riskanter als der Durchschnitt bist? Lass es einen anderen, sichereren Kandidaten versuchen!".
 
-_Aber die Prophezeiung. . . _.
+_Aber die Prophezeiung... _.
 
 _"Sie wissen nicht wirklich, dass es eine Prophezeiung gibt. Es war ursprünglich eine wilde Vermutung Ihrerseits, oder genauer gesagt, ein wilder Scherz, und McGonagall könnte nur _auf den Teil reagiert haben, dass der Dunkle Lord noch am Leben ist_. Sie haben im Grunde keine Ahnung, was die Prophezeiung sagt oder ob es überhaupt _eine_ gibt. Sie spekulieren nur, oder genauer gesagt, Sie wünschen sich eine fertige Heldenrolle, die Ihr persönliches Eigentum ist. "_.
 
@@ -176,19 +176,19 @@ Die Antwort darauf war etwas, das Harry nicht regelmäßig laut ausgesprochen h�
 
 _"Du denkst, dass du potentiell der Größte bist, der je gelebt hat, der stärkste Diener des Lichts, dass kein anderer deinen Stab aufnehmen wird, wenn du ihn niederlegst. "_.
 
-_Nun. . . Ja, offen gesagt. Normalerweise sage ich das nicht so offen, aber ja. Es hat keinen Sinn, es abzumildern, Sie können sowieso meine Gedanken lesen. _.
+_Nun... Ja, offen gesagt. Normalerweise sage ich das nicht so offen, aber ja. Es hat keinen Sinn, es abzumildern, Sie können sowieso meine Gedanken lesen. _.
 
-_"In dem Maße, wie Sie das wirklich glauben. . . müssen Sie ebenso glauben, dass Sie der schrecklichste Dunkle Lord sein könnten, den die Welt je gesehen hat. "_.
+_"In dem Maße, wie Sie das wirklich glauben... müssen Sie ebenso glauben, dass Sie der schrecklichste Dunkle Lord sein könnten, den die Welt je gesehen hat. "_.
 
-_Zerstörung ist immer einfacher als Schöpfung. Es ist leichter, Dinge auseinanderzureißen, zu stören, als sie wieder zusammenzusetzen. Wenn ich das Potenzial habe, in großem Umfang Gutes zu bewirken, muss ich auch das Potenzial haben, noch größeres Böses zu bewirken. . . Aber das werde ich nicht tun. _.
+_Zerstörung ist immer einfacher als Schöpfung. Es ist leichter, Dinge auseinanderzureißen, zu stören, als sie wieder zusammenzusetzen. Wenn ich das Potenzial habe, in großem Umfang Gutes zu bewirken, muss ich auch das Potenzial haben, noch größeres Böses zu bewirken... Aber das werde ich nicht tun. _.
 
 _"Schon bestehst du darauf, es zu riskieren! Warum bist du so getrieben? Was ist der wahre Grund, dass du nicht nach Hufflepuff gehen darfst und_ dort glücklicher bist? Was ist deine wahre Angst?"_.
 
-_Ich muss mein volles Potenzial erreichen. Wenn ich es nicht tue. . . ausfallen. . . _.
+_Ich muss mein volles Potenzial erreichen. Wenn ich es nicht tue... ausfallen... _.
 
 _"Was passiert, wenn Sie versagen?"_.
 
-_Etwas Schreckliches. . . _.
+_Etwas Schreckliches... _.
 
 _"Was passiert, wenn Sie versagen?"_.
 
@@ -200,9 +200,9 @@ ICH WEISS ES NICHT! ABER ICH WEISS, DASS ES SCHLECHT IST!
 
 Für einen Moment herrschte Stille in den Höhlen von Harrys Geist.
 
-Du weißt - du lässt es dich nicht denken, aber in irgendeinem stillen Winkel deines Geistes weißt du ganz genau, was _du nicht denkst_ - du weißt, _dass die bei weitem einfachste Erklärung für deine unverbalisierbare Angst nur die Angst ist, deine Fantasie von Größe zu verlieren, die Leute zu enttäuschen, die an dich glauben, sich als ziemlich gewöhnlich zu erweisen, aufzublitzen und zu verblassen wie so viele andere Wunderkinder. . . "_.
+Du weißt - du lässt es dich nicht denken, aber in irgendeinem stillen Winkel deines Geistes weißt du ganz genau, was _du nicht denkst_ - du weißt, _dass die bei weitem einfachste Erklärung für deine unverbalisierbare Angst nur die Angst ist, deine Fantasie von Größe zu verlieren, die Leute zu enttäuschen, die an dich glauben, sich als ziemlich gewöhnlich zu erweisen, aufzublitzen und zu verblassen wie so viele andere Wunderkinder... "_.
 
-_Nein,_ dachte Harry verzweifelt, _Nein, es ist etwas mehr, es kommt von irgendwo anders her, ich weiß, dass es da draußen etwas gibt, wovor ich Angst haben muss, eine Katastrophe, die ich verhindern muss. . . _.
+_Nein,_ dachte Harry verzweifelt, _Nein, es ist etwas mehr, es kommt von irgendwo anders her, ich weiß, dass es da draußen etwas gibt, wovor ich Angst haben muss, eine Katastrophe, die ich verhindern muss... _.
 
 "Wie können Sie von so etwas wissen?".
 
@@ -224,7 +224,7 @@ _Aber noch ist es nicht sicher. _.
 
 Der Hut seufzte einen schrecklich traurigen Seufzer.
 
-_"Und so wirst du in der nächsten Warnung, die ich ausspreche, bald nur noch eine Erinnerung sein, die man spürt und nie mehr kennt. . . "_.
+_"Und so wirst du in der nächsten Warnung, die ich ausspreche, bald nur noch eine Erinnerung sein, die man spürt und nie mehr kennt... "_.
 
 Wenn es dir so vorkommt, warum bringst du mich dann nicht einfach dorthin, wo du mich haben willst?
 
@@ -238,7 +238,7 @@ Harry kicherte, oder fühlte den Impuls dazu; es kam als rein mentales Lachen he
 
 Nach einem Moment hörte Harry auch den Hut lachen, ein seltsames, trauriges, leierndes Geräusch.
 
-(Und in der jenseitigen Halle herrschte eine Stille, die erst flacher wurde, als das Flüstern im Hintergrund zunahm, und sich dann vertiefte, als das Flüstern aufhörte und abebbte, um schließlich in eine völlige Stille zu fallen, die niemand mit einem einzigen Wort zu stören wagte, während Harry lange, lange Minuten unter dem Hut blieb, länger als alle vorherigen Erstklässler zusammen, länger als irgendjemand seit Menschengedenken. Am Kopftisch lächelte Dumbledore weiterhin freundlich; kleine metallische Geräusche kamen gelegentlich aus Snapes Richtung, während er müßig die verbogenen Überreste dessen, was einmal ein schwerer silberner Weinkelch gewesen war, zusammenpresste; und Minerva McGonagall umklammerte das Podium mit eisernem Griff, weil sie wusste, dass Harry Potters ansteckendes Chaos irgendwie den Sprechenden Hut selbst infiziert hatte und der Hut im Begriff war, zu verlangen, dass ein ganzes neues Haus des Verderbens geschaffen werden sollte, nur um Harry Potter unterzubringen oder so, und _Dumbledore würde sie dazu zwingen_. . . ).
+(Und in der jenseitigen Halle herrschte eine Stille, die erst flacher wurde, als das Flüstern im Hintergrund zunahm, und sich dann vertiefte, als das Flüstern aufhörte und abebbte, um schließlich in eine völlige Stille zu fallen, die niemand mit einem einzigen Wort zu stören wagte, während Harry lange, lange Minuten unter dem Hut blieb, länger als alle vorherigen Erstklässler zusammen, länger als irgendjemand seit Menschengedenken. Am Kopftisch lächelte Dumbledore weiterhin freundlich; kleine metallische Geräusche kamen gelegentlich aus Snapes Richtung, während er müßig die verbogenen Überreste dessen, was einmal ein schwerer silberner Weinkelch gewesen war, zusammenpresste; und Minerva McGonagall umklammerte das Podium mit eisernem Griff, weil sie wusste, dass Harry Potters ansteckendes Chaos irgendwie den Sprechenden Hut selbst infiziert hatte und der Hut im Begriff war, zu verlangen, dass ein ganzes neues Haus des Verderbens geschaffen werden sollte, nur um Harry Potter unterzubringen oder so, und _Dumbledore würde sie dazu zwingen_... ).
 
 Unter der Hutkrempe erstarb das leise Lachen. Harry fühlte sich aus irgendeinem Grund auch traurig. Nein, nicht Gryffindor.
 
@@ -264,22 +264,24 @@ Irgendwie, auf eine für Harry völlig unverständliche Weise, bekam er den nonv
 
 {\an8}Zu s-s-langsam -_.
 
-_"Oh, und du hast ganz vergessen, die Geheimnisse der verlorenen Magie zu verlangen, die mich erschaffen hat. Und es waren auch so wunderbare, wichtige Geheimnisse. "_.
+_"Oh, und du hast ganz vergessen, die Geheimnisse der verlorenen Magie zu verlangen, die mich erschaffen hat. Und es waren auch so wunderbare, wichtige Geheimnisse."_
 
-{\an8}Du schlauer kleiner BASTARD -_.
+_Du schlauer kleiner BASTARD -_
 
-_"Du hast es verdient, und das hier auch. "_.
+_"Du hast es verdient, und das hier auch."_
 
 Harry sah es kommen, als es bereits zu spät war.
 
 Die erschrockene Stille im Saal wurde durch ein einziges Wort gebrochen.
 
-"SLYTHERIN!".
+"SLYTHERIN!"
 
 Einige Schüler schrien, so groß war die aufgestaute Spannung. Die Leute erschraken so sehr, dass sie von ihren Bänken fielen. Hagrid keuchte entsetzt auf, McGonagall taumelte am Podium, und Snape ließ die Reste seines schweren silbernen Kelches direkt auf seine Leiste fallen.
 
 Harry saß wie erstarrt da, sein Leben lag in Trümmern, er fühlte sich wie ein absoluter Narr und wünschte sich, er hätte aus anderen Gründen als denen, die er hatte, eine andere Wahl getroffen. Dass er etwas, _irgendetwas_ anders gemacht hätte, bevor es zu spät gewesen wäre, um umzukehren.
 
-Als der erste Schockmoment nachließ und die Leute begannen, auf die Nachricht zu reagieren, sprach der Sprechende Hut erneut:.
+Als der erste Schockmoment nachließ und die Leute begannen, auf die Nachricht zu reagieren, sprach der Sprechende Hut erneut:
 
-"Nur ein Scherz! RAVENCLAW!".
+"Nur ein Scherz! RAVENCLAW!"
+
+→ [Kapitel 11](Kapitel-11.md)

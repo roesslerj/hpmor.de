@@ -1,10 +1,10 @@
-Kapitel 11: Omake-Dateien 1, 2, 3.
+# Kapitel 11: Omake-Dateien 1, 2, 3.
 
 Es lebe der dunkle Lord Rowling.
 
 "Omake" ist ein nicht-kanonisches Extra.
 
-* * *.
+* * *
 
 OMAKE FILES #1: 72 Hours to Victory.
 
@@ -298,3 +298,5 @@ Die erschrockene Stille wurde durch ein einziges Wort gebrochen.
 Am Haupttisch erhob sich Dumbledore, sein Gesicht war verwirrt. "Ja?", wandte er sich an den Hut. "Was ist das?".
 
 "Ich habe nicht mit Ihnen gesprochen", sagte der Hut. "Ich habe Harry Potter an den Ort in Hogwarts sortiert, wo er am meisten hingehört, nämlich in das Büro des Schulleiters -".
+
+→ [Kapitel 12](Kapitel-12.md)
