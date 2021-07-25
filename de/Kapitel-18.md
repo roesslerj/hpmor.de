@@ -747,3 +747,5 @@ Einige Schüler weinten offen. Das war Professor Sprout auch.
 Am Gryffindor-Tisch, wo ein Kuchen mit einundfünfzig unbeleuchteten Kerzen wartete, flüsterte Fred: "Ich glaube, wir sind hier überfordert, George. "
 
 Und von diesem Tag an, egal was Hermine versuchte, jemandem zu erzählen, würde es eine akzeptierte Legende von Hogwarts sein, dass Harry Potter absolut alles mit einem Fingerschnippen geschehen lassen konnte.
+
+→ [Kapitel 19](Kapitel-19.md)

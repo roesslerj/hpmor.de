@@ -589,3 +589,5 @@ Professor Quirrell verbeugte sich. "Danke _dir_, Harry Potter", sagte er, immer 
 "Idiot", sagte Professor Quirrell liebevoll. Die Klasse hat bereits gelacht. "Deine Klassenkameraden können dich nachher unterrichten, oder ich gebe dir Nachhilfe, wenn es nötig ist. Aber _jetzt_ gehst du durch die dritte Tür von links im hinteren Teil der Bühne, wo du ein Bett, eine Auswahl an außergewöhnlich leckeren Snacks und eine extrem leichte Lektüre aus der Hogwarts-Bibliothek findest. Du darfst nichts anderes mitnehmen, insbesondere nicht deine Lehrbücher. Geh jetzt. "
 
 Harry ging.
+
+→ [Kapitel 20](Kapitel-20.md)

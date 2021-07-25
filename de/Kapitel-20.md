@@ -455,3 +455,5 @@ Das schien ein wenig traurig, aber Harry verstand. Dann wurde Harry die Tragweit
 Professor Quirrell nickte, aber er lehnte sich fester auf seinen Schreibtisch.
 
 Harry verabschiedete sich schnell.
+
+→ [Kapitel 21](Kapitel-21.md)
