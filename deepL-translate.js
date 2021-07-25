@@ -30,7 +30,7 @@ function translateChunk(text2Translate) {
 }
 
 function translateParagraphs(paragraph) {
-  const sentences = paragraph.split('.');
+  const sentences = paragraph.replaceAll('Mr.', 'Mr ').split('.');
   const translations = [];
   for (var idx = 0; idx < sentences.length; idx++) {
     const sentence = sentences[idx];
@@ -42,7 +42,9 @@ function translateParagraphs(paragraph) {
     }
     translations.push(translateChunk(sentence.trim() + '.'));
   }
-  return Promise.all(translations).then(values => values.join(' '));
+  return Promise.all(translations)
+    .then(values => values.join(' '))
+    .then(values => values.replaceAll('Mr ', 'Mr. '));
 }
 
 function translateText(text) {
@@ -87,6 +89,7 @@ async function run() {
       .replaceAll('Präfekt', 'Vertrauensschüler')
       .replaceAll('Pouch', 'Beutel')
       .replaceAll('Comed-Tea', 'Seltsaft')
+      .replaceAll('Time-Turner', 'Zeitumkehrer')
       .replaceAll('\{\\an8\}', '_');
     console.log("/n/n/n");
     console.log("Writing translated chapter " + chapter + " into file " + filename + ".");
