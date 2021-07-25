@@ -594,11 +594,11 @@ Harrys Gehirn brauchte einen Moment, um die vertrauten Worte einzuordnen... "Hey
 
 "Sie sind _muggelgeboren_?" fagte Harry schockiert.
 
-"Ich fürchte nicht", sagte Dumbledore und lächelte wieder. "Ich wurde siebzig Jahre vor der Veröffentlichung dieses Buches geboren, liebes Kind. Aber es scheint, dass meine Muggelgeborenen Schüler dazu neigen, in bestimmten Dingen ähnlich zu denken. Ich habe nicht weniger als zwanzig Exemplare von _Der Herr der Ringe_ und drei Sets von Tolkiens gesamten gesammelten Werken angesammelt, und ich schätze jedes einzelne davon." Dumbledore zog seinen Zauberstab, hielt ihn hoch und nahm eine Pose ein. "_Du kannst nicht vorbei!_ Wie sieht das aus?"
+"Ich fürchte nicht", sagte Dumbledore und lächelte wieder. "Ich wurde siebzig Jahre vor der Veröffentlichung dieses Buches geboren, liebes Kind. Aber es scheint, dass meine Muggelgeborenen Schüler dazu neigen, in bestimmten Dingen ähnlich zu denken. Ich habe nicht weniger als zwanzig Exemplare von _Der Herr der Ringe_ und drei Sets von Tolkiens gesammelten Werken angesammelt, und ich schätze jedes einzelne davon." Dumbledore zog seinen Zauberstab, hielt ihn hoch und nahm eine Pose ein. "_Du kannst nicht vorbei!_ Wie sieht das aus?"
 
-"Ah", sagte Harry in etwas, das einer völligen Hirnabschaltung gleichkam, "ich glaube, dir fehlt ein Balrog." Und der rosa Schlafanzug und der zerquetschte Pilzhut waren nicht im Geringsten hilfreich.
+"Ah", sagte Harry in etwas, das einer völligen Hirnabschaltung gleichkam, "ich glaube, Ihnen fehlt ein Balrog." Und der rosa Schlafanzug und der zerquetschte Pilzhut waren nicht im Geringsten hilfreich.
 
-"Ich verstehe. "Dumbledore seufzte und steckte den Zauberstab mürrisch in seinen Gürtel. "Ich fürchte, dass es in letzter Zeit nur wenige Balrogs in meinem Leben gegeben hat. Heutzutage gibt es nur noch Treffen des Wizengamot, bei denen ich verzweifelt versuchen muss, zu verhindern, dass irgendeine Arbeit erledigt wird, und formelle Abendessen, bei denen ausländische Politiker darum wetteifern, wer der hartnäckigste Narr sein kann. Und geheimnisvoll zu sein bei Leuten, Dinge zu wissen, die ich nicht wissen kann, kryptische Aussagen zu machen, die nur im Nachhinein verstanden werden können, und all die anderen kleinen Wege, auf denen sich mächtige Zauberer amüsieren, nachdem sie den Teil des Musters verlassen haben, der es ihnen erlaubt, Helden zu sein. Apropos, Harry, ich habe dir etwas zu geben, was deinem Vater gehörte."
+"Ich verstehe." Dumbledore seufzte und steckte den Zauberstab mürrisch in seinen Gürtel. "Ich fürchte, dass es in letzter Zeit nur wenige Balrogs in meinem Leben gegeben hat. Heutzutage gibt es nur noch Treffen des Wizengamot, bei denen ich verzweifelt versuchen muss, zu verhindern, dass irgendeine Arbeit erledigt wird, und formelle Abendessen, bei denen ausländische Politiker darum wetteifern, wer der hartnäckigste Narr sein kann. Und geheimnisvoll zu sein bei Leuten, Dinge zu wissen, die ich nicht wissen kann, kryptische Aussagen zu machen, die nur im Nachhinein verstanden werden können, und all die anderen kleinen Wege, auf denen sich mächtige Zauberer amüsieren, nachdem sie den Teil des Musters verlassen haben, der es ihnen erlaubt, Helden zu sein. Apropos, Harry, ich habe dir etwas zu geben, was deinem Vater gehörte."
 
 "Wirklich?" sagte Harry. "Donnerwetter, wer hätte das gedacht."
 
@@ -608,43 +608,43 @@ Dumbledore ging zurück zu seinem Schreibtisch und setzte sich hin, wobei er ein
 
 "Das", sagte Dumbledore, "war der Felsen deines Vaters."
 
-UNTRANSLATED: Harry stared at it. UNTRANSLATED: It was light gray, discolored, irregularly shaped, sharp-edged, and very much a plain old ordinary large rock. UNTRANSLATED: Dumbledore had deposited it so that it rested on the widest available cross-section, but it still wobbled unstably on his desk.
+Harry starrte ihn an. Es war ein hellgrauer, ungleichmäßig gefärbter, unregelmäßig geformter, scharfkantiger aber sonst ziemlich gewöhnlicher großer Fels.
 
-Harry sah auf. "Das ist doch ein Scherz, oder?".
+Harry sah auf. "Das ist doch ein Scherz, oder?"
 
 "Ist es nicht", sagte Dumbledore kopfschüttelnd und mit sehr ernstem Blick. "Ich habe dies aus den Ruinen von James und Lilys Haus in Godric's Hollow mitgenommen, wo ich auch dich gefunden habe; und ich habe es von damals bis heute aufbewahrt, für den Tag, an dem ich es dir geben könnte."
 
-In der Mischung aus Hypothesen, die als Harrys Modell der Welt diente, stieg die Wahrscheinlichkeit von Dumbledores Wahnsinn rapide an. Aber es _wurde_ immer noch eine beträchtliche Menge an Wahrscheinlichkeit auf andere Alternativen verteilt... UNTRANSLATED: "Um, is it a _magical_ rock?".
+In der Mischung aus Hypothesen, die als Harrys Modell der Welt diente, stieg die Wahrscheinlichkeit von Dumbledores Wahnsinn rapide an. Aber es _wurde_ immer noch eine beträchtliche Menge an Wahrscheinlichkeit auf andere Alternativen verteilt... "Ähm, ist es ein _magischer_ Felsen?"
 
-"Nicht, soweit ich weiß", sagte Dumbledore. "Aber ich rate dir mit der größtmöglichen Stringenz, es immer dicht an deiner Person zu tragen."
+"Soweit ich weiß nicht.", sagte Dumbledore. "Aber ich rate dir mit der größtmöglichen Sorgfalt, ihn immer dicht bei Dir zu tragen."
 
-Na gut. UNTRANSLATED: Dumbledore was _probably_ insane but if he _wasn't_... Nun, es wäre einfach zu _peinlich_, in Schwierigkeiten zu geraten, wenn man den Rat des undurchschaubaren alten Zauberers ignoriert. Das musste wie Platz 4 auf der Liste der Top 100 Offensichtlichen Versagensarten sein.
+Na gut. Dumbledore war _vermutlich_ verrückt, aber was _wenn nicht_... Nun, es wäre einfach zu _peinlich_, in Schwierigkeiten zu geraten, wenn man den Rat des undurchschaubaren alten Zauberers ignoriert. Das musste wie Platz 4 auf der Liste der Top 100 Offensichtlichen Versagensarten sein.
 
-Harry trat vor und legte seine Hände auf den Stein, um einen Winkel zu finden, in dem er ihn anheben konnte, ohne sich zu schneiden. "Ich stecke sie dann in meinen Beutel."
+Harry trat vor und legte seine Hände auf den Stein, um einen Winkel zu finden, in dem er ihn anheben konnte, ohne sich zu schneiden. "Ich stecke ihn dann in meinen Beutel."
 
-Dumbledore runzelte die Stirn. "Das ist vielleicht nicht nah genug an deiner Person. Und was ist, wenn dein Mokeskin-Beutel verloren geht oder gestohlen wird?".
+Dumbledore runzelte die Stirn. "Das ist vielleicht nicht nah genug an deiner Person. Und was ist, wenn dein Eselsfell-Beutel verloren geht oder gestohlen wird?"
 
-"Denkst du, ich sollte einfach einen großen Stein überall mit hinnehmen?".
+"Denken Sie, ich sollte einfach einen großen Felsen überall mit hinnehmen?"
 
 Dumbledore warf Harry einen ernsten Blick zu. "Das könnte sich als klug erweisen."
 
-"Ah... " sagte Harry. Es sah ziemlich schwer aus. "Ich würde denken, dass die anderen Schüler dazu neigen, mir Fragen zu stellen."
+"Ah..." sagte Harry. Es sah ziemlich schwer aus. "Ich würde denken, dass die anderen Schüler dazu neigen werden, mir dazu Fragen zu stellen."
 
-"Sag ihnen, dass ich es dir befohlen habe", sagte Dumbledore. "Niemand wird das in Frage stellen, da sie alle denken, dass ich verrückt bin. " Sein Gesicht war immer noch vollkommen ernst.
+"Sag ihnen, dass ich es dir befohlen habe", sagte Dumbledore. "Niemand wird das in Frage stellen, da sie alle denken, dass ich verrückt bin." Sein Gesicht war immer noch vollkommen ernst.
 
-"Äh, um ehrlich zu sein, wenn du herumläufst und deinen Schülern befiehlst, große Steine zu tragen, kann ich irgendwie verstehen, warum die Leute das denken."
+"Äh, um ehrlich zu sein, wenn Sie herumlaufen und ihren Schülern befehlen, große Steine durch die Gegend zu tragen, kann ich irgendwie verstehen, warum die Leute das denken."
 
-"Ah, Harry", sagte Dumbledore. Der alte Zauberer machte eine Geste, eine Handbewegung, die all die mysteriösen Instrumente im Raum zu erfassen schien. "Wenn wir jung sind, glauben wir, dass wir alles wissen, und so glauben wir, dass wenn wir keine Erklärung für etwas sehen, dann gibt es auch keine Erklärung. Wenn wir älter sind, erkennen wir, dass das ganze Universum nach einem Rhythmus und einem Grund funktioniert, auch wenn wir es selbst nicht wissen. Es ist nur unsere eigene Unwissenheit, die uns als Irrsinn erscheint."
+"Ah, Harry", sagte Dumbledore. Der alte Zauberer machte eine Geste, eine Handbewegung, die all die mysteriösen Instrumente im Raum zu erfassen schien. "Wenn wir jung sind, glauben wir, dass wir alles wissen, und so glauben wir, dass wenn wir keine Erklärung für etwas sehen, dann gibt es auch keine Erklärung. Wenn wir älter sind, erkennen wir, dass das ganze Universum nach einem Rhythmus und einer Musik funktioniert, auch wenn wir es selbst nicht wissen. Es ist nur unsere eigene Unwissenheit, die uns als Irrsinn erscheint."
 
 "Die Realität ist immer gesetzmäßig", sagte Harry, "auch wenn wir das Gesetz nicht kennen."
 
 "Ganz genau, Harry", sagte Dumbledore. "Dies zu verstehen - und ich sehe, dass du es _verstehst_ - ist die Essenz der Weisheit."
 
-"Also... _Warum_ muss ich genau diesen Stein tragen?".
+"Also... _Warum_ muss ich genau diesen Stein bei mir tragen?"
 
-"Mir fällt eigentlich kein Grund ein", sagte Dumbledore.
+"Mir fällt eigentlich kein Grund ein.", sagte Dumbledore.
 
-"... kannst du nicht."
+"Ihnen fällt kein Grund ein."
 
 Dumbledore nickte. "Aber nur weil mir kein Grund einfällt, heißt das nicht, dass es _keinen_ Grund gibt."
 
@@ -654,31 +654,31 @@ Die Instrumente tickten weiter.
 
 "Ist es nicht?", sagte der alte Zauberer und sah überrascht und enttäuscht aus.
 
-Harry hatte das Gefühl, dass dieses Gespräch nicht zu seinen Gunsten verlaufen würde, aber er machte trotzdem weiter. "Nein. Ich weiß nicht einmal, ob dieser Trugschluss einen offiziellen Namen hat, aber wenn ich mir selbst einen ausdenken müsste, dann wäre es "Privilegierung der Hypothese" oder so ähnlich. Wie kann ich das formell ausdrücken... um... Angenommen du hast eine Million Kisten und nur eine der Kisten enthält einen Diamanten. Und du hattest eine Kiste voller Diamanten-Detektoren, und jeder Diamanten-Detektor ging immer los, wenn ein Diamant vorhanden war, und ging die Hälfte der Zeit auf Kisten los, die keinen Diamanten hatten. Wenn du zwanzig Detektoren über alle Boxen laufen lässt, hast du im Durchschnitt einen falschen Kandidaten und einen wahren Kandidaten übrig. Und dann bräuchte es nur noch ein oder zwei weitere Detektoren, bis du den einen wahren Kandidaten übrig hättest. Der Punkt ist, dass, wenn es viele mögliche Antworten gibt, _die meisten_ der Beweise, die du brauchst, nur dazu dienen, die wahre Hypothese aus Millionen von Möglichkeiten zu _finden_ - und sie dir überhaupt erst zur Kenntnis zu bringen. Die Menge an Beweisen, die du brauchst, um zwischen zwei oder drei plausiblen Kandidaten zu entscheiden, ist im Vergleich dazu viel kleiner. Wenn du also einfach ohne Beweise vorpreschst und eine bestimmte Möglichkeit in den Mittelpunkt deiner Aufmerksamkeit rückst, überspringst du den Großteil der Arbeit. Du lebst zum Beispiel in einer Millionenstadt, in der es einen Mord gibt, und ein Detektiv sagt: "Nun, wir haben keinerlei Beweise, also haben wir die Möglichkeit in Betracht gezogen, dass Mortimer Snodgrass es getan hat?".
+Harry hatte das Gefühl, dass dieses Gespräch nicht zu seinen Gunsten verlaufen würde, aber er machte trotzdem weiter. "Nein. Ich weiß nicht einmal, ob dieser Trugschluss einen offiziellen Namen hat, aber wenn ich mir selbst einen ausdenken müsste, dann wäre es "Bevorzugung der Hypothese" oder so ähnlich. Wie kann ich das formell ausdrücken... um... Angenommen man hat eine Million Kisten und nur eine der Kisten enthält einen Diamanten. Und man hätte eine Kiste voller Diamanten-Detektoren, und jeder Diamanten-Detektor ging immer los, wenn ein Diamant vorhanden ist, und ging die Hälfte der Zeit auf Kisten los, die keinen Diamanten hatten. Wenn man zwanzig Detektoren über alle Boxen laufen lässt, hat man im Durchschnitt einen falschen Kandidaten und einen wahren Kandidaten übrig. Und dann bräuchte es nur noch ein oder zwei weitere Detektoren, bis man den einen wahren Kandidaten übrig hätte. Der Punkt ist, dass, wenn es viele mögliche Antworten gibt, _die meisten_ der Beweise, die man braucht, nur dazu dienen, die wahre Hypothese aus Millionen von Möglichkeiten zu _finden_ - und sie überhaupt erst zur Kenntnis zu bringen. Die Menge an Beweisen, die man braucht, um zwischen zwei oder drei möglichen Kandidaten zu entscheiden, ist im Vergleich dazu viel kleiner. Wenn man also einfach ohne Beweise vorpreschst und eine bestimmte Möglichkeit in den Mittelpunkt seiner Aufmerksamkeit rückt, überspringst man den Großteil der Arbeit. Man lebt zum Beispiel in einer Millionenstadt, in der es einen Mord gibt, und ein Detektiv sagt: "Nun, wir haben keinerlei Beweise, also können wir die Möglichkeit in Betracht ziehen, dass Mortimer Snodgrass es getan hat?"
 
 "Hat er?", fragte Dumbledore.
 
-"Nein", sagte Harry. "Aber später stellt sich heraus, dass der Mörder schwarzes Haar hatte, und Mortimer hat schwarzes Haar, also sagen alle, ah, sieht aus, als ob Mortimer es doch getan hat. Es ist also unfair gegenüber Mortimer, dass die Polizei auf ihn aufmerksam macht, ohne bereits gute Gründe zu haben, ihn zu verdächtigen. Wenn es viele Möglichkeiten gibt, besteht die meiste Arbeit darin, die wahre Antwort zu _finden_ - ihr Aufmerksamkeit zu schenken. Du brauchst keine _Beweise_ oder die Art von offiziellen Beweisen, die Wissenschaftler oder Gerichte verlangen, aber du brauchst eine Art _Hinweis_, und dieser Hinweis muss diese spezielle Möglichkeit von den Millionen anderen unterscheiden. Ansonsten kannst du die richtige Antwort nicht einfach aus dem Nichts herauszupfen. Du kannst nicht einmal eine Möglichkeit aus dem Hut zaubern, über die es sich lohnt nachzudenken. Und es muss eine Million anderer Dinge geben, die ich tun könnte, außer den Stein meines Vaters herumzutragen. Nur weil ich unwissend über das Universum bin, heißt das nicht, dass ich unsicher bin, wie ich in der Gegenwart meiner Ungewissheit argumentieren soll. Die Gesetze für das Denken mit Wahrscheinlichkeiten sind nicht weniger eisern als die Gesetze, die die altmodische Logik regieren, und was du gerade getan hast, ist _nicht erlaubt. _" Harry hielt inne. "_Es sei denn_, du hast einen _Hinweis_, den du nicht erwähnst."
+"Nein", sagte Harry. "Aber später stellt sich heraus, dass der Mörder schwarzes Haar hatte, und Mortimer hat schwarzes Haar, also sagen alle, ah, sieht aus, als ob Mortimer es doch getan hat. Es ist also unfair gegenüber Mortimer, dass die Polizei auf ihn aufmerksam macht, ohne bereits gute Gründe zu haben, ihn zu verdächtigen. Wenn es viele Möglichkeiten gibt, besteht die meiste Arbeit darin, die wahre Antwort zu _finden_ - ihr Aufmerksamkeit zu schenken. Man braucht keine _Beweise_ oder die Art von offiziellen Beweisen, die Wissenschaftler oder Gerichte verlangen, aber man braucht eine Art _Hinweis_, und dieser Hinweis muss diese spezielle Möglichkeit von den Millionen anderen unterscheiden. Ansonsten kann man die richtige Antwort nicht einfach aus dem Nichts herauszupfen. Man kann nicht einmal eine Möglichkeit aus dem Hut zaubern, über die es sich lohnt nachzudenken. Und es muss eine Million anderer Dinge geben, die ich tun könnte, außer den Stein meines Vaters herumzutragen. Nur weil ich unwissend über das Universum bin, heißt das nicht, dass ich unsicher bin, wie ich in der Gegenwart meiner Ungewissheit argumentieren soll. Die Gesetze für Wahrscheinlichkeiten sind nicht weniger eisern als die Gesetze, die die altmodische Logik regieren, und was Sie gerade getan haben, ist _nicht erlaubt_." Harry hielt inne. "_Es sei denn_, Sie haben einen _Hinweis_, den Sie nicht erwähnt haben."
 
-"Ah", sagte Dumbledore. Er tippte sich an die Wange und sah nachdenklich aus. "Ein interessantes Argument, sicherlich, aber bricht es nicht an dem Punkt zusammen, an dem du eine Analogie zwischen einer Million potenzieller Mörder, von denen nur einer den Mord begangen hat, und dem Ergreifen einer von vielen möglichen Handlungsoptionen herstellst, wenn viele mögliche Handlungsoptionen alle weise sein können? Ich behaupte nicht, dass das Tragen des Steins deines Vaters die bestmögliche Handlungsweise ist, sondern nur, dass es klüger ist, es zu tun als nicht."
+"Ah", sagte Dumbledore. Er tippte sich an die Wange und sah nachdenklich aus. "Ein interessantes Argument, sicherlich, aber bricht es nicht an dem Punkt zusammen, an dem du eine Analogie zwischen einer Million potenzieller Mörder, von denen nur einer den Mord begangen hat, und dem Ergreifen einer von vielen möglichen Handlungsoptionen herstellst, wenn viele mögliche Handlungsoptionen alle weise sein können? Ich behaupte nicht, dass das Tragen des Felsens deines Vaters die bestmögliche Handlungsweise ist, sondern nur, dass es klüger ist, es zu tun als es nicht zu tun."
 
-Dumbledore griff erneut in dieselbe Schreibtischschublade, auf die er vorhin zugegriffen hatte, diesmal schien er darin herumzuwühlen - zumindest schien sich sein Arm zu bewegen. "Ich möchte anmerken", sagte Dumbledore, während Harry noch überlegte, wie er auf diese völlig unerwartete Erwiderung antworten sollte, "dass es ein weit verbreiteter Irrglaube der Ravenclaws ist, dass alle klugen Kinder dorthin sortiert werden und keine für andere Häuser übrig bleiben. Das ist nicht so. In Ravenclaw sortiert zu sein, zeigt, dass du von deinem Wunsch, Dinge zu wissen, angetrieben wirst, was keineswegs dieselbe Eigenschaft ist wie intelligent zu sein. " Der Zauberer lächelte, als er sich über die Schublade beugte. "Nichtsdestotrotz _scheinst_ du ziemlich intelligent zu sein. Weniger wie ein gewöhnlicher junger Held und mehr wie ein junger mysteriöser alter Zauberer. Ich denke, dass ich bei dir vielleicht den falschen Ansatz gewählt habe, Harry, und dass du vielleicht in der Lage bist, Dinge zu verstehen, die nur wenige andere begreifen können. Also werde ich wagemutig sein und dir ein gewisses _anderes_ Erbstück anbieten."
+Dumbledore griff erneut in dieselbe Schreibtischschublade, auf die er vorhin zugegriffen hatte, diesmal schien er darin herumzuwühlen - zumindest schien sich sein Arm zu bewegen. "Ich möchte anmerken", sagte Dumbledore, während Harry noch überlegte, wie er auf diese völlig unerwartete Erwiderung antworten sollte, "dass es ein weit verbreiteter Irrglaube der Ravenclaws ist, dass alle klugen Kinder dorthin sortiert werden und keine für andere Häuser übrig bleiben. Das ist nicht so. In Ravenclaw sortiert zu sein, zeigt, dass du von deinem Wunsch, Dinge zu wissen, angetrieben wirst, was keineswegs dieselbe Eigenschaft ist wie intelligent zu sein." Der Zauberer lächelte, als er sich über die Schublade beugte. "Nichtsdestotrotz _scheinst_ du ziemlich intelligent zu sein. Weniger wie ein gewöhnlicher junger Held und mehr wie ein junger mysteriöser alter Zauberer. Ich denke, dass ich bei dir vielleicht den falschen Ansatz gewählt habe, Harry, und dass du vielleicht in der Lage bist, Dinge zu verstehen, die nur wenige andere begreifen können. Also werde ich wagemutig sein und dir ein gewisses _anderes_ Erbstück anbieten."
 
-"Du meinst doch nicht etwa... ", keuchte Harry. "Mein Vater... _einen anderen Felsen besitzt?_"
+"Sie meinen doch nicht etwa... ", keuchte Harry. "Mein Vater... _hatte noch einen anderen Felsen_?"
 
-"Entschuldigen Sie", sagte Dumbledore, "ich _bin_ immer noch älter und geheimnisvoller als Sie und wenn es irgendwelche Enthüllungen zu machen gibt, dann werde _ich_ die Enthüllung machen, danke... oh, wo _ist_ das Ding!" Dumbledore griff weiter in die Schreibtischschublade, und noch weiter. Sein Kopf und seine Schultern und sein ganzer Oberkörper verschwanden darin, bis nur noch seine Hüften und Beine herausschauten, als ob die Schreibtischschublade ihn fressen würde.
+"Entschuldige", sagte Dumbledore, "ich _bin_ immer noch älter und geheimnisvoller als Du und wenn es irgendwelche Enthüllungen zu machen gibt, dann werde _ich_ die Enthüllung machen, danke... oh, wo _ist_ das Ding!" Dumbledore griff weiter in die Schreibtischschublade, und noch weiter. Sein Kopf und seine Schultern und sein ganzer Oberkörper verschwanden darin, bis nur noch seine Hüften und Beine herausschauten, als ob die Schreibtischschublade ihn fressen würde.
 
 Harry konnte nicht anders, als sich zu fragen, wie viel Zeug da drin war und wie das komplette Inventar aussehen würde.
 
-Schließlich erhob sich Dumbledore wieder aus der Schublade, in der Hand das Ziel seiner Suche, das er neben dem Stein auf dem Schreibtisch ablegte.
+Schließlich erhob sich Dumbledore wieder aus der Schublade, in der Hand das Ziel seiner Suche, das er neben den Stein auf dem Schreibtisch ablegte.
 
-Es war ein gebrauchtes, ausgefranstes und abgenutztes Lehrbuch: _Zaubertränke für Fortgeschrittene_ von Libatius Borretsch. Auf dem Cover war ein Bild einer rauchenden Phiole.
+Es war ein gebrauchtes, ausgefranstes und abgenutztes Lehrbuch: _Zaubertränke für Fortgeschrittene_ von Libatius Borretsch. Auf dem Einband war ein Bild einer rauchenden Phiole.
 
 "Das", sagte Dumbledore, "war das Zaubertrankbuch deiner Mutter aus dem fünften Jahr."
 
-"Die ich immer bei mir tragen soll", sagte Harry.
+"Das ich immer bei mir tragen sollte", sagte Harry.
 
-"Die ein schreckliches Geheimnis birgt". Ein Geheimnis, dessen Enthüllung sich als so verhängnisvoll erweisen könnte, dass ich dich bitten muss zu schwören - und ich verlange, dass du es ernsthaft schwörst, Harry, was auch immer du von all dem denken magst - niemals irgendjemandem oder irgendetwas anderes zu erzählen."
+"Das ein schreckliches Geheimnis birgt. Ein Geheimnis, dessen Enthüllung sich als so verhängnisvoll erweisen könnte, dass ich dich bitten muss zu schwören - und ich verlange, dass du es ernsthaft schwörst, Harry, was auch immer du von all dem denken magst - niemals irgendjemandem oder irgendetwas anderes zu erzählen."
 
 Harry betrachtete das Zaubertränke-Lehrbuch seiner Mutter aus dem fünften Jahr, das anscheinend ein schreckliches Geheimnis barg.
 
@@ -688,19 +688,19 @@ Und...
 
 "Ich fühle mich durstig", sagte Harry, "und das ist ganz und gar kein gutes Zeichen."
 
-Dumbledore versäumte es völlig, Fragen zu dieser kryptischen Aussage zu stellen. "_Du schwörst, Harry?", fragte Dumbledore. Seine Augen blickten aufmerksam in die von Harry. "Anders kann ich es dir nicht sagen."
+Dumbledore versäumte es völlig, Fragen zu dieser kryptischen Aussage zu stellen. "_Schwörst_ Du, Harry?", fragte Dumbledore. Seine Augen blickten aufmerksam in die von Harry. "Anders kann ich es dir nicht sagen."
 
-"Ja", sagte Harry. "Ich schwöre. " Das war das Problem, wenn man ein Ravenclaw war. Du konntest so ein Angebot nicht ablehnen, sonst hätte dich deine Neugierde bei lebendigem Leib aufgefressen, und alle anderen wussten das.
+"Ja", sagte Harry. "Ich schwöre." Das war das Problem, wenn man ein Ravenclaw war. Du konntest so ein Angebot nicht ablehnen, sonst hätte dich deine Neugierde bei lebendigem Leib aufgefressen, und alle anderen wussten das.
 
 "Und ich schwöre im Gegenzug", sagte Dumbledore, "dass das, was ich dir jetzt sage, die Wahrheit ist."
 
-Dumbledore schlug das Buch auf, scheinbar wahllos, und Harry lehnte sich hinein, um zu sehen.
+Dumbledore schlug das Buch auf, scheinbar wahllos, und Harry lehnte sich nach vorne, um zu sehen.
 
-"Siehst du diese Notizen", sagte Dumbledore mit einer Stimme, die so leise war, dass sie fast ein Flüstern war, "die an den Rändern des Buches geschrieben sind?".
+"Siehst du diese Notizen", sagte Dumbledore mit einer Stimme, die so leise war, dass sie fast ein Flüstern war, "die an den Rändern des Buches geschrieben sind?"
 
-Harry blinzelte leicht. Die vergilbten Seiten schienen etwas zu beschreiben, das "Trank der Adlerpracht" genannt wurde. Viele der Zutaten waren Dinge, die Harry überhaupt nicht kannte und deren Namen nicht aus dem Englischen zu stammen schienen. Am Rand war eine handschriftliche Anmerkung gekritzelt, die besagte: _Ich frage mich, was passieren würde, wenn man hier Thestralblut anstelle von Blaubeeren verwenden würde?_ und direkt darunter war eine Antwort in anderer Handschrift: _Du würdest für Wochen krank werden und vielleicht sterben. _.
+Harry blinzelte leicht. Die vergilbten Seiten schienen etwas zu beschreiben, das "Trank der Adlerpracht" genannt wurde. Viele der Zutaten waren Dinge, die Harry überhaupt nicht kannte und deren Namen nicht aus dem Englischen zu stammen schienen. Am Rand war eine handschriftliche Anmerkung gekritzelt, die besagte: _Ich frage mich, was passieren würde, wenn man hier Thestralblut anstelle von Blaubeeren verwenden würde?_ und direkt darunter war eine Antwort in anderer Handschrift: _Du würdest für Wochen krank werden und vielleicht sterben_.
 
-"Ich sehe sie", sagte Harry. "Was ist mit ihnen?".
+"Ich sehe sie", sagte Harry. "Was ist mit ihnen?"
 
 Dumbledore zeigte auf das zweite Gekritzel. "Die in dieser Handschrift", sagte er, immer noch mit dieser tiefen Stimme, "wurden von deiner Mutter geschrieben. Und die in _dieser_ Handschrift", er zeigt mit dem Finger auf das erste Gekritzel, "wurden von mir geschrieben. Ich würde mich unsichtbar machen und in ihren Schlafsaal schleichen, während sie schläft. Lily dachte, eine ihrer Freundinnen würde sie schreiben und sie hatten die tollsten Kämpfe."
 
@@ -708,15 +708,15 @@ Das war genau der Punkt, an dem Harry erkannte, dass der Schulleiter von Hogwart
 
 Dumbledore sah ihn mit einem ernsten Gesichtsausdruck an. "Verstehst du die Tragweite dessen, was ich dir gerade gesagt habe, Harry?".
 
-"Ehhh... " sagte Harry. Seine Stimme schien wie festgeklebt zu sein. "Sorry... I... nicht wirklich..."
+"Ehhh... " sagte Harry. Seine Stimme schien wie festgeklebt zu sein. "Sorry... Ich... nicht wirklich..."
 
-"Tja", sagte Dumbledore und seufzte. "Ich nehme an, deine Klugheit hat also doch Grenzen. Sollen wir alle so tun, als hätte ich nichts gesagt?".
+"Tja", sagte Dumbledore und seufzte. "Ich nehme an, deine Klugheit hat also doch Grenzen. Sollen wir alle so tun, als hätte ich nichts gesagt?"
 
-Harry erhob sich von seinem Stuhl und trug ein starres Lächeln. "Natürlich", sagte Harry. "Weißt du, es ist schon ziemlich spät am Tag und ich bin ein bisschen hungrig, also sollte ich wirklich runter zum Essen gehen" und Harry machte sich auf den Weg zur Tür.
+Harry erhob sich von seinem Stuhl und trug ein starres Lächeln. "Natürlich", sagte Harry. "Wissen Sie, es ist schon ziemlich spät am Tag und ich bin ein bisschen hungrig, also sollte ich wirklich runter zum Essen gehen" und Harry machte sich auf den Weg zur Tür.
 
 Der Türknauf ließ sich überhaupt nicht drehen.
 
-"Du hast mich verwundet, Harry", sagte Dumbledores Stimme in leisen Tönen, die direkt von hinten kamen. "Siehst du nicht wenigstens ein, dass das, was ich dir gesagt habe, ein Zeichen des Vertrauens ist?".
+"Du hast mich verletzt, Harry", sagte Dumbledores Stimme in leisen Tönen, die direkt von hinten kamen. "Siehst du nicht wenigstens ein, dass das, was ich dir gesagt habe, ein Zeichen des Vertrauens ist?"
 
 Harry drehte sich langsam um.
 
@@ -724,29 +724,29 @@ Vor ihm stand ein sehr mächtiger und sehr verrückter Zauberer mit einem langen
 
 Hinter ihm war eine Tür, die im Moment nicht zu funktionieren schien.
 
-Dumbledore sah ziemlich traurig und müde aus, als würde er sich auf einen Zauberstab stützen wollen, den er nicht hatte. "Wirklich", sagte Dumbledore, "du versuchst etwas Neues, anstatt hundertzehn Jahre lang immer dem gleichen Muster zu folgen, und die Leute fangen alle an wegzulaufen. " Der alte Zauberer schüttelte betrübt den Kopf. "Ich hatte mir etwas Besseres von dir erhofft, Harry Potter. Ich hatte gehört, dass deine eigenen Freunde dich auch für verrückt halten. Ich weiß, dass sie sich irren. Wirst du nicht dasselbe von mir glauben?".
+Dumbledore sah ziemlich traurig und müde aus, als würde er sich auf einen Zauberstab stützen wollen, den er nicht hatte. "Wirklich", sagte Dumbledore, "du versuchst etwas Neues, anstatt hundertzehn Jahre lang immer dem gleichen Muster zu folgen, und die Leute fangen alle an wegzulaufen." Der alte Zauberer schüttelte betrübt den Kopf. "Ich hatte mir etwas Besseres von dir erhofft, Harry Potter. Ich hatte gehört, dass deine eigenen Freunde dich auch für verrückt halten. Ich weiß, dass sie sich irren. Wirst du nicht dasselbe von mir glauben?"
 
-"Bitte mach die Tür auf", sagte Harry, seine Stimme zitterte. "Wenn du willst, dass ich dir jemals wieder vertraue, öffne die Tür."
+"Bitte machen Sie die Tür auf", sagte Harry, seine Stimme zitterte. "Wenn Sie wollen, dass ich Ihnen jemals wieder vertraue, öffnen Sie die Tür."
 
 Hinter ihm hörte er, wie sich eine Tür öffnete.
 
-"Es gab noch mehr Dinge, die ich dir sagen wollte", sagte Dumbledore, "und wenn du jetzt gehst, wirst du nicht wissen, was sie waren."
+"Es gibt noch mehr Dinge, die ich dir sagen wollte", sagte Dumbledore, "und wenn du jetzt gehst, wirst du nicht wissen, was sie waren."
 
-Manchmal _hasste_ Harry es absolut, ein Ravenclaw zu sein.
+Manchmal _hasste_ Harry es, ein Ravenclaw zu sein.
 
-_Er hat noch nie einen Schüler verletzt_, sagte Harrys Gryffindor-Seite. Erinnere dich einfach immer daran und du wirst sicher sein, nicht in Panik zu geraten. Du wirst doch nicht weglaufen, nur weil die Dinge interessant werden, oder?_.
+_Er hat noch nie einen Schüler verletzt_, sagte Harrys Gryffindor-Seite. Erinnere dich einfach immer daran und du wirst sicher sein, nicht in Panik zu geraten. Du wirst doch nicht weglaufen, nur weil die Dinge interessant werden, _oder?_
 
-Du kannst den Schulleiter nicht einfach im Stich lassen!", sagte der Hufflepuff-Teil. Was ist, wenn er anfängt, Hauspunkte abzuziehen? Er könnte dir das Leben in der Schule sehr schwer machen, wenn er entscheidet, dass er dich nicht mag!_.
+"Du kannst den Schulleiter nicht einfach im Stich lassen!", sagte der Hufflepuff-Teil von ihm. "Was ist, wenn er anfängt, Hauspunkte abzuziehen? Er könnte dir das Leben in der Schule sehr schwer machen, wenn er entscheidet, dass er dich nicht mag!"
 
-Und ein Teil von ihm, den Harry nicht sonderlich mochte, aber nicht ganz zum Schweigen bringen konnte, dachte über die möglichen Vorteile nach, einer der wenigen Freunde dieses verrückten alten Zauberers zu sein, der zufällig auch noch Schulleiter, Oberster Hexenmeister und Oberster Mugwump war. Und leider schien sein innerer Slytherin viel besser als Draco darin zu sein, Leute auf die dunkle Seite zu ziehen, denn er sagte Dinge wie _Armer Kerl, er sieht aus, als bräuchte er jemanden zum Reden, nicht wahr?_ und _Du würdest doch nicht wollen, dass ein so mächtiger Mann am Ende jemandem vertraut, der weniger tugendhaft ist, oder?_ und _Ich frage mich, was für unglaubliche Geheimnisse Dumbledore dir erzählen könnte, wenn du dich mit ihm anfreundest_ und sogar _Ich wette, er hat eine wirklich interessante Büchersammlung. _.
+Und ein Teil von ihm, den Harry nicht sonderlich mochte, aber nicht ganz zum Schweigen bringen konnte, dachte über die möglichen Vorteile nach, einer der wenigen Freunde dieses verrückten alten Zauberers zu sein, der zufällig auch noch Schulleiter, Oberster Hexenmeister und Oberster Mugwump war. Und leider schien sein innerer Slytherin viel besser als Draco darin zu sein, Leute auf die dunkle Seite zu ziehen, denn er sagte Dinge wie _Armer Kerl, er sieht aus, als bräuchte er jemanden zum Reden, nicht wahr?_ und _Du würdest doch nicht wollen, dass ein so mächtiger Mann am Ende jemandem vertraut, der weniger tugendhaft ist, oder?_ und _Ich frage mich, was für unglaubliche Geheimnisse Dumbledore dir erzählen könnte, wenn du dich mit ihm anfreundest_ und sogar _Ich wette, er hat eine wirklich interessante Büchersammlung._
 
-Ihr seid alle ein Haufen Verrückter", dachte Harry über die ganze Versammlung, aber er wurde einstimmig von jedem Teil von ihm überstimmt.
+"Ihr seid alle ein Haufen Verrückter", dachte Harry über die ganze Versammlung in seinem Kopf, aber er wurde einstimmig von jedem Teil von ihm überstimmt.
 
-Harry drehte sich um, machte einen Schritt auf die offene Tür zu, griff hinaus und schloss sie bewusst wieder. Es war ein kostenloses Opfer, da er sowieso bleiben würde, Dumbledore konnte seine Bewegungen trotzdem kontrollieren, aber vielleicht würde es Dumbledore beeindrucken.
+Harry drehte sich um, machte einen Schritt auf die offene Tür zu, griff hinaus und schloss sie bewusst wieder. Es war ein einfaches Opfer, da er sowieso bleiben würde, Dumbledore konnte seine Bewegungen trotzdem kontrollieren, aber vielleicht würde es Dumbledore beeindrucken.
 
 Als Harry sich wieder umdrehte, sah er, dass der mächtige, wahnsinnige Zauberer wieder lächelte und freundlich aussah. Das war gut, vielleicht.
 
-"Bitte mach das nicht noch einmal", sagte Harry. "Ich mag es nicht, in der Falle zu sitzen."
+"Bitte machen Sie das nicht noch einmal", sagte Harry. "Ich mag es nicht, in der Falle zu sitzen."
 
 "Das tut mir leid, Harry", sagte Dumbledore in einem Ton, der nach aufrichtiger Entschuldigung klang. "Aber es wäre furchtbar unklug gewesen, dich ohne den Felsen deines Vaters gehen zu lassen."
 
@@ -754,33 +754,33 @@ Als Harry sich wieder umdrehte, sah er, dass der mächtige, wahnsinnige Zauberer
 
 Dumbledore lächelte und nickte.
 
-Harry ging zum Schreibtisch hinüber, drehte seinen Mokassinbeutel vorne an seinem Gürtel um und schaffte es mit einiger Anstrengung, den Stein in seinen elfjährigen Armen hochzuhieven und einzuführen.
+Harry ging zum Schreibtisch hinüber, drehte seinen Eselsfellbeutel vorne an seinem Gürtel um und schaffte es mit einiger Anstrengung, den Stein in seinen elfjährigen Armen hochzuhieven und einzuführen.
 
-Er konnte tatsächlich spüren, wie das Gewicht langsam abnahm, als der Widening Lip Charme den Stein verschlang, und der Rülpser, der darauf folgte, war ziemlich laut und hatte einen deutlich klagenden Klang an sich.
+Er konnte tatsächlich spüren, wie das Gewicht langsam abnahm, als der Beutel den Stein verschlang, und der Rülpser, der darauf folgte, war ziemlich laut und hatte einen deutlich klagenden Klang an sich.
 
 Das Zaubertränke-Lehrbuch seiner Mutter aus dem fünften Jahr (das ein Geheimnis enthielt, das in der Tat ziemlich schrecklich war) folgte kurz darauf.
 
 Und dann machte Harrys innerer Slytherin einen verschlagenen Vorschlag, um sich beim Schulleiter einzuschmeicheln, der leider perfekt auf die Unterstützung der mehrheitlichen Ravenclaw-Fraktion abgestimmt war.
 
-"Also", sagte Harry. "Ähm. Wenn ich schon mal hier bin, könntest du mir nicht eine kleine Führung durch dein Büro geben? Ich bin ein bisschen neugierig, was einige dieser Dinge sind", und das war sein Understatement für den Monat September.
+"Also", sagte Harry. "Ähm. Wenn ich schon mal hier bin, könnten Sie mir nicht eine kleine Führung durch Ihr Büro geben? Ich bin ein bisschen neugierig, was einige dieser Dinge sind", und das war seine Untertreibung für den Monat September.
 
-Dumbledore blickte ihn an und nickte dann mit einem leichten Grinsen. "Ich bin geschmeichelt von deinem Interesse", sagte Dumbledore, "aber ich fürchte, es gibt nicht viel zu sagen. " Dumbledore trat einen Schritt näher an die Wand und deutete auf das Gemälde eines schlafenden Mannes. "Das sind Porträts von vergangenen Schulleitern von Hogwarts. " Er drehte sich um und zeigte auf seinen Schreibtisch. "Das ist mein Schreibtisch. " Er zeigte auf seinen Stuhl. "Das ist mein Stuhl."
+Dumbledore blickte ihn an und nickte dann mit einem leichten Grinsen. "Ich bin geschmeichelt von deinem Interesse", sagte Dumbledore, "aber ich fürchte, es gibt nicht viel zu sagen." Dumbledore trat einen Schritt näher an die Wand und deutete auf das Gemälde eines schlafenden Mannes. "Das sind Porträts von vergangenen Schulleitern von Hogwarts." Er drehte sich um und zeigte auf seinen Schreibtisch. "Das ist mein Schreibtisch." Er zeigte auf seinen Stuhl. "Das ist mein Stuhl."
 
-"Entschuldigung", sagte Harry, "eigentlich habe ich mich über die gewundert. " Harry zeigte auf einen kleinen Würfel, der leise flüsterte: "Blorple... blorple... blorple".
+"Entschuldigung", sagte Harry, "eigentlich habe ich mich über die gewundert." Harry zeigte auf einen kleinen Würfel, der leise flüsterte: "Blorple... blorple... blorple".
 
-"Oh, die kleinen fummeligen Dinge?", sagte Dumbledore. "Sie kamen mit dem Büro des Schulleiters und ich habe absolut keine Ahnung, was die meisten von ihnen tun. Obwohl _dieses_ Zifferblatt mit den acht Zeigern die Anzahl der, nennen wir sie mal Nieser, von linkshändigen Hexen innerhalb der Grenzen Frankreichs zählt, würdest du nicht glauben, wie viel Arbeit es gekostet hat, das festzunageln. Und _das_ mit den goldenen Wibblern ist meine eigene Erfindung und Minerva wird nie und nimmer herausfinden, was es macht."
+"Oh, die kleinen fummeligen Dinge?", sagte Dumbledore. "Sie waren bereits im Büro des Schulleiters und ich habe absolut keine Ahnung, was die meisten von ihnen tun. Obwohl _dieses_ Zifferblatt mit den acht Zeigern die Anzahl der, nennen wir sie mal Nieser, von linkshändigen Hexen innerhalb der Grenzen Frankreichs zählt, würdest du nicht glauben, wie viel Arbeit es gekostet hat, das rauszufinden. Und _das_ mit den goldenen Wibblern ist meine eigene Erfindung und Minerva wird nie und nimmer herausfinden, was es macht."
 
-Dumbledore machte einen Schritt hinüber zur Hutablage, während Harry dies noch verarbeitete. "Hier haben wir natürlich den Sprechenden Hut, ich glaube, ihr beide kennt euch schon. Es sagte mir, dass es unter keinen Umständen mehr auf deinen Kopf gesetzt werden sollte. Du bist erst der vierzehnte Schüler in der Geschichte, über den das gesagt wird, Baba Yaga war eine andere und ich werde dir von den anderen zwölf erzählen, wenn du älter bist. Das ist ein Regenschirm. Dies ist ein weiterer Regenschirm. " Dumbledore machte noch ein paar Schritte und drehte sich um, jetzt breit lächelnd. "Und natürlich wollen die meisten Leute, die in mein Büro kommen, Fawkes sehen."
+Dumbledore machte einen Schritt hinüber zur Hutablage, während Harry dies noch verarbeitete. "Hier haben wir natürlich den Sprechenden Hut, ich glaube, ihr beide kennt euch schon. Es sagte mir, dass er unter keinen Umständen mehr auf deinen Kopf gesetzt werden sollte. Du bist erst der vierzehnte Schüler in der Geschichte, über den das gesagt wird, Baba Yaga war eine andere und ich werde dir von den anderen zwölf erzählen, wenn du älter bist. Das ist ein Regenschirm. Dies ist ein weiterer Regenschirm." Dumbledore machte noch ein paar Schritte und drehte sich um, jetzt breit lächelnd. "Und natürlich wollen die meisten Leute, die in mein Büro kommen, Fawkes sehen."
 
 Dumbledore stand neben dem Vogel auf der goldenen Plattform.
 
-Harry kam rüber, ziemlich verwirrt. "Das ist Fawkes?".
+Harry kam rüber, ziemlich verwirrt. "Das ist Fawkes?"
 
 "Fawkes ist ein Phönix", sagte Dumbledore. "Sehr seltene, sehr mächtige magische Kreaturen."
 
-"Ah... " sagte Harry. Er senkte seinen Kopf und starrte in die winzigen, perlenden schwarzen Augen, die nicht das geringste Zeichen von Kraft oder Intelligenz zeigten.
+"Ah..." sagte Harry. Er senkte seinen Kopf und starrte in die winzigen, perlenden schwarzen Augen, die nicht das geringste Zeichen von Kraft oder Intelligenz zeigten.
 
-"Ahhh... " sagte Harry wieder.
+"Ahhh..." sagte Harry wieder.
 
 Er war sich ziemlich sicher, dass er die Form des Vogels erkannte. Es war ziemlich schwer zu übersehen.
 
@@ -788,17 +788,17 @@ Er war sich ziemlich sicher, dass er die Form des Vogels erkannte. Es war ziemli
 
 _Sag etwas Intelligentes!_ brüllte Harrys Verstand vor sich hin. Stehe nicht einfach da und klinge wie ein schwafelnder Idiot!
 
-_Was zum Teufel soll ich denn sagen?_ schoss Harrys Verstand zurück.
+_Was zum Teufel soll ich denn sagen?_ schrie Harrys Verstand zurück.
 
-_Alles!_.
+_Alles!_ _Irgendwas_
 
-Du meinst, irgendetwas außer "Fawkes ist ein Huhn" -_.
+Du meinst, irgendetwas außer "Fawkes ist ein Huhn"?
 
-_Ja! Alles, nur das nicht!_.
+_Ja! Alles, nur das nicht!_
 
-"Also, ah, was für eine Art von Magie machen Phönixe denn?".
+"Also, ah, was für eine Art von Magie machen Phönixe denn?"
 
-"Ihre Tränen haben die Kraft zu heilen", sagte Dumbledore. "Sie sind Geschöpfe des Feuers und bewegen sich zwischen allen Orten so leicht, wie Feuer an einem Ort erlöschen und an einem anderen entzündet werden kann. Die enorme Belastung ihrer angeborenen Magie lässt ihre Körper schnell altern, und doch sind sie so nah an der Unsterblichkeit wie keine andere Kreatur auf dieser Welt, denn wann immer ihr Körper sie im Stich lässt, verbrennt er in einem Feuerstoß und hinterlässt ein Junges oder manchmal auch ein Ei. " Dumbledore kam näher und inspizierte das Huhn stirnrunzelnd. "Hm... Das sieht ein bisschen spitz aus, würde ich sagen."
+"Ihre Tränen haben die Kraft zu heilen", sagte Dumbledore. "Sie sind Geschöpfe des Feuers und bewegen sich zwischen allen Orten so leicht, wie Feuer an einem Ort erlöschen und an einem anderen entzündet werden kann. Die enorme Belastung ihrer angeborenen Magie lässt ihre Körper schnell altern, und doch sind sie so nah an der Unsterblichkeit wie keine andere Kreatur auf dieser Welt, denn wann immer ihr Körper sie im Stich lässt, verbrennt er in einem Feuerstoß und hinterlässt ein Junges oder manchmal auch ein Ei." Dumbledore kam näher und inspizierte das Huhn stirnrunzelnd. "Hm... Das sieht ein bisschen spitz aus, würde ich sagen."
 
 Als diese Aussage in Harrys Kopf ankam, brannte das Huhn bereits.
 
@@ -806,55 +806,55 @@ Der Schnabel des Huhns öffnete sich, aber es hatte nicht einmal Zeit für ein e
 
 Und dann erlosch das Feuer nur Sekunden nachdem es begonnen hatte und hinterließ einen winzigen, erbärmlichen Haufen Asche auf der goldenen Plattform.
 
-"Schau nicht so entsetzt, Harry!", sagte Dumbledore. "Fawkes ist nicht verletzt worden. " Dumbledores Hand tauchte in eine Tasche, dann durchsuchte dieselbe Hand die Asche und förderte ein kleines gelbliches Ei zutage. "Schau, hier ist ein Ei!".
+"Schau nicht so entsetzt, Harry!", sagte Dumbledore. "Fawkes ist nicht verletzt worden." Dumbledores Hand tauchte in eine Tasche, dann durchsuchte dieselbe Hand die Asche und förderte ein kleines gelbliches Ei zutage. "Schau, hier ist ein Ei!".
 
 "Oh... wow... Erstaunlich..."
 
-"Aber jetzt sollten wir wirklich weitermachen", sagte Dumbledore. Das Ei in der Asche des Huhns zurücklassend, kehrte er zu seinem Thron zurück und setzte sich. "Es ist schließlich fast Zeit für das Abendessen und wir möchten unsere Zeitdreher nicht benutzen müssen."
+"Aber jetzt sollten wir wirklich weitermachen", sagte Dumbledore. Das Ei in der Asche des Huhns zurücklassend, kehrte er zu seinem Thron zurück und setzte sich. "Es ist schließlich fast Zeit für das Abendessen und wir möchten unsere Zeitumkehrer nicht benutzen müssen."
 
-In der Regierung von Harry war ein heftiger Machtkampf im Gange. Slytherin und Hufflepuff hatten die Seiten gewechselt, nachdem sie gesehen hatten, wie der Schulleiter von Hogwarts ein Huhn in Brand setzte.
+Im Kopf von Harry war ein heftiger Machtkampf im Gange. Slytherin und Hufflepuff hatten die Seiten gewechselt, nachdem sie gesehen hatten, wie der Schulleiter von Hogwarts ein Huhn in Brand gesetzt hatte.
 
-UNTRANSLATED: "Yes, things," said Harry's lips. "Und dann das Abendessen."
+"Ja, äh, Dinge," sagten Harry's Lippen. "Und dann das Abendessen."
 
-Du klingst schon wieder wie ein schwafelnder Schwachkopf", bemerkte Harrys innerer Kritiker.
+"Du klingst schon wieder wie ein schwafelnder Schwachkopf", bemerkte Harrys innerer Kritiker.
 
 "Nun", sagte Dumbledore. "Ich fürchte, ich muss dir ein Geständnis machen, Harry. Ein Geständnis und eine Entschuldigung."
 
-"Entschuldigungen sind gut" _das macht doch gar keinen Sinn! Wovon rede ich eigentlich?_.
+"Entschuldigungen sind gut" _das macht doch gar keinen Sinn! Wovon rede ich eigentlich?_
 
 Der alte Zauberer seufzte tief. "Du denkst vielleicht nicht mehr so, nachdem du verstanden hast, was ich zu sagen habe. Ich fürchte, Harry, dass ich dich dein ganzes Leben lang manipuliert habe. Ich war es, der dich in die Obhut deiner bösen Stiefeltern gegeben hat."
 
-"Meine Stiefeltern sind nicht böse!", platzte Harry heraus. "Meine _Eltern,_ meine ich!".
+"Meine Stiefeltern sind nicht böse!", platzte Harry heraus. "Meine _Eltern,_ meine ich!"
 
 "Sind sie nicht?" sagte Dumbledore und sah überrascht und enttäuscht aus. "Nicht einmal ein bisschen verrucht? Das passt nicht in das Muster..."
 
-Harrys innerer Slytherin schrie aus vollem Halse: _SHUT UP YOU IDIOT HE'LL TAKE YOU AWAY FROM THEM!_.
+Harrys innerer Slytherin schrie aus vollem Halse: _SEI RUHIG DU IDIOT! ER WIRD DICH IHNEN WEGNEHMEN!_
 
-"Nein, nein", sagte Harry, die Lippen zu einer grässlichen Grimasse gefroren, "ich wollte nur deine Gefühle schonen, sie sind wirklich sehr böse..."
+"Nein, nein", sagte Harry, die Lippen zu einer grässlichen Grimasse gefroren, "ich wollte nur deine Gefühle schonen, meine Eltern sind wirklich sehr böse..."
 
-"Sind sie das?" Dumbledore lehnte sich vor und sah ihn aufmerksam an. "Was machen die denn?".
+"Sind sie das?" Dumbledore lehnte sich vor und sah ihn aufmerksam an. "Was machen die denn?"
 
-_Sprechen Sie schnell_ "sie, ah, ich muss Geschirr spülen und Probleme waschen und sie lassen mich nicht viele Bücher lesen und."
+_Schnell, sag was_ "sie, ah, ich muss Geschirr spülen und Rasen mähen und sie lassen mich nicht viele Bücher lesen und."
 
-"Ah, gut, das ist gut zu hören", sagte Dumbledore und lehnte sich wieder zurück. Er lächelte auf eine traurige Art und Weise. "Ich entschuldige mich für _das_, also. Wo war ich jetzt? Ah, ja. Es tut mir leid, Harry, dass ich für so gut wie alles Schlechte, das dir je passiert ist, verantwortlich bin. Ich weiß, dass dich das wahrscheinlich sehr wütend machen wird."
+"Ah, gut, das ist gut zu hören", sagte Dumbledore und lehnte sich wieder zurück. Er lächelte auf eine traurige Art und Weise. "Ich entschuldige mich _dafür_, also. Wo war ich jetzt? Ah, ja. Es tut mir leid, Harry, dass ich für so gut wie alles Schlechte, das dir je passiert ist, verantwortlich bin. Ich weiß, dass dich das wahrscheinlich sehr wütend machen wird."
 
-"Ja, ich bin sehr wütend!", sagte Harry. "Grrr!".
+"Ja, ich bin sehr wütend!", sagte Harry. "Grrr!"
 
-Harrys interner Kritiker verlieh ihm prompt den All-Time Award für die schlechteste Schauspielerei in der Geschichte aller Zeiten.
+Harrys interner Kritiker verlieh ihm prompt eine Auszeichnung für die schlechteste Schauspielerei in der Geschichte aller Zeiten.
 
-"Und ich wollte dir nur sagen", sagte Dumbledore, "ich wollte dir so früh wie möglich sagen, falls einem von uns später etwas zustößt, dass es mir aufrichtig leid tut. Für alles, was bereits geschehen ist und alles, was noch geschehen wird."
+"Und ich wollte dir nur sagen", sagte Dumbledore, "ich wollte dir so früh wie möglich sagen, falls einem von uns später etwas zustößt, dass es mir aufrichtig leid tut. Alles, was bereits geschehen ist und alles, was noch geschehen wird."
 
 Feuchte glitzerte in den Augen des alten Zauberers.
 
-"Und ich bin sehr wütend!", sagte Harry. "So wütend, dass ich auf der Stelle gehen möchte, wenn du nicht noch etwas zu sagen hast!".
+"Und ich bin sehr wütend!", sagte Harry. "So wütend, dass ich auf der Stelle gehen möchte, wenn du nicht noch etwas zu sagen hast!"
 
-Geh einfach, bevor er dich in Brand setzt!", schrien Slytherin, Hufflepuff und Gryffindor.
+"Geh einfach, bevor er _dich_ in Brand setzt!", schrien Slytherin, Hufflepuff und Gryffindor in seinem Kopf.
 
-"Ich verstehe", sagte Dumbledore. "Eine letzte Sache noch, Harry. Du darfst _nicht_ die verbotene Tür im Korridor des dritten Stocks versuchen. Es ist unmöglich, dass du durch alle Fallen kommst, und ich möchte nicht hören, dass du beim Versuch verletzt wurdest. Ich bezweifle, dass du auch nur die erste Tür öffnen kannst, da sie verschlossen ist und du den Zauberspruch _Alohomora -_ nicht kennst.
+"Ich verstehe", sagte Dumbledore. "Eine letzte Sache noch, Harry. Du darfst _nicht_ die verbotene Tür im Korridor des dritten Stocks öffnen. Es ist unmöglich, dass du durch alle Fallen kommst, und ich möchte nicht hören, dass du beim Versuch verletzt wurdest. Ich bezweifle, dass du auch nur die erste Tür öffnen kannst, da sie verschlossen ist und du den Zauberspruch _Alohomora Mora_ nicht kennst.
 
 Harry wirbelte herum und raste mit Höchstgeschwindigkeit auf den Ausgang zu, der Türknauf drehte sich angenehm in seiner Hand und dann raste er die Wendeltreppe hinunter, noch während sie sich drehte, seine Füße stolperten fast über sich selbst, in nur einem Moment war er unten und der Wasserspeier ging zur Seite und Harry feuerte wie eine Kanonenkugel aus dem Treppenhaus.
 
-* * *.
+* * *
 
 Harry Potter.
 
@@ -870,41 +870,41 @@ Harry und Professor McGonagall landeten beide auf dem Boden und die Pergamente, 
 
 Es gab eine schreckliche, schreckliche Pause.
 
-"Harry Potter", hauchte Professor McGonagall von dort, wo sie direkt neben Harry auf dem Boden lag. Ihre Stimme wurde fast zu einem Schrei. "_Was hast du im Büro des Schulleiters gemacht?"_.
+"Harry Potter", hauchte Professor McGonagall von dort, wo sie direkt neben Harry auf dem Boden lag. Ihre Stimme wurde fast zu einem Schrei. "_Was hast du im Büro des Schulleiters gemacht?"_
 
 "Nichts!", quietschte Harry.
 
-"Meinten Sie den Verteidigungsprofessor?".
+"Hast Du etwas über den Verteidigungsprofessor gesagt?"
 
-"Nein! Dumbledore rief mich zu sich und gab mir diesen großen Stein und sagte, er gehöre meinem Vater und ich solle ihn überall hin mitnehmen!".
+"Nein! Dumbledore rief mich zu sich und gab mir diesen großen Stein und sagte, er gehöre meinem Vater und ich solle ihn überall hin mitnehmen!"
 
 Es gab eine weitere schreckliche Pause.
 
-"Ich verstehe", sagte Professor McGonagall, ihre Stimme wurde etwas ruhiger. Sie stand auf, bürstete sich ab und blickte auf die verstreuten Pergamente, die sich zu einem ordentlichen Stapel auftürmten und zurück an die Korridorwand huschten, als wollten sie sich vor ihrem Blick verstecken. "Mein Beileid, Herr. Potter, und ich entschuldige mich, dass ich an dir gezweifelt habe."
+"Ich verstehe", sagte Professor McGonagall, ihre Stimme wurde etwas ruhiger. Sie stand auf, bürstete sich ab und blickte auf die verstreuten Pergamente, die sich zu einem ordentlichen Stapel auftürmten und zurück an die Korridorwand huschten, als wollten sie sich vor ihrem Blick verstecken. "Mein Beileid, Mr. Potter, und ich entschuldige mich, dass ich an Ihnen gezweifelt habe."
 
-"Professor McGonagall", sagte Harry. Seine Stimme war schwankend. Er stieß sich vom Boden ab, stand auf und blickte in ihr vertrauenswürdiges, _sanes_ Gesicht. "Professor McGonagall..."
+"Professor McGonagall", sagte Harry. Seine Stimme war unstet. Er stieß sich vom Boden ab, stand auf und blickte in ihr vertrauenswürdiges, _vernünftiges_ Gesicht. "Professor McGonagall..."
 
-"Ja, Herr. Potter?".
+"Ja, Mr. Potter?"
 
-"Meinst du, ich sollte?" sagte Harry mit leiser Stimme. "Den Stein meines Vaters überallhin tragen?".
+"Meinen Sie, ich sollte..." sagte Harry mit leiser Stimme. "den Fels meines Vaters überallhin tragen?"
 
-Professor McGonagall seufzte. "Das ist eine Sache zwischen dir und dem Schulleiter, fürchte ich. " Sie zögerte. "Ich werde sagen, dass es fast nie klug ist, den Schulleiter komplett zu ignorieren. Es tut mir leid, von deinem Dilemma zu hören, Mr. Potter, und wenn es eine Möglichkeit gibt, dass ich dir helfen kann, was auch immer du tun willst."
+Professor McGonagall seufzte. "Das ist eine Sache zwischen Ihnen und dem Schulleiter, fürchte ich." Sie zögerte. "Ich werde sagen, dass es fast nie klug ist, den Schulleiter komplett zu ignorieren. Es tut mir leid, von Ihrem Dilemma zu hören, Mr. Potter, und wenn es eine Möglichkeit gibt, dass ich Ihnen helfen kann, dann sagen sie es mir."
 
-"Ähm", sagte Harry. "Eigentlich habe ich mir gedacht, dass ich, sobald ich weiß wie, den Stein in einen Ring verwandeln und ihn an meinem Finger tragen könnte. Wenn du mir beibringen könntest, wie man eine Verklärung durchhält."
+"Ähm", sagte Harry. "Eigentlich habe ich mir gedacht, dass ich, sobald ich weiß wie, den Fels in einen Ring verwandeln und ihn an meinem Finger tragen könnte. Wenn Sie mir beibringen könnten, wie man eine Verwandlung dauerhaft erhält."
 
-"Es ist gut, dass du mich zuerst gefragt hast", sagte Professor McGonagall und ihr Gesicht wurde ein wenig ernst. "Wenn du die Kontrolle über die Verklärung verlieren würdest, würde die Umkehrung deinen Finger abschneiden und wahrscheinlich deine Hand in zwei Teile reißen. Und in deinem Alter ist selbst ein Ring ein zu großes Ziel, als dass du ihn auf Dauer tragen könntest, ohne dass er deine Magie ernsthaft beeinträchtigt. Aber ich kann einen Ring für dich schmieden lassen, mit einer Fassung für ein Juwel, ein _kleines_ Juwel, in Kontakt mit deiner Haut, und du kannst üben, ein sicheres Subjekt zu tragen, wie einen Marshmallow. Wenn du es einen ganzen Monat lang erfolgreich durchgehalten hast, sogar im Schlaf, werde ich dir erlauben, den Felsen deines Vaters zu verklären... " Professor McGonagalls Stimme verstummte. "Hat der Schulleiter _wirklich_ -"
+"Es ist gut, dass du mich zuerst gefragt hast", sagte Professor McGonagall und ihr Gesicht wurde ein wenig ernst. "Wenn du die Kontrolle über die Verwandlung verlieren würdest, würde die Umkehrung deinen Finger abschneiden und wahrscheinlich deine Hand in zwei Teile reißen. Und in deinem Alter ist selbst ein Ring ein zu großes Ziel, als dass du ihn auf Dauer tragen könntest, ohne dass er deine Magie ernsthaft beeinträchtigt. Aber ich kann einen Ring für dich schmieden lassen, mit einer Fassung für ein Juwel, ein _kleines_ Juwel, in Kontakt mit deiner Haut, und du kannst üben, ein sicheres Subjekt zu tragen, wie einen Marshmallow. Wenn du es einen ganzen Monat lang erfolgreich durchgehalten hast, sogar im Schlaf, dann werde ich dir erlauben, den Felsen deines Vaters zu verwandeln..." Professor McGonagalls Stimme verstummte. "Hat der Schulleiter _wirklich_ -"
 
 "Ja. Ah... um..."
 
-Professor McGonagall seufzte. "Das ist selbst für ihn ein bisschen seltsam. " Sie bückte sich und hob den Stapel der Pergamente auf. "Das tut mir leid, Herr. Potter. Ich entschuldige mich nochmals dafür, dass ich dir misstraut habe. Aber jetzt bin ich selbst an der Reihe, den Schulleiter zu sehen."
+Professor McGonagall seufzte. "Das ist selbst für ihn ein bisschen seltsam." Sie bückte sich und hob den Stapel Pergamente auf. "Das tut mir leid, Mr. Potter. Ich entschuldige mich nochmals dafür, dass ich dir misstraut habe. Aber jetzt bin ich selbst an der Reihe, den Schulleiter zu sehen."
 
 "Ah... viel Glück, denke ich. Er..."
 
-"Danke, Herr. Potter."
+"Danke, Mr. Potter."
 
 "Ähm..."
 
-Professor McGonagall ging zum Wasserspeier hinüber, sprach unhörbar das Passwort und trat hindurch in die sich drehende Wendeltreppe. Sie begann, sich außer Sichtweite zu erheben, und der Wasserspeier startete zurück -.
+Professor McGonagall ging zum Wasserspeier hinüber, sprach unhörbar das Passwort und trat hindurch in die sich drehende Wendeltreppe. Sie begann, sich außer Sichtweite zu erheben, und der Wasserspeier begab sich zurück -.
 
 "_Professor McGonagall der Schulleiter hat ein Huhn angezündet!"_
 
