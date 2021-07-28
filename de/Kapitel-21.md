@@ -1,6 +1,6 @@
 # Kapitel 21: Rationalisierung
 
-Rowling ist derjenige, der Rowlings Job macht.
+Rowling ist diejenige, die Rowlings Job macht.
 
 * * *
 
