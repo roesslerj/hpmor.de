@@ -1,4 +1,4 @@
-# Kapitel 9: Schwärzung des Titels, Teil I.
+# Kapitel 9: Schwärzung des Titels, Teil I
 
 All eure Stützpunkt gehört J. K. Rowling.
 

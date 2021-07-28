@@ -1,4 +1,4 @@
-# Kapitel 8: Positive Voreingenommenheit.
+# Kapitel 8: Positive Voreingenommenheit
 
 Alle diese Welten sind J. K. Rowling's, außer Europa. Versuchen Sie dort keine Fanfics.
 

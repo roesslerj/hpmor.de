@@ -1,4 +1,4 @@
-# Kapitel 11: Omake-Dateien 1, 2, 3.
+# Kapitel 11: Omake-Dateien 1, 2, 3
 
 Es lebe der dunkle Lord Rowling.
 

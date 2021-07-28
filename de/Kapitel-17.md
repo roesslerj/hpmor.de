@@ -1,4 +1,4 @@
-# Kapitel 17: Verortung der Hypothese.
+# Kapitel 17: Verortung der Hypothese
 
 Du warst schon immer J. K. Rowling.
 

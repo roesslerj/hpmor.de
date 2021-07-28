@@ -1,14 +1,14 @@
-Kapitel 15: Gewissenhaftigkeit.
+# Kapitel 15: Gewissenhaftigkeit
 
 Liebe wie du, Rowling.
 
 Der heutige historische Leckerbissen: Die alten Hebräer betrachteten die Grenze eines Tages als Sonnenuntergang und nicht als Sonnenaufgang, deshalb sagten sie "Abend und Morgen" und nicht "Morgen und Abend" (Und wie viele Rezensenten bemerkten, behauptet die moderne jüdische Halacha das Gleiche. ).
 
-* * *.
+* * *
 
-Ich bin mir sicher, dass ich irgendwo die Zeit dafür finden werde. "_
+> _"Ich bin mir sicher, dass ich irgendwo die Zeit dafür finden werde."_
 
-* * *.
+* * *
 
 "_Fryer!_"
 

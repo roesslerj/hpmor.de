@@ -1,4 +1,4 @@
-# Kapitel 21: Rationalisierung.
+# Kapitel 21: Rationalisierung
 
 Rowling ist derjenige, der Rowlings Job macht.
 
@@ -76,7 +76,7 @@ Harry Potter warf ihr einen flammenden Blick zu, aber sie schwebte in einem Heil
 
 "Ist dir klar, was für eine Woche ich hinter mir habe?", fragte Harry Potter. "Jedes geringere Wesen hätte es schwer gehabt, acht Dr. Seuss Bücher!"
 
-"_Du_ bestimmst das Zeitlimit. "
+"_Du_ bestimmst das Zeitlimit."
 
 Harrys Blick aus flammendem Feuer wurde noch heißer. "Ich konnte nicht ahnen, dass ich die ganze Schule vor Professor Snape retten muss oder im Verteidigungsunterricht verprügelt werde, und wenn ich dir erzählen würde, wie ich die Zeit zwischen 17 Uhr und dem Abendessen am Donnerstag verloren habe, würdest du mich für verrückt halten -"
 

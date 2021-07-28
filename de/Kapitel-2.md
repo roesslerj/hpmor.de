@@ -1,4 +1,4 @@
-# Kapitel 2: Alles, was ich glaube, ist falsch.
+# Kapitel 2: Alles, was ich glaube, ist falsch
 
 ```
 #include "stddisclaimer.h"

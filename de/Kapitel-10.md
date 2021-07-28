@@ -1,4 +1,4 @@
-# Kapitel 10: Selbstbewußtsein, Teil II.
+# Kapitel 10: Selbstbewußtsein, Teil II
 
 All eure Stützpunkt gehört immer noch Rowling.
 

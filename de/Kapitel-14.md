@@ -1,4 +1,4 @@
-# Kapitel 14: Das Unbekannte und das Unwissende.
+# Kapitel 14: Das Unbekannte und das Unwissende
 
 Melenkurion abatha! Duroc Minas Mühle J. K. Rowling!
 

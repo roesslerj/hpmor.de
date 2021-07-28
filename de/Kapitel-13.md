@@ -1,4 +1,4 @@
-# Kapitel 13: Die falschen Fragen stellen.
+# Kapitel 13: Die falschen Fragen stellen
 
 Elen sila J. K. Rowling omentielvo.
 

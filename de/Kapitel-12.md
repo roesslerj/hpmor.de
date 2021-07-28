@@ -1,4 +1,4 @@
-# Kapitel 12: Impulskontrolle.
+# Kapitel 12: Impulskontrolle
 
 ph'nglui mglw'nafh J. K. Rowling wgah'nagl fhtagn.
 

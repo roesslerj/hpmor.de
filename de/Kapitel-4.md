@@ -1,4 +1,4 @@
-# Kapitel 4: Die Hypothese des effizienten Marktes.
+# Kapitel 4: Die Hypothese des effizienten Marktes
 
 Haftungsausschluss: J. K. Rowling beobachtet Sie von dort aus, wo sie wartet, auf ewig in der Leere zwischen den Welten.
 

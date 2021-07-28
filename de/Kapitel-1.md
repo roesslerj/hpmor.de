@@ -1,4 +1,4 @@
-# Kapitel 1: Ein Tag mit sehr geringer Wahrscheinlichkeit.
+# Kapitel 1: Ein Tag mit sehr geringer Wahrscheinlichkeit
 
 Haftungsausschluss: J. K. Rowling ist Eigentümerin von Harry Potter, und niemand ist Eigentümer der Methoden der Rationalität.
 

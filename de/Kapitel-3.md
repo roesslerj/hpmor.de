@@ -1,4 +1,4 @@
-# Kapitel 3: Vergleich der Realität mit ihren Alternativen.
+# Kapitel 3: Vergleich der Realität mit ihren Alternativen
 
 Wenn J. K. Rowling Sie nach dieser Geschichte fragt, wissen Sie nichts.
 

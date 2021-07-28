@@ -1,4 +1,4 @@
-# Kapitel 16: Laterales Denken.
+# Kapitel 16: Laterales Denken
 
 Das Tor des Feindes ist Rowling.
 

@@ -1,4 +1,4 @@
-# Kapitel 20: Das Bayes'sche Theorem.
+# Kapitel 20: Das Bayes'sche Theorem
 
 Das, was von der Rowling zerstört werden kann, sollte es auch.
 
