@@ -90,6 +90,9 @@ async function run() {
       .replaceAll('Pouch', 'Beutel')
       .replaceAll('Comed-Tea', 'Seltsaft')
       .replaceAll('Time-Turner', 'Zeitumkehrer')
+      .replaceAll('Zeitdreher', 'Zeitumkehrer')
+      .replaceAll('Dark Lord', 'Dunkler Lord')
+      .replaceAll('Herr ', 'Mr. ')
       .replaceAll('\{\\an8\}', '_');
     console.log("/n/n/n");
     console.log("Writing translated chapter " + chapter + " into file " + filename + ".");
