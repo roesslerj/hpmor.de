@@ -1,0 +1,126 @@
+# Kapitelübersicht
+
+Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier eine List aller Kapitel mit einer Kurzzusammenfassung. Ich habe versucht, dabei nicht den Verlauf der Geschichte zu verraten, aber teilweise ist das unumgänglich. Also sollte man diese Liste besser Nutzen, nachdem man bereits alles gelesen hat, um ein bestimmtes Kapitel wiederzufinden...
+
+- [Kapitel 1](Kapitel-1.md): Harry Potter erhält eine Einladung nach Hogwarts.
+- [Kapitel 2](Kapitel-2.md): Professor McGonagall beweist, dass Magie tatsächlich existiert.
+- [Kapitel 3](Kapitel-3.md): Professor McGonagall und Harry besuchen die Winkelgasse und Harry lernt etwas über seine Vergangenheit.
+- [Kapitel 4](Kapitel-4.md): Professor McGonagall und Harry besuchen die Gringotts Bank.
+- [Kapitel 5](Kapitel-5.md): Harry trifft das erste Mal auf Draco Malfoy.
+- [Kapitel 6](Kapitel-6.md): Harry kauft einen magischen Koffer und einen Eselfellbeutel.
+- [Kapitel 7](Kapitel-7.md): Harry trifft Ron und Draco am Bahnsteig.
+- [Kapitel 8](Kapitel-8.md): Harry trifft Hermine Granger.
+- [Kapitel 9](Kapitel-9.md): Harry Potter sieht die Sortierzeremonie.
+- [Kapitel 10](Kapitel-10.md): Harry und der sprechende Sortierhut.
+- [Kapitel 11](Kapitel-11.md): OMAKE FILES
+- [Kapitel 12](Kapitel-12.md): Professor Quirrell stellt sich vor.
+- [Kapitel 13](Kapitel-13.md): Harry spielt ein sehr merkwürdiges Spiel.
+- [Kapitel 14](Kapitel-14.md): Harry erhält einen Zeitumdreher.
+- [Kapitel 15](Kapitel-15.md): Harry Potter hat seine erste Stunde in Transfiguration.
+- [Kapitel 16](Kapitel-16.md): Professor Quirrell findet heraus, wer der gefährlichste Schüler in Hogwarts ist.
+- [Kapitel 17](Kapitel-17.md): Harry Potter hat seine erste Flugstunde und lernt Dumbledore persönlich kennen.
+- [Kapitel 18](Kapitel-18.md): Harry Potter legt sich mit Professor Snape an.
+- [Kapitel 19](Kapitel-19.md): Professor Quirrell lehrt Harry zu verlieren.
+- [Kapitel 20](Kapitel-20.md): Professor Quirrell und Harry unterhalen sich, und Professor Quirrell gewährt Harry einen Blick auf das Universum.
+- [Kapitel 21](Kapitel-21.md): Harry und Draco treffen sich heimlich.
+- [Kapitel 22](Kapitel-22.md): Harry und Hermine forschen zusammen. Harry trifft sicher wieder mit Draco.
+- [Kapitel 23](Kapitel-23.md): Harry und Draco forschen zusammen.
+- [Kapitel 24](Kapitel-24.md): Harry und Draco versöhnen sich und schmieden Pläne.
+- [Kapitel 25](Kapitel-25.md): Rita Skeeter wird hereingelegt.
+- [Kapitel 26](Kapitel-26.md): Harry und Professor Quirrell treffen sich das erste Mal außerhalb von Hogwarts.
+- [Kapitel 27](Kapitel-27.md): Harry rettet Lesath Lestrange.
+- [Kapitel 28](Kapitel-28.md): Harry lernt etwas, was sonst niemand kann.
+- [Kapitel 29](Kapitel-29.md): 
+- [Kapitel 30](Kapitel-30.md): 
+- [Kapitel 31](Kapitel-31.md): 
+- [Kapitel 32](Kapitel-32.md): 
+- [Kapitel 33](Kapitel-33.md): 
+- [Kapitel 34](Kapitel-34.md): 
+- [Kapitel 35](Kapitel-35.md): 
+- [Kapitel 36](Kapitel-36.md): 
+- [Kapitel 37](Kapitel-37.md): 
+- [Kapitel 38](Kapitel-38.md): 
+- [Kapitel 39](Kapitel-39.md): 
+- [Kapitel 40](Kapitel-40.md): 
+- [Kapitel 41](Kapitel-41.md): 
+- [Kapitel 42](Kapitel-42.md): 
+- [Kapitel 43](Kapitel-43.md): 
+- [Kapitel 44](Kapitel-44.md): 
+- [Kapitel 45](Kapitel-45.md): 
+- [Kapitel 46](Kapitel-46.md): 
+- [Kapitel 47](Kapitel-47.md): 
+- [Kapitel 48](Kapitel-48.md): 
+- [Kapitel 49](Kapitel-49.md): 
+- [Kapitel 50](Kapitel-50.md): 
+- [Kapitel 51](Kapitel-51.md): 
+- [Kapitel 52](Kapitel-52.md): 
+- [Kapitel 53](Kapitel-53.md): 
+- [Kapitel 54](Kapitel-54.md): 
+- [Kapitel 55](Kapitel-55.md): 
+- [Kapitel 56](Kapitel-56.md): 
+- [Kapitel 57](Kapitel-57.md): 
+- [Kapitel 58](Kapitel-58.md): 
+- [Kapitel 59](Kapitel-59.md): 
+- [Kapitel 60](Kapitel-60.md): 
+- [Kapitel 61](Kapitel-61.md): 
+- [Kapitel 62](Kapitel-62.md): 
+- [Kapitel 63](Kapitel-63.md): 
+- [Kapitel 64](Kapitel-64.md): 
+- [Kapitel 65](Kapitel-65.md): 
+- [Kapitel 66](Kapitel-66.md): 
+- [Kapitel 67](Kapitel-67.md): 
+- [Kapitel 68](Kapitel-68.md): 
+- [Kapitel 69](Kapitel-69.md): 
+- [Kapitel 70](Kapitel-70.md): 
+- [Kapitel 71](Kapitel-71.md): 
+- [Kapitel 72](Kapitel-72.md): 
+- [Kapitel 73](Kapitel-73.md): 
+- [Kapitel 74](Kapitel-74.md): 
+- [Kapitel 75](Kapitel-75.md): 
+- [Kapitel 76](Kapitel-76.md): 
+- [Kapitel 77](Kapitel-77.md): 
+- [Kapitel 78](Kapitel-78.md): 
+- [Kapitel 79](Kapitel-79.md): 
+- [Kapitel 80](Kapitel-80.md): 
+- [Kapitel 81](Kapitel-81.md): 
+- [Kapitel 82](Kapitel-82.md): 
+- [Kapitel 83](Kapitel-83.md): 
+- [Kapitel 84](Kapitel-84.md): 
+- [Kapitel 85](Kapitel-85.md): 
+- [Kapitel 86](Kapitel-86.md): 
+- [Kapitel 87](Kapitel-87.md): 
+- [Kapitel 88](Kapitel-88.md): 
+- [Kapitel 89](Kapitel-89.md): 
+- [Kapitel 90](Kapitel-90.md): 
+- [Kapitel 91](Kapitel-91.md): 
+- [Kapitel 92](Kapitel-92.md): 
+- [Kapitel 93](Kapitel-93.md): 
+- [Kapitel 94](Kapitel-94.md): 
+- [Kapitel 95](Kapitel-95.md): 
+- [Kapitel 96](Kapitel-96.md): 
+- [Kapitel 97](Kapitel-97.md): 
+- [Kapitel 98](Kapitel-98.md): 
+- [Kapitel 99](Kapitel-99.md): 
+- [Kapitel 100](Kapitel-100.md): 
+- [Kapitel 101](Kapitel-101.md): 
+- [Kapitel 102](Kapitel-102.md): 
+- [Kapitel 103](Kapitel-103.md): 
+- [Kapitel 104](Kapitel-104.md): 
+- [Kapitel 105](Kapitel-105.md): 
+- [Kapitel 106](Kapitel-106.md): 
+- [Kapitel 107](Kapitel-107.md): 
+- [Kapitel 108](Kapitel-108.md): 
+- [Kapitel 109](Kapitel-109.md): 
+- [Kapitel 110](Kapitel-110.md): 
+- [Kapitel 111](Kapitel-111.md): 
+- [Kapitel 112](Kapitel-112.md): 
+- [Kapitel 113](Kapitel-113.md): 
+- [Kapitel 114](Kapitel-114.md): 
+- [Kapitel 115](Kapitel-115.md): 
+- [Kapitel 116](Kapitel-116.md): 
+- [Kapitel 117](Kapitel-117.md): 
+- [Kapitel 118](Kapitel-118.md): 
+- [Kapitel 119](Kapitel-119.md): 
+- [Kapitel 120](Kapitel-120.md): 
+- [Kapitel 121](Kapitel-121.md): 
+- [Kapitel 122](Kapitel-122.md): 
