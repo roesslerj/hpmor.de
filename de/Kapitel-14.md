@@ -64,7 +64,7 @@ McGonagall hielt inne und war erstaunt. "_Das ist_ wahr."
 
 "Der Sortierhut hat mir Hufflepuff angeboten."
 
-Sie blinzelte ihn an, als könne sie ihren eigenen Ohren nicht trauen. "Hat es _wirklich?_ ".
+Sie blinzelte ihn an, als könne sie ihren eigenen Ohren nicht trauen. "Hat er _wirklich?_".
 
 "Ja."
 

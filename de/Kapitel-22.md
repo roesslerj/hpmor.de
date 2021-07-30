@@ -24,19 +24,19 @@ Es sollte an dieser Stelle erwähnt werden, dass die Fledermäuse, die durch den
 
 Harry fiel es schwer, die Implikationen dieser Aussage zu akzeptieren.
 
-"_Oogely boogely!_" Sagte Hermine wieder.
+"_Oogely boogely!_", sagte Hermine wieder.
 
-Wieder war an der Spitze von Hermines Zauberstab das plötzliche, übergangslose Erscheinen einer Fledermaus zu sehen. Ein Moment, leere Luft. Im nächsten Moment, Fledermaus. Seine Flügel schienen sich bereits in dem Moment zu bewegen, als er erschien.
+Wieder war an der Spitze von Hermines Zauberstab das plötzliche, übergangslose Erscheinen einer Fledermaus zu sehen. Ein Moment, leere Luft. Im nächsten Moment, Fledermaus. Ihre Flügel schienen sich bereits in dem Moment zu bewegen, als sie erschien.
 
-Und es _leuchtete immer noch nicht. _
+Und sie _leuchtete immer noch nicht_.
 
 "Kann ich jetzt aufhören?", fragte Hermine.
 
-"Bist du sicher", sagte Harry durch eine scheinbare Blockade in seiner Kehle, "dass du es mit etwas mehr Übung nicht zum Glühen bringen könntest?" Er verstieß gegen die Versuchsanleitung, die er vorher aufgeschrieben hatte, was eine Sünde war, und er verstieß dagegen, weil ihm die Ergebnisse nicht gefielen, was eine _sterbliche_ Sünde war, für die man in die Wissenschaftshölle kommen konnte, aber das schien sowieso keine Rolle zu spielen.
+"Bist du sicher", sagte Harry durch eine scheinbare Blockade in seiner Kehle, "dass du sie mit etwas mehr Übung nicht zum Leuchten bringen könntest?" Er verstieß gegen die Versuchsanleitung, die er vorher aufgeschrieben hatte, was eine Sünde war, und er verstieß dagegen, weil ihm die Ergebnisse nicht gefielen, was eine _unsterbliche_ Sünde war, für die man in die Wissenschaftshölle kommen konnte, aber das schien sowieso keine Rolle zu spielen.
 
 "Was hast du dieses Mal verändert?" sagte Hermine und klang ein wenig müde.
 
-"Die Dauern der _oo,_ _eh,_ und _ee_ Laute. Es soll 3 zu 2 zu 2 sein, nicht 3 zu 1 zu 1. "
+"Die Dauern der _oo,_ _eh,_ und _ee_ Laute. Es soll 3 zu 2 zu 2 sein, nicht 3 zu 1 zu 1."
 
 "_Oogely boogely!_", sagte Hermine.
 
@@ -44,13 +44,15 @@ Die Fledermaus materialisierte sich mit nur einem Flügel und drehte sich erbär
 
 "Was ist es denn nun wirklich?", fragte Hermine.
 
-"3 zu 2 zu 1. "
+"3 zu 2 zu 1."
 
-"_Oogely boogely!_ "
+"_Oogely boogely!_"
 
 Dieses Mal hatte die Fledermaus überhaupt keine Flügel und fiel mit einem Plopp wie eine tote Maus.
 
-"3 zu 1 zu 2. "
+"3 zu 1 zu 2."
+
+"_Oogely boogely!_"
 
 Und siehe da, die Fledermaus materialisierte sich und flog sofort zur Decke, gesund und in einem hellen Grün leuchtend.
 
@@ -58,21 +60,21 @@ Hermine nickte zufrieden. "Okay, was nun?"
 
 Es gab eine lange Pause.
 
-"_Ernst?_ Du musst _Oogely boogely_ sagen, wobei die Dauer der _oo,_ _eh,_ und _ee_ Laute ein Verhältnis von 3 zu 1 zu 2 haben, sonst leuchtet die Fledermaus nicht? _Warum? Warum? Bei der Liebe zu allem, was heilig ist, warum?_ "
+"_Im Ernst?_ Du musst _Oogely boogely_ sagen, wobei die Dauer der _oo,_ _eh,_ und _ee_ Laute ein Verhältnis von 3 zu 1 zu 2 haben, sonst leuchtet die Fledermaus nicht? _Warum? Warum? Bei der Liebe zu allem, was heilig ist, warum?_"
 
 "Warum nicht?"
 
 "_AAAAAAAAAAAAARRRRRRGHHHH!_"
 
-_Thud. Knall. Knall. UNTRANSLATED: _
+_Donner. Knall. Knall._
 
 Harry hatte eine Weile über die Natur der Magie nachgedacht und dann eine Reihe von Experimenten entworfen, die auf der Prämisse basierten, dass praktisch alles, was Zauberer über Magie glaubten, falsch war.
 
 Du konntest nicht _wirklich_ "Wingardium Leviosa" in genau der richtigen Art und Weise sagen müssen, um etwas schweben zu lassen, denn, komm schon, "Wingardium Leviosa"? Das Universum würde überprüfen, ob du "Wingardium Leviosa" auf die richtige Art und Weise sagst, sonst würde es die Feder nicht schweben lassen...
 
-Nein. Offensichtlich nein, wenn du einmal ernsthaft darüber nachgedacht hast. Jemand, möglicherweise ein Kind im Vorschulalter, auf jeden Fall aber ein englischsprachiger Magieanwender, der dachte, dass "Wingardium Leviosa" ganz fliegend und schwebend klingt, hatte diese Worte ursprünglich gesprochen, als er den Zauber zum ersten Mal sprach. Und erzählte dann allen anderen, dass es notwendig sei.
+Nein. Offensichtlich nein, wenn du einmal ernsthaft darüber nachdachtest. Jemand, möglicherweise ein Kind im Vorschulalter, auf jeden Fall aber ein englischsprachiger Magieanwender, der dachte, dass "Wingardium Leviosa" ganz fliegend und schwebend klingt, hatte diese Worte ursprünglich gesprochen, als er den Zauber zum ersten Mal sprach. Und erzählte dann allen anderen, dass es notwendig sei.
 
-Aber (so hatte Harry argumentiert) es _musste_ nicht so sein, es war nicht in das Universum eingebaut, es war in _dich_ eingebaut.
+Aber (so hatte Harry argumentiert) es _musste_ nicht so sein, es war nicht in das Universum eingebaut, es war in _Dich_ eingebaut.
 
 Es gab eine alte Geschichte, die unter den Wissenschaftlern weitergegeben wurde, ein abschreckendes Märchen, die Geschichte von Blondlot und den N-Strahlen.
 
@@ -108,7 +110,7 @@ Was es _völlig_ plausibel machte, dass in der winzigen Zaubererwelt, in der die
 
 Die Bücher waren voller komplizierter Anweisungen für all die Dinge, die man _exakt richtig_ machen musste, um einen Zauber zu wirken. Und, so hatte Harry vermutet, der Prozess des Befolgens dieser Anweisungen, das Überprüfen, ob du sie richtig befolgst, _hat_ wahrscheinlich etwas bewirkt. Es _zwang dich, dich auf den Zauber zu konzentrieren_ Wenn man dir sagt, dass du einfach mit deinem Zauberstab wedeln und dir etwas wünschen sollst, wird das wahrscheinlich nicht so gut funktionieren. Und wenn du einmal geglaubt hast, dass der Zauber auf eine bestimmte Art und Weise funktioniert, wenn du ihn einmal auf diese Art und Weise geübt hast, wirst du vielleicht nicht mehr in der Lage sein, dich selbst davon zu überzeugen, dass er auf eine _andere_ Art und Weise funktionieren könnte...
 
-... wenn du das einfache aber falsche gemacht hast, und versucht hast, alternative Formen _selbst zu testen. _
+... wenn du das einfache aber falsche gemacht hast, und versucht hast, alternative Formen _selbst zu testen_.
 
 Aber was wäre, wenn du _nicht_ wüsstest, wie der ursprüngliche Zauber ausgesehen hat?
 
@@ -130,11 +132,11 @@ Wenn sie nur sehr vage wusste, was der Zauber bewirken sollte, oder sie sich nur
 
 Harry schlug in diesem Moment buchstäblich seinen Kopf gegen die Backsteinmauer. Nicht schwer. Er wollte sein kostbares Hirn nicht beschädigen. Aber wenn er kein Ventil für seine Frustration hätte, würde er sich spontan entzünden.
 
-_Thud. Knall. Knall. _
+_Donner. Knall. Knall._
 
 Es schien, dass das Universum tatsächlich wollte, dass du 'Wingardium Leviosa' sagst und es wollte, dass du es auf eine bestimmte Art und Weise aussprichst und es kümmerte sich nicht darum, was _du_ dachtest, wie die Aussprache sein sollte, genauso wenig wie es sich darum kümmerte, wie du über die Schwerkraft denkst.
 
-_WHYYYYYYYYYYYYYYYYY?_
+_WARUMMMMMM?_
 
 Das Schlimmste daran war der selbstgefällige, amüsierte Blick auf Hermines Gesicht.
 
@@ -152,15 +154,15 @@ Denn, so hatte Harry gesagt, es gab _keine Möglichkeit_, dass das Universum tat
 
 Hermine hatte darauf hingewiesen, dass dies nicht das war, was in ihren Büchern stand. Hermine hatte gefragt, ob Harry wirklich glaubte, dass er mit elf Jahren und etwas mehr als einem Monat in seiner Hogwarts-Ausbildung schlauer war als all die anderen Zauberer auf der Welt, die anderer Meinung waren als er.
 
-Harry hatte genau die folgenden Worte gesagt:.
+Harry hatte genau die folgenden Worte gesagt:
 
-"Natürlich. "
+"Natürlich."
 
 Nun starrte Harry auf den roten Ziegelstein direkt vor ihm und überlegte, wie hart er sich den Kopf stoßen müsste, um sich eine Gehirnerschütterung zuzuziehen, die die Bildung des Langzeitgedächtnisses beeinträchtigen und ihn daran hindern würde, sich später daran zu erinnern. Hermine lachte nicht, aber er konnte spüren, wie ihre _Absicht zu lachen_ von hinten auf ihn ausstrahlte, wie ein furchtbarer Druck auf seiner Haut, so als ob man wüsste, dass man von einem Serienmörder verfolgt wird, nur _schlimmer_ _
 
 "Sag es", sagte Harry.
 
-"Ich wollte _nicht_", sagte die freundliche Stimme von Hermine Granger. "Es schien nicht nett zu sein. "
+"Ich wollte _nicht_", sagte die freundliche Stimme von Hermine Granger. "Es schien nicht nett zu sein."
 
 "Bring es einfach hinter dich", sagte Harry.
 
@@ -168,17 +170,17 @@ Nun starrte Harry auf den roten Ziegelstein direkt vor ihm und überlegte, wie h
 
 "Danke. Jetzt -"
 
-"Ich habe alle Bücher gelesen, die du mir gegeben hast und ich weiß immer noch nicht, wie ich das nennen soll. Selbstüberschätzung? Planungsirrtum? Super duper Lake Wobegon Effekt? Sie werden es nach dir benennen müssen. Harry Bias. "
+"Ich habe alle Bücher gelesen, die du mir gegeben hast und ich weiß immer noch nicht, wie ich das nennen soll. Selbstüberschätzung? Planungsirrtum? Super duper Wobegon Effekt? Sie werden es nach dir benennen müssen. Harry Bias. "
 
-"Alles _right!_"
+"Alles _richtig!_"
 
-"Aber es _ist_ süß. Das ist so ein Jungen-Ding, das zu tun. "
+"Aber es _ist_ süß. Das ist so ein Jungen-Ding, das zu tun."
 
-"_Fall tot um. _"
+"_Fall tot um._"
 
-"Ach, du sagst die romantischsten Dinge. "
+"Ach, du sagst die romantischsten Dinge."
 
-_Thud. Knall. Knall. _
+_Donner_. Knall. Knall._
 
 "Und wie geht es weiter?", fragte Hermine.
 
@@ -192,9 +194,9 @@ Harry konnte nicht glauben, dass er so dumm gewesen war.
 
 "Lass mich mich korrigieren", sagte Harry. "Ich muss _ein_ neues Experiment entwerfen. Ich sage dir Bescheid, wenn wir es haben und wir machen es und dann entwerfe ich das nächste. Wie klingt das?"
 
-"Es hört sich an, als hätte _jemand_ eine _ganz große Menge an Mühe_ verschwendet. "
+"Es hört sich an, als hätte _jemand_ eine _ganz große Menge an Mühe_ verschwendet."
 
-_Thud. _ Au. Das hatte er etwas härter gemacht, als er es geplant hatte.
+_Donner_. _Au_. Das hatte er etwas härter gemacht, als er es geplant hatte.
 
 "Also", sagte Hermine. Sie lehnte sich in ihrem Stuhl zurück und der selbstgefällige Blick war wieder in ihrem Gesicht. "Was haben wir heute entdeckt?"
 
@@ -220,7 +222,7 @@ Ein unbenutztes Klassenzimmer wird von einem unheimlichen grünen Licht erhellt,
 
 Zwei knabengroße Gestalten in verhüllten grauen Mänteln (keine Masken) waren schweigend eingetreten und setzten sich auf zwei Stühle gegenüber dem gleichen Schreibtisch.
 
-Es war das zweite Treffen der Bayesian Conspiracy.
+Es war das zweite Treffen der Bayesianischen Verschwörung.
 
 Draco Malfoy war sich nicht sicher gewesen, ob er sich darauf freuen sollte oder nicht.
 
@@ -228,13 +230,13 @@ Harry Potter schien, seinem Gesichtsausdruck nach zu urteilen, keine Zweifel an 
 
 Harry Potter sah aus, als ob er bereit wäre, jemanden zu töten.
 
-"Hermine Granger", sagte Harry Potter, gerade als Draco den Mund öffnen wollte. "_Don't ask_ "
+"Hermine Granger", sagte Harry Potter, gerade als Draco den Mund öffnen wollte. "_Frag nicht!_"
 
 Er kann doch nicht zu einem anderen Date gegangen sein, oder?", dachte Draco, aber das ergab keinen Sinn.
 
-"Harry", sagte Draco, "es tut mir leid, aber ich muss das trotzdem fragen, hast du dem Schlammblutmädchen _wirklich_ einen teuren Mokassinbeutel zu ihrem Geburtstag bestellt?"
+"Harry", sagte Draco, "es tut mir leid, aber ich muss das trotzdem fragen, hast du dem Schlammblutmädchen _wirklich_ einen teuren Eselsfellbeutel zu ihrem Geburtstag bestellt?"
 
-"Ja, das habe ich. Du hast natürlich schon herausgefunden, warum. "
+"Ja, das habe ich. Du hast natürlich schon herausgefunden, warum."
 
 Draco griff nach oben und fuhr sich frustriert mit den Fingern durch die Haare, wobei seine Kutte über seinen Handrücken strich. Er war sich nicht ganz sicher, warum, aber jetzt konnte er es nicht mehr sagen. Und Slytherin _wusste_, dass er Harry Potter den Hof machte, er hatte es im Verteidigungsunterricht deutlich genug gemacht. "Harry", sagte Draco, "die Leute wissen, dass ich mit dir befreundet bin, sie wissen natürlich nichts von der Verschwörung, aber sie wissen, dass wir Freunde sind, und es lässt _mich_ schlecht aussehen, wenn du so etwas machst. "
 
@@ -320,9 +322,9 @@ Harry Potter lächelte böse unter seiner Kutte und sagte: "Sag du es mir. "
 
 * * *
 
-Draco hatte von etwas gehört, das man die Sokratische Methode nannte, bei der man durch Fragen lehrte (benannt nach einem antiken Philosophen, der zu klug war, um ein echter Muggel zu sein und daher ein getarnter Reinblutzauberer war). Einer seiner Tutoren hatte die sokratische Lehre sehr oft angewendet. UNTRANSLATED: It had been annoying but effective.
+Draco hatte von etwas gehört, das man die Sokratische Methode nannte, bei der man durch Fragen lehrte (benannt nach einem antiken Philosophen, der zu klug war, um ein echter Muggel zu sein und daher ein getarnter Reinblutzauberer war). Einer seiner Tutoren hatte die sokratische Lehre sehr oft angewendet. Es war nervig, aber effektiv.
 
-UNTRANSLATED: Then there was the Potter Method, which was insane.
+Und dann gab es die Potter Methode, die einfach nur verrückt war.
 
 Um fair zu sein, musste Draco zugeben, dass Harry Potter die sokratische Methode zuerst ausprobiert hatte und sie nicht allzu gut funktioniert hatte.
 
@@ -334,7 +336,7 @@ Harry Potter hatte geantwortet, immer noch mit geradem Gesicht, dass, wenn es ei
 
 Draco hatte versucht, auf die umwerfende Dummheit hinzuweisen, indem er vorschlug, dass der Schlüssel zum Überleben eines Duells darin bestand, Avada Kedavra auf den eigenen Fuß zu werfen und zu verfehlen.
 
-Harry Potter hatte _genickt_
+Harry Potter hatte _genickt_.
 
 Draco hatte den Kopf geschüttelt.
 
@@ -396,19 +398,19 @@ ihr Blut mit Muggelgeborenen und Squibs. UNTRANSLATED: _
 
 Draco blickte auf das Pergament und lächelte, während er über mögliche Ablehnungen nachdachte. Wenn er ein Professor wäre, hätte er den Aufsatz als zu kurz abgelehnt, also -.
 
-UNTRANSLATED: "It's too long, Dr. UNTRANSLATED: Potter," said Dr. Malfoy.
+"Es ist zu lang, Dr. Potter," sagte Dr. Malfoy.
 
-UNTRANSLATED: For a moment there was genuine incredulity on Dr. UNTRANSLATED: Potter's face.
+Für einen Moment war echte Ungläubigkeit auf Dr. Potters Gesicht.
 
-"Ah... UNTRANSLATED: " said Dr. UNTRANSLATED: Potter. UNTRANSLATED: "How about if I get rid of the separate lines for observations and conclusions, and just put in a _therefore_ -"
+"Ah..." sagte Dr. Potter. "Was, wenn ich die separaten Zeilen für Beobachtung und Schlussfolgerung weg lasse, und nur ein _deshalb_ hinschreibe?"
 
-UNTRANSLATED: "Then it'll be too short. UNTRANSLATED: Next!"
+"Dann wäre es zu kurz. UNTRANSLATED: Next!"
 
 UNTRANSLATED: Dr. UNTRANSLATED: Potter trudged off.
 
-"In Ordnung", sagte Harry Potter, "du wirst _zu_ gut darin. UNTRANSLATED: Two more times to practice, and then third time is for real, no interruptions between, I'll just come in straight at you and that time you'll reject the paper based on the actual content, remember, your scientific rivals are watching. "
+"In Ordnung", sagte Harry Potter, "du wirst _zu_ gut darin. UNTRANSLATED: Two more times to practice, and then third time is for real, no interruptions between, I'll just come in straight at you and that time you'll reject the paper based on the actual content, remember, your scientific rivals are watching."
 
-UNTRANSLATED: Dr. Potters nächste Arbeit war in jeder Hinsicht perfekt, ein Wunderwerk seiner Art, musste aber leider abgelehnt werden, weil Dr. Malfoys Tagebuch hatte Probleme mit dem Buchstaben E. Dr. Potter bot an, es ohne diese Worte umzuschreiben, und Dr. Malfoy erklärte, dass es eigentlich eher ein Problem mit den Vokalen war.
+Dr. Potters nächste Arbeit war in jeder Hinsicht perfekt, ein Wunderwerk seiner Art, musste aber leider abgelehnt werden, weil Dr. Malfoys Tagebuch Probleme mit dem Buchstaben E. hatte. Dr. Potter bot an, es ohne diese Worte umzuschreiben, und Dr. Malfoy erklärte, dass es eigentlich eher ein Problem mit den Vokalen war.
 
 Das Papier danach wurde abgelehnt, weil es Dienstag war.
 
@@ -416,7 +418,7 @@ Es war in der Tat ein Samstag.
 
 Dr. Potter versuchte, darauf hinzuweisen und wurde mit "Next!" begrüßt.
 
-(Draco begann zu verstehen, warum Snape seine Macht über Dumbledore ausgenutzt hatte, nur um eine Position zu bekommen, die es ihm erlaubte, schrecklich zu Schülern zu sein. ).
+(Draco begann zu verstehen, warum Snape seine Macht über Dumbledore ausgenutzt hatte, nur um eine Position zu bekommen, die es ihm erlaubte, schrecklich zu Schülern zu sein.)
 
 Und dann -.
 
@@ -573,3 +575,5 @@ Draco nickte entschlossen. Es war alles sehr eilig, aber er hatte schon lange ge
 Bis Draco es geschafft hatte, seinen eigenen Umhang abzunehmen und in seiner Büchertasche zu verstauen, war Harry Potter schon weg.
 
 Draco rannte fast aus der Tür.
+
+→ [Kapitel 23](Kapitel-23.md)

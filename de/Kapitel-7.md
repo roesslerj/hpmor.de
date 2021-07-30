@@ -1,4 +1,4 @@
-# Kapitel 7: Reziprozität.
+# Kapitel 7: Reziprozität
 
 Whoa. UNTRANSLATED: A spokesman for Rowling's literary agent said that Rowling is okay with the existence of fanfiction as long as no one charges for it and everyone's clear that the original copyrights belong to her? That's really cool of her. UNTRANSLATED: So thank you, JKR, and thine is the kingdom!.
 
@@ -673,3 +673,5 @@ _Mein geliebter Sohn:_
 _Ich würde sagen, dass du das Glück hattest, jemanden zu treffen, der das intime Vertrauen unseres Freundes und wertvollen Verbündeten, Severus Snape, genießt. _
 
 Draco starrte den Brief eine Weile an und warf ihn schließlich ins Feuer.
+
+→ [Kapitel 8](Kapitel-8.md)

@@ -1,4 +1,4 @@
-# Kapitel 23: Der Glaube an den Glauben.
+# Kapitel 23: Der Glaube an den Glauben
 
 Jeder will einen Stein, um den er ein Stück Schnur wickeln kann J. K. Rowling.
 
@@ -436,3 +436,5 @@ Und dann wartete Harry. Sekunden vergingen, die sich wie Jahre anfühlten.
 Um 19:07 Uhr öffnete sich die Tür.
 
 Professor Flitwicks puffbärtiges Gesicht sah ziemlich besorgt aus. "Geht es dir gut, Harry?", fragte die piepsige Stimme des Hausoberhauptes von Ravenclaw. "Ich habe eine Nachricht bekommen, dass du hier eingesperrt wurdest -"
+
+→ [Kapitel 24](Kapitel-24.md)

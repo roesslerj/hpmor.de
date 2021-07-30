@@ -1,4 +1,4 @@
-# Kapitel 6: Der Planungsirrtum.
+# Kapitel 6: Der Planungsirrtum
 
 Blah blah Haftungsausschluss blah blah Rowling blah blah Eigentum.
 
@@ -6,41 +6,41 @@ A/N: Der "Aftermath"-Abschnitt dieses Kapitels ist Teil der Geschichte, _nicht_ 
 
 * * *
 
-Du denkst, dein Tag war surreal? Versuch meinen. _
+> _Du denkst, dein Tag war surreal? Probier mal meinen._
 
 * * *
 
 _Einige_ Kinder hätten bis _nach_ ihrem ersten Ausflug in die Winkelgasse gewartet.
 
-"Beutel des Elements 79", sagte Harry und zog seine leere Hand aus dem Eselsfellskin-Beutel.
+"Beutel des Elements 79", sagte Harry und zog seine leere Hand aus dem Eselsfell-Beutel.
 
-Die meisten Kinder hätten zumindest gewartet, um ihre _Zauberstäbe_ zuerst zu bekommen.
+Die meisten Kinder hätten zumindest gewartet, bis sie zuerst ihre _Zauberstäbe_ bekommen hätten.
 
-"Beutel mit _okane,_" sagte Harry. Der schwere Beutel mit Gold tauchte in seiner Hand auf.
+"Beutel mit _Okane_", sagte Harry. Der schwere Beutel mit Gold tauchte in seiner Hand auf.
 
-Harry zog den Beutel heraus und steckte ihn wieder in den Mokassinbeutel. Er nahm seine Hand heraus, steckte sie wieder hinein und sagte: "Beutel mit Token des wirtschaftlichen Austauschs. " Dieses Mal kam seine Hand leer heraus.
+Harry zog den Beutel heraus und steckte ihn wieder in den Eselsfell-Beutel. Er nahm seine Hand heraus, steckte sie wieder hinein und sagte: "Beutel mit Einheiten des wirtschaftlichen Austauschs." Dieses Mal kam seine Hand leer heraus.
 
-"Gib mir die Tasche zurück, die ich gerade reingetan habe. " Der Beutel mit dem Gold kam noch einmal heraus.
+"Gib mir den Beutel zurück, den ich gerade reingetan habe." Der Beutel mit dem Gold kam noch einmal heraus.
 
-Harry James Potter-Evans-Verres hatte mindestens einen magischen Gegenstand in die Hände bekommen. Warum warten?
+Harry James Potter-Evans-Verres hatte einen magischen Gegenstand in die Hände bekommen. Warum warten?
 
-"Professor McGonagall", sagte Harry zu der verwirrten Hexe, die neben ihm schlenderte, "können Sie mir zwei Wörter nennen, ein Wort für Gold und ein Wort für etwas anderes, das kein Geld ist, in einer Sprache, die ich nicht kenne? Aber sag mir nicht, welches welches ist. "
+"Professor McGonagall", sagte Harry zu der verwirrten Hexe, die neben ihm schlenderte, "können Sie mir zwei Wörter nennen, ein Wort für Gold und ein Wort für etwas anderes, das kein Gold ist, in einer Sprache, die ich nicht kenne? Aber sagen Sie mir nicht, welches welches ist."
 
-"_Ahava_ und _zahav,_" sagte Professor McGonagall. "Das ist hebräisch, und das andere Wort bedeutet Liebe. "
+"_Ahava_ und _zahav_", sagte Professor McGonagall. "Das ist hebräisch, und das andere Wort bedeutet Liebe."
 
-"Danke, Professor. Tasche von _ahava. _" Empty.
+"Danke, Professor. Beutel mit _ahava_." Nichts.
 
-"Bag of _zahav. _" Und es tauchte in seiner Hand auf.
+"Beutel mit _zahav_." Und er tauchte in seiner Hand auf.
 
 "Zahav ist Gold?" fragte Harry, und Professor McGonagall nickte.
 
 Harry dachte über seine gesammelten Versuchsdaten nach. Es war nur ein grober und vorläufiger Versuch, aber es war genug, um zumindest eine Schlussfolgerung zu unterstützen:.
 
-"_Aaaaaaarrrgh das macht keinen Sinn!_ "
+"_Aaaaaaarrrgh das macht keinen Sinn!_"
 
 Die Hexe neben ihm hob eine hochgezogene Augenbraue. "Probleme, Mr. Potter?"
 
-"Ich habe gerade jede einzelne Hypothese, die ich hatte, verfälscht! Wie kann es wissen, dass 'Tasche mit 115 Galleonen' okay ist, aber nicht 'Tasche mit 90 plus 25 Galleonen'? Es kann _zählen_, aber es kann nicht _addieren?_ Es kann Substantive verstehen, aber nicht einige Substantivphrasen, die das Gleiche bedeuten? Die Person, die das gemacht hat, spricht wahrscheinlich kein Japanisch und _ich_ spreche kein Hebräisch, also nutzt es _ihr_ Wissen nicht, und es nutzt _mein_ Wissen nicht -" Harry winkte hilflos mit einer Hand. "Die Regeln scheinen _sorta_ konsistent, aber sie _bedeuten_ nichts! Ich werde nicht einmal fragen, wie ein _Beutel_ mit Spracherkennung und natürlichem Sprachverständnis endet, wenn die besten Programmierer für künstliche Intelligenz nach fünfunddreißig Jahren harter Arbeit nicht einmal die schnellsten Supercomputer dazu bringen können", schnappte Harry nach Luft, "aber _was_ geht _vor_?
+"Ich habe gerade jede einzelne Hypothese, die ich hatte, negiert! Wie kann es wissen, dass 'Tasche mit 115 Galleonen' okay ist, aber nicht 'Tasche mit 90 plus 25 Galleonen'? Es kann _zählen_, aber es kann nicht _addieren_? Es kann Substantive verstehen, aber nicht einige Substantivphrasen, die das Gleiche bedeuten? Die Person, die das gemacht hat, spricht wahrscheinlich kein Japanisch und _ich_ spreche kein Hebräisch, also nutzt es _ihr_ Wissen nicht, und es nutzt _mein_ Wissen nicht -" Harry winkte hilflos mit einer Hand. "Die Regeln scheinen _irgendwie_ konsistent, aber sie _bedeuten_ nichts! Ich werde nicht einmal fragen, wie ein _Beutel_ Spracherkennung und natürliches Sprachverständnis hat, wenn die besten Programmierer für künstliche Intelligenz nach fünfunddreißig Jahren harter Arbeit nicht einmal die schnellsten Supercomputer dazu bringen können", schnappte Harry nach Luft, "aber _was_ geht _vor_?
 
 "Magie", sagte Professor McGonagall.
 
@@ -258,7 +258,7 @@ Der Laden war noch genauso, wie sie ihn verlassen hatten. Erkennbare und unerken
 
 "Es tut mir leid", sagte sie, als sie näher kamen, und Harry sprach fast im selben Moment: "Ich entschuldige mich für -"
 
-Sie brachen ab und sahen sich an, und dann lachte die Verkäuferin ein wenig. "Ich wollte nicht, dass du Ärger mit Professor McGonagall bekommst", sagte sie. Ihre Stimme senkte sich verschwörerisch. "Ich hoffe, sie war nicht _zuo_ schrecklich zu dir. "
+Sie brachen ab und sahen sich an, und dann lachte die Verkäuferin ein wenig. "Ich wollte nicht, dass du Ärger mit Professor McGonagall bekommst", sagte sie. Ihre Stimme senkte sich verschwörerisch. "Ich hoffe, sie war nicht _zu_ schrecklich zu dir. "
 
 "_Della!_", sagte Professor McGonagall und klang empört.
 
@@ -294,7 +294,7 @@ Die Hexe fuhr fort, immer noch mit dieser sanften Stimme. "Und was würde danach
 
 "Entschuldigen Sie", sagte Harry und nahm Professor McGonagall sanft, aber bestimmt bei der Hand und lenkte sie in eine weitere Gasse; nachdem er so vielen Gratulanten ausgewichen war, war der Vorgang fast unmerklich zur Routine geworden. "Bitte sprich den Schweigezauber. "
 
-"_Quietus. _"
+"_Quietus._"
 
 Harrys Stimme zitterte. "Diese Eule repräsentiert _nicht_ mich, meine Eltern haben mich _nie_ in einen Schrank gesperrt und zum Verhungern zurückgelassen, ich habe _keine_ Verlassensängste und ich _mag die Tendenz Ihrer Gedanken nicht, Professor McGonagall!_ "
 
@@ -544,7 +544,7 @@ Und es war Gold in Harrys Hand.
 
 Für einen Moment klaffte Professor McGonagalls Mund weit auf, dann klappte ihr Kiefer zu und ihre Augen verengten sich und die Hexe stieß aus: "_Woher_ hast du das -"
 
-"Aus meiner Familiengruft, wie ich schon sagte. "
+"Aus meiner Familiengruft, wie ich schon sagte."
 
 "_Wie?_ "
 
@@ -626,4 +626,6 @@ UNTRANSLATED: Headmaster Albus Dumbledore leaned forward over his desk. Seine fu
 
 Minerva öffnete ihren Mund. Dann schloss sie ihren Mund. Dann öffnete sie wieder ihren Mund. Es kamen keine Worte heraus.
 
-"Ich verstehe", sagte Albus mit ernster Miene. "Ich danke dir für deinen Bericht, Minerva. Du kannst gehen. "
+"Ich verstehe", sagte Albus mit ernster Miene. "Ich danke dir für deinen Bericht, Minerva. Du kannst gehen."
+
+→ [Kapitel 7](Kapitel-7.md)

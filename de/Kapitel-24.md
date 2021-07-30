@@ -1,4 +1,4 @@
-# Kapitel 24: Die Machiavellistische Intelligenz Hypothese.
+# Kapitel 24: Die Machiavellistische Intelligenz Hypothese
 
 J. K. Rowling windet sich und schlägt zu, ungesehen; Orca kreist, hart und schlank.
 
@@ -10,11 +10,11 @@ _Act 3:_
 
 Draco wartete in einer kleinen Fensternische, die er in der Nähe der Großen Halle gefunden hatte, mit knurrendem Magen.
 
-Es würde einen Preis geben, und der wäre nicht gering. Draco hatte das gewusst, sobald er aufgewacht war und festgestellt hatte, dass er sich nicht in die Große Halle zum Frühstück traute, weil er dort Harry Potter sehen könnte und Draco wusste nicht, was danach passieren würde.
+Es würde einen Preis zu zahlen geben, und der wäre nicht gering. Draco hatte das gewusst, sobald er aufgewacht war und festgestellt hatte, dass er sich nicht in die Große Halle zum Frühstück traute, weil er dort Harry Potter sehen könnte und Draco wusste nicht, was danach passieren würde.
 
 Schritte näherten sich.
 
-"Hier hast du", sagte Vincents Stimme. "Der Boss hat heute keine gute Laune, also pass lieber auf, was du tust. "
+"Hier hast du", sagte Vincents Stimme. "Der Boss hat heute keine gute Laune, also pass lieber auf, was du tust."
 
 Draco würde diesen Idioten bei lebendigem Leib häuten und den gehäuteten Körper mit der Bitte um einen intelligenteren Diener zurückschicken, wie eine tote Rennmaus.
 
@@ -363,3 +363,5 @@ Draco war an einem einzigen Tag als Wissenschaftler erwacht. Harry hatte gesagt,
 Aber natürlich, wenn du ein Malfoy wärst, wärst du ein mächtigerer Wissenschaftler als jeder, der es nicht ist.
 
 Draco würde also alle Methoden der Rationalität von Harry Potter lernen, und dann, wenn die Zeit reif war -.
+
+→ [Kapitel 25](Kapitel-25.md)

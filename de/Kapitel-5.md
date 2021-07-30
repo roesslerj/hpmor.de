@@ -4,7 +4,7 @@ J. K. Rowling starrt Sie an. Spürst du ihre Augen auf dir? Sie liest Ihre Gedan
 
 * * *
 
-> "Es hätte eines _übernatürlichen Eingriffs_ bedurft, damit er in _seiner_ Umgebung _Ihre_ Moral hat."
+> "Es hätte eines _übernatürlichen Eingriffs_ bedurft, damit er in _seiner_ Umgebung _Deine_ Moral hat."
 
 * * *
 
