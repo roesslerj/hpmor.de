@@ -12,7 +12,7 @@ var errorCnt = 0;
 
 function translateChunk(text2Translate) {
   if (!/\w+/.test(text2Translate)) {
-    console.debug("Text does not contain chars to translate: " + text2Translate);
+    console.debug(`Text does not contain chars to translate: ${text2Translate}`);
     return text2Translate;
   }
   return translate({
@@ -22,11 +22,11 @@ function translateChunk(text2Translate) {
     formality: 'less',
     auth_key: auth_key,
   }).then(response => {
-    console.debug("Translated this: " + text2Translate);
-    console.debug("Translated to:   " + response.data.translations[0].text);
+    console.debug(`Translated this:  ${text2Translate}`);
+    console.debug(`Translated to:    ${response.data.translations[0].text}`);
     return response.data.translations[0].text;
   }).catch(error => {
-    console.error("Error " + error.code + " translating: " + text2Translate);
+    console.error(`Error ${error.code} translating: ${text2Translate}`);
     errorCnt++;
     return error_prefix + text2Translate;
   });
@@ -78,6 +78,7 @@ async function run() {
     const filename = `de/Kapitel-${chapter}.md`;
     const en_filename = path.join(__dirname, 'en', file);
     const text = fs.readFileSync(en_filename, 'utf8');
+    const nextChapter = chapter + 1;
     const translated = await (await translateText(text))
       .replaceAll('. . .', '...')
       .replaceAll('* * *.', '* * *')
@@ -98,9 +99,11 @@ async function run() {
       .replaceAll('Zeitdreher', 'Zeitumkehrer')
       .replaceAll('Dark Lord', 'Dunkler Lord')
       .replaceAll('Herr ', 'Mr. ')
-      .replaceAll('\{\\an8\}', '_');
+      .replaceAll('. "\n', '."\n')
+      .replaceAll('\{\\an8\}', '_')
+      .concat(`\n\n→ [Kapitel ${nextChapter}](Kapitel-${nextChapter}.md)\n`);
     console.log("\n\n\n");
-    console.log("Writing translated chapter " + chapter + " into file " + filename + " with " + errorCnt + " errors.\n");
+    console.log(`Writing translated chapter ${chapter} into file ${filename} with ${errorCnt} errors.\n`);
     fs.writeFileSync(filename, '# ' + translated, err => {
         if (err) {
           console.error(err);
