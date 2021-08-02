@@ -34,7 +34,7 @@ Draco schlug sich selbst gegen die Stirn als er es realisierte.
 
 Draco begann, das Pergament zu überreichen -.
 
-Aber Harry hielt eine Hand hoch. "Gesetz der Wissenschaft, Draco. Zuerst erzähle ich dir die Theorie und die Vorhersage. Dann zeigst du mir die Daten. Auf diese Weise weißt du, dass ich mir nicht einfach eine Theorie ausdenke, die dann passt; du weißt, dass die Theorie die Daten tatsächlich im _Voraus vorausgesagt hat_. Ich muss dir das sowieso erklären, also muss ich es erklären, _bevor_ du mir die Daten zeigst. Das ist die Regel. Also zieh deinen Mantel an und lass uns hinsetzen."
+Aber Harry hielt eine Hand hoch. "Gesetz der Wissenschaft, Draco. Zuerst erzähle ich dir die Theorie und die Vorhersage. Dann zeigst du mir die Daten. Auf diese Weise weißt du, dass ich mir nicht einfach eine Theorie ausdenke, die dann passt; du weißt, dass die Theorie die Daten tatsächlich im _Voraus vorher hat_. Ich muss dir das sowieso erklären, also muss ich es erklären, _bevor_ du mir die Daten zeigst. Das ist die Regel. Also zieh deinen Mantel an und lass uns hinsetzen."
 
 Harry Potter saß an einem Schreibtisch, auf dessen Oberfläche zerrissene Papierschnipsel verteilt waren. Draco holte seinen Umhang aus seiner Büchertasche, zog ihn an und setzte sich Harry gegenüber auf die andere Seite, wobei er den Papierfetzen einen verwirrten Blick zuwarf. Sie waren in zwei Reihen angeordnet und die Reihen waren etwa zwanzig Scraps lang.
 
@@ -68,7 +68,7 @@ Achtundzwanzig Kinder.
 
 Er war sich nicht sicher über die genaue Anzahl, aber er war sich ziemlich sicher, dass etwa ein Viertel davon Zauberer waren.
 
-"Sechs Zauberer von achtundzwanzig Kindern", sagte Harry Potter nach einem Moment. "Tja, das war's dann wohl. Und die Erstklässler haben auch vor acht Jahrhunderten die gleichen Zauber auf dem gleichen Machtniveau gewirkt. Dein Test und mein Test kamen beide auf die gleiche Weise heraus."
+"Sechs Zauberer von achtundzwanzig Kindern", sagte Harry Potter nach einem Moment. "Tja, das war's dann wohl. Und die Erstklässler haben auch vor acht Jahrhunderten die gleichen Zauber auf dem gleichen Machtniveau gewirkt. Dein Test und mein Test kamen beide auf das gleiche Ergebnis."
 
 Es herrschte eine lange Stille im Klassenzimmer.
 
@@ -78,7 +78,7 @@ Er war noch nie so verängstigt gewesen.
 
 "Das steht noch nicht fest", sagte Harry Potter. "Mein Experiment ist fehlgeschlagen, erinnerst du dich? Ich brauche dich, um einen weiteren Test zu entwerfen, Draco."
 
-"ICH, ICH... " sagte Draco. Seine Stimme brach. "Ich kann das nicht tun Harry, das ist zu viel für mich. "
+"ICH, ICH... " sagte Draco. Seine Stimme brach. "Ich kann das nicht tun Harry, das ist zu viel für mich."
 
 Harrys Blick war grimmig. "Doch, Du kannst, denn du musst. Ich habe selbst auch darüber nachgedacht, nachdem ich von dem Interdikt von Merlin erfahren habe. Draco, gibt es eine Möglichkeit, die Stärke der Magie direkt zu beobachten? Einen Weg, der nichts mit dem Blut von Zauberern oder den Zaubersprüchen, die wir lernen, zu tun hat?"
 
@@ -92,9 +92,9 @@ Harry Potter lächelte langsam. "Draco, das ist _brillant_."
 
 _Es ist die Art von dummer Frage, die du nur stellen würdest, wenn du von Muggeln erzogen worden wärst._
 
-Dann wurde das Übelkeitsgefühl in Dracos Magen noch schlimmer, als ihm klar wurde, was es bedeuten würde, wenn magische Kreaturen schwächer werden _würden_. Dann würden sie mit Sicherheit wissen, dass die Magie schwand und ein Teil von Draco war sich bereits sicher, dass sie genau das finden würden. Er wollte das nicht sehen, er wollte es nicht wissen...
+Dann wurde das Übelkeitsgefühl in Dracos Magen noch schlimmer, als ihm klar wurde, was es bedeuten würde, wenn magische Kreaturen schwächer werden _würden_. Dann würden sie mit Sicherheit wissen, dass die Magie schwand und ein Teil von Draco war sich bereits sicher, dass sie genau das heraus finden würden. Er wollte das nicht sehen, er wollte es nicht wissen...
 
-Harry Potter war bereits auf halbem Weg zur Tür. "Komm _schon_, Draco! Nicht weit von hier gibt es ein Porträt, wir bitten sie einfach, einen Alten zu holen und finden es sofort heraus! Wir sind getarnt, wenn uns jemand sieht, können wir einfach wegrennen! Los geht's!"
+Harry Potter war bereits auf halbem Weg zur Tür. "Komm _schon_, Draco! Nicht weit von hier gibt es ein Porträt. Wir bitten es einfach, einen Alten zu holen und finden es sofort heraus! Wir sind getarnt, wenn uns jemand sieht, können wir einfach wegrennen! Los geht's!"
 
 * * *
 
@@ -114,7 +114,7 @@ Es gab nichts Unbekanntes auf der Liste, abgesehen von einer Spezies dunkler Kre
 
 Magische Kreaturen waren jetzt so mächtig wie nie zuvor, wie es schien.
 
-Die Übelkeit in Dracos Magen ließ nach, und jetzt fühlte er sich einfach nur verwirrt.
+Die Übelkeit in Dracos Magen ließ nach, und jetzt fühlte er sich einfach nur noch verwirrt.
 
 "Harry", sagte Draco, während der alte Mann eine Liste mit allen elf Kräften der Augen eines Betrachters übersetzte, "was bedeutet das?"
 
@@ -126,24 +126,28 @@ Und Harry holte das Original-Pergament mit den Hypothesen hervor und begann zu k
 
 _Beobachtung:_
 
-Die Zauberei ist heute nicht mehr so mächtig, wie sie es bei der Gründung von Hogwarts war. _
+_Die Zauberei ist heute nicht mehr so mächtig, wie sie es bei der Gründung von Hogwarts war._
 
 _Hypothesen:_
 
-_1__ Die Magie selbst verblasst. 2__ Zauberer kreuzen sich mit Muggeln und Squibs. 3__ Das Wissen, mächtige Zauber zu wirken, geht verloren. 4\. Zauberer essen als Kinder das Falsche, oder etwas anderes als Blut lässt sie schwächer aufwachsen. 5\. Muggeltechnologie greift in die Magie ein. (Seit 800 Jahren?)
-6\. Stärkere Zauberer bekommen weniger Kinder. (Draco = Einzelkind? Prüfe, ob 3 mächtige Zauberer, Quirrell / Dumbledore / Dunkler Lord, Kinder hatten. )_
+1. Die Magie selbst verblasst. 
+2. Zauberer kreuzen sich mit Muggeln und Squibs. 
+3. Das Wissen, mächtige Zauber zu wirken, geht verloren.
+4. Zauberer essen als Kinder das Falsche, oder etwas anderes als Blut lässt sie schwächer aufwachsen. 
+5. Muggeltechnologie greift in die Magie ein. (Seit 800 Jahren?)
+6. Stärkere Zauberer bekommen weniger Kinder. (Draco = Einzelkind? Prüfen ob 3 mächtige Zauberer, Quirrell / Dumbledore / Dunkler Lord, irgendwelche Kinder hatten.)
 
 _Tests:_
 
-_A. Gibt es Zaubersprüche, die wir kennen, aber nicht wirken können (1 oder 2) oder sind die verlorenen Zauber nicht mehr bekannt (3)? Ergebnis: Nicht schlüssig aufgrund des Interdikts von Merlin. Kein bekannter unzauberbarer Zauber, könnte aber einfach nicht weitergegeben worden sein. _
+_A. Gibt es Zaubersprüche, die wir kennen, aber nicht wirken können (1 oder 2) oder sind die verlorenen Zauber nicht mehr bekannt (3)? Ergebnis: Nicht schlüssig aufgrund des Interdikts von Merlin. Kein bekannter unzauberbarer Zauber, könnte aber einfach nicht weitergegeben worden sein._
 
-_B. Haben antike Erstklässler die gleiche Art von Zaubern mit der gleichen Macht gewirkt, wie heute? (Schwacher Beweis für 1 über 2, aber Blut könnte auch nur mächtige Zauberei verlieren. ) Ergebnis: Gleiches Niveau der Erstjahreszauber damals wie heute. _
+_B. Haben antike Erstklässler die gleiche Art von Zaubern mit der gleichen Macht gewirkt, wie heute? (Schwacher Beweis für 1 über 2, aber Blut könnte auch nur mächtige Zauberei verlieren.) Ergebnis: Gleiches Niveau der Erstjahreszauber damals wie heute._
 
-_C. Ein zusätzlicher Test, der 1 und 2 anhand von wissenschaftlichen Erkenntnissen über Blut unterscheidet, wird später erklärt. Ergebnis: Es gibt nur eine Stelle im Rezept, die dich zum Zauberer macht, und entweder du hast zwei Papiere, auf denen "Magie" steht, oder du hast sie nicht. _
+_C. Ein zusätzlicher Test, der 1 und 2 anhand von wissenschaftlichen Erkenntnissen über Blut unterscheidet, wird später erklärt. Ergebnis: Es gibt nur eine Stelle im Rezept, die dich zum Zauberer macht, und entweder du hast zwei Papiere, auf denen "Magie" steht, oder du hast sie nicht._
 
-_D. Verlieren magische Kreaturen ihre Kräfte? Unterscheide 1 von (2 oder 3). Ergebnis: Magische Kreaturen scheinen so stark zu sein, wie sie es immer waren. _
+_D. Verlieren magische Kreaturen ihre Kräfte? Unterscheide 1 von (2 oder 3). Ergebnis: Magische Kreaturen scheinen so stark zu sein, wie sie es immer waren._
 
-"Ein Fehlschlag", sagte Harry Potter. "B" ist ein schwacher Beweis für "1" gegenüber "2" C verfälscht 2. D verfälscht 1. 4 war unwahrscheinlich und auch B spricht gegen 4. 5 unwahrscheinlich war und D dagegen argumentiert. 6 ist zusammen mit 2 falsifiziert. Dann bleibt nur noch 3. Interdict of Merlin hin oder her, ich habe eigentlich keinen bekannten Zauber gefunden, der nicht gewirkt werden konnte. Wenn du also alles zusammenzählst, sieht es so aus, als würde Wissen verloren gehen. "
+"Ein Fehlschlag", sagte Harry Potter. "B" ist ein schwacher Beweis für "1" gegenüber "2" C verfälscht 2. D verfälscht 1. 4 war unwahrscheinlich und auch B spricht gegen 4. 5 unwahrscheinlich war und D dagegen argumentiert. 6 ist zusammen mit 2 falsifiziert. Dann bleibt nur noch 3. Interdict of Merlin hin oder her, ich habe eigentlich keinen bekannten Zauber gefunden, der nicht gewirkt werden konnte. Wenn du also alles zusammenzählst, sieht es so aus, als würde Wissen verloren gehen."
 
 Und die Falle schnappte zu.
 
@@ -151,19 +155,19 @@ Es dauerte keine fünf Sekunden, bis die Panik verflogen war und Draco begriff, 
 
 Draco stieß sich vom Schreibtisch ab und stand so heftig auf, dass sein Stuhl mit einem schabenden Geräusch über den Boden rutschte und umkippte.
 
-"Es war also alles nur ein dummer Trick. "
+"Es war also alles nur ein dummer Trick."
 
-Harry Potter starrte ihn einen Moment lang an, immer noch sitzend. Wenn er sprach, war seine Stimme ruhig. "Es war ein fairer Test, Draco. Wenn es anders gekommen wäre, hätte ich es akzeptiert. Das ist nichts, bei dem ich jemals schummeln würde. Niemals. Ich habe mir deine Daten nicht angeschaut, bevor ich meine Vorhersagen gemacht habe. Ich habe es dir im Voraus gesagt, als das Interdikt von Merlin das erste Experiment ungültig machte -"
+Harry Potter starrte ihn einen Moment lang an, immer noch sitzend. Als er sprach, war seine Stimme ruhig. "Es war ein fairer Test, Draco. Wenn es anders gekommen wäre, hätte ich es akzeptiert. Das ist nichts, bei dem ich jemals schummeln würde. Niemals. Ich habe mir deine Daten nicht angeschaut, bevor ich meine Vorhersagen gemacht habe. Ich habe es dir im Voraus gesagt, als das Interdikt von Merlin das erste Experiment ungültig machte -"
 
 "Oh", sagte Draco, wobei die Wut langsam in seine Stimme drang, "du wusstest nicht, wie die ganze Sache ausgehen würde?"
 
-"Ich _wusste_ nichts, was du nicht wusstest", sagte Harry, immer noch leise. "Ich gebe zu, dass ich einen Verdacht hatte. Hermine Granger war zu stark, sie hätte kaum magisch sein dürfen und war es nicht, wie kann eine Muggelgeborene die beste Zauberin in Hogwarts sein? Und sie bekommt auch die besten Noten in ihren Aufsätzen, es ist zu viel Zufall, dass ein Mädchen magisch _und_ akademisch am stärksten ist, es sei denn, es gibt eine einzige Ursache. Hermine Grangers Existenz deutete darauf hin, dass es nur eine Sache gibt, die einen zum Zauberer macht, etwas, das man entweder hat oder nicht hat, und dass die Machtunterschiede dadurch entstehen, wie viel wir wissen und wie viel wir üben. Und es gab keine unterschiedlichen Klassen für Reinblüter und Muggelgeborene usw. Es gab zu viele Möglichkeiten, dass die Welt nicht so aussah, wie sie aussehen würde, wenn du Recht hättest. Aber Draco, ich habe nichts gesehen, was du nicht auch sehen konntest. Ich habe keine Tests durchgeführt, von denen ich dir nicht erzählt habe. Ich habe nicht geschummelt, Draco. Ich wollte, dass wir die Antwort gemeinsam ausarbeiten. Und ich habe nie gedacht, dass die Magie aus der Welt verschwinden könnte, bis du es gesagt hast. Es war auch für mich eine beängstigende Vorstellung. "
+"Ich _wusste_ nichts, was du nicht wusstest", sagte Harry, immer noch leise. "Ich gebe zu, dass ich einen Verdacht hatte. Hermine Granger war zu stark, sie hätte kaum magisch sein dürfen und war es trotzdem. Wie kann eine Muggelgeborene die beste Zauberin in Hogwarts sein? Und sie bekommt auch die besten Noten in ihren Aufsätzen, es ist zu viel Zufall, dass ein Mädchen magisch _und_ akademisch am stärksten ist, es sei denn, es gibt eine einzige Ursache. Hermine Grangers Existenz deutete darauf hin, dass es nur eine Sache gibt, die einen zum Zauberer macht, etwas, das man entweder hat oder nicht hat, und dass die Machtunterschiede dadurch entstehen, wie viel wir wissen und wie viel wir üben. Und es gab keine unterschiedlichen Klassen für Reinblüter und Muggelgeborene usw. Es gab zu viele Möglichkeiten, dass die Welt nicht so aussah, wie sie aussehen würde, wenn du Recht hättest. Aber Draco, ich habe nichts gesehen, was du nicht auch sehen konntest. Ich habe keine Tests durchgeführt, von denen ich dir nicht erzählt habe. Ich habe nicht geschummelt, Draco. Ich wollte, dass wir die Antwort gemeinsam ausarbeiten. Und ich habe nie gedacht, dass die Magie aus der Welt verschwinden könnte, bis du es gesagt hast. Es war auch für mich eine beängstigende Vorstellung."
 
-"Wie auch immer", sagte Draco. Er bemühte sich sehr, seine Stimme zu kontrollieren und Harry nicht einfach anzuschreien. "Du behauptest, du würdest nicht weglaufen und jemand anderem davon erzählen. "
+"Wie auch immer", sagte Draco. Er bemühte sich sehr, seine Stimme zu kontrollieren und Harry nicht einfach anzuschreien. "Du behauptest, du würdest nicht weglaufen und jemand anderem davon erzählen."
 
-"Nicht ohne dich vorher zu fragen", sagte Harry. Er öffnete seine Hände in einer flehenden Geste. "Draco, ich bin so nett, wie ich kann, aber _die Welt hat sich einfach nicht so entwickelt_ "
+"Nicht ohne dich vorher zu fragen", sagte Harry. Er öffnete seine Hände in einer flehenden Geste. "Draco, ich bin so nett, wie ich kann, aber _die Welt hat sich einfach nicht so entwickelt_."
 
-"Gut. Dann sind du und ich durch. Ich werde einfach weggehen und vergessen, dass das alles jemals passiert ist. "
+"Gut. Dann sind du und ich durch. Ich werde einfach weggehen und vergessen, dass das alles jemals passiert ist."
 
 Draco drehte sich um, spürte das Brennen in seiner Kehle, das Gefühl des Verrats, und da wurde ihm klar, dass er Harry Potter wirklich gemocht hatte, und dieser Gedanke bremste ihn keinen Moment, als er zur Tür des Klassenzimmers schritt.
 
@@ -177,11 +181,11 @@ Aber es herrschte bereits eine eisige Kälte in Dracos Rücken.
 
 Er wusste es schon, bevor Harry Potter es sagte.
 
-"Um ein Wissenschaftler zu werden. Du hast einen deiner Glaubenssätze in Frage gestellt, nicht nur einen kleinen Glaubenssatz, sondern etwas, das große Bedeutung für dich hatte. Du hast Experimente gemacht, Daten gesammelt, und das Ergebnis hat bewiesen, dass der Glaube falsch war. Du hast die Ergebnisse gesehen und verstanden, was sie bedeuten. " Harry Potters Stimme schwankte. "Denk daran, Draco, du kannst einen _wahren_ Glauben nicht auf diese Weise opfern, denn die Experimente werden ihn bestätigen, anstatt ihn zu falsifizieren. Dein Opfer, ein Wissenschaftler zu werden, war dein _falscher_ Glaube, dass sich das Blut der Zauberer vermischt und schwächer wird. "
+"Um ein Wissenschaftler zu werden. Du hast einen deiner Glaubenssätze in Frage gestellt, nicht nur einen kleinen Glaubenssatz, sondern etwas, das große Bedeutung für dich hatte. Du hast Experimente gemacht, Daten gesammelt, und das Ergebnis hat bewiesen, dass der Glaube falsch war. Du hast die Ergebnisse gesehen und verstanden, was sie bedeuten." Harry Potters Stimme schwankte. "Denk daran, Draco, du kannst einen _wahren_ Glauben nicht auf diese Weise opfern, denn die Experimente werden ihn bestätigen, anstatt ihn zu falsifizieren. Dein Opfer, ein Wissenschaftler zu werden, war dein _falscher_ Glaube, dass sich das Blut der Zauberer vermischt und schwächer wird."
 
 "Das ist nicht wahr!", sagte Draco. "Ich habe den Glauben nicht geopfert. Das glaube ich immer noch!" Seine Stimme wurde lauter und das Frösteln wurde schlimmer.
 
-Harry Potter schüttelte den Kopf. Seine Stimme kam im Flüsterton. "Draco... Es tut mir leid, Draco, du _glaubst_ es nicht, nicht mehr. " Harrys Stimme erhob sich wieder. "Ich werde es dir beweisen. Stell dir vor, dass dir jemand erzählt, dass er einen Drachen in seinem Haus hält. Du sagst ihnen, dass du es sehen willst. Man sagt, es ist ein unsichtbarer Drache. Du sagst, gut, dann hörst du, wie es sich bewegt. Sie sagen, es ist ein unhörbarer Drache. Du sagst, du wirfst etwas Kochmehl in die Luft und siehst den Umriss des Drachens. Es heißt, der Drache sei durchlässig für Mehl. Und das Bezeichnende ist, dass sie schon im Voraus genau wissen, welche experimentellen Ergebnisse sie weg erklären müssen. Sie _wissen_, dass alles so kommen wird, wie es kommt, wenn es keinen Drachen gibt, sie wissen im _Voraus_, welche Ausreden sie vorbringen werden müssen. Vielleicht _sagen_ sie also, dass es einen Drachen gibt. Vielleicht _glauben_ sie, dass es einen Drachen gibt, das nennt man Glauben-im-Glauben. Aber sie glauben es nicht wirklich. Du kannst dich in dem, was du glaubst, irren. Die meisten Menschen erkennen nie, dass es einen Unterschied gibt zwischen etwas zu glauben und zu denken, dass es gut ist, es zu glauben. " Harry Potter hatte sich nun vom Schreibtisch erhoben und ging ein paar Schritte auf Draco zu. "Und Draco, du glaubst nicht mehr an den Blutpurismus, ich werde dir zeigen, dass du es nicht tust. Wenn der Blutpurismus wahr ist, dann macht Hermine Granger keinen Sinn, was könnte sie also erklären? Vielleicht ist sie ein magisches Waisenkind, das von Muggeln aufgezogen wurde, so wie ich es war? Ich könnte zu Granger gehen und darum bitten, Bilder von ihren Eltern zu sehen, um zu sehen, ob sie ihnen ähnlich sieht. Würdest du erwarten, dass sie anders aussieht? Sollen wir den Test durchführen?"
+Harry Potter schüttelte den Kopf. Seine Stimme kam im Flüsterton. "Draco... Es tut mir leid, Draco, du _glaubst_ es nicht, nicht mehr." Harrys Stimme erhob sich wieder. "Ich werde es dir beweisen. Stell dir vor, dass dir jemand erzählt, dass er einen Drachen in seinem Haus hält. Du sagst ihnen, dass du es sehen willst. Man sagt, es ist ein unsichtbarer Drache. Du sagst, gut, dann hörst du, wie es sich bewegt. Sie sagen, es ist ein unhörbarer Drache. Du sagst, du wirfst etwas Mehl in die Luft und siehst den Umriss des Drachens. Es heißt, der Drache sei durchlässig für Mehl. Und das Bezeichnende ist, dass sie schon im Voraus genau wissen, welche experimentellen Ergebnisse sie weg erklären müssen. Sie _wissen_, dass alles so kommen wird, wie es kommt, wenn es keinen Drachen gibt, sie wissen im _Voraus_, welche Ausreden sie vorbringen werden müssen. Vielleicht _sagen_ sie also, dass es einen Drachen gibt. Vielleicht _glauben_ sie, dass es einen Drachen gibt, das nennt man Glauben-im-Glauben. Aber sie glauben es nicht wirklich. Du kannst dich in dem, was du glaubst, irren. Die meisten Menschen erkennen nie, dass es einen Unterschied gibt zwischen etwas zu glauben und zu denken, dass es gut ist, es zu glauben." Harry Potter hatte sich nun vom Schreibtisch erhoben und ging ein paar Schritte auf Draco zu. "Und Draco, du glaubst nicht mehr an den Blutpurismus, ich werde dir zeigen, dass du es nicht tust. Wenn der Blutpurismus wahr ist, dann macht Hermine Granger keinen Sinn, was könnte sie also erklären? Vielleicht ist sie ein magisches Waisenkind, das von Muggeln aufgezogen wurde, so wie ich es war? Ich könnte zu Granger gehen und darum bitten, Bilder von ihren Eltern zu sehen, um zu sehen, ob sie ihnen ähnlich sieht. Würdest du erwarten, dass sie anders aussieht? Sollen wir den Test durchführen?"
 
 "Sie hätten sie bei Verwandten untergebracht", sagte Draco mit zitternder Stimme. "Sie werden immer noch gleich aussehen."
 
@@ -189,17 +193,17 @@ Harry Potter schüttelte den Kopf. Seine Stimme kam im Flüsterton. "Draco... Es
 
 "Sie _hätten_ sie bei Verwandten untergebracht!"
 
-"Wissenschaftler können Tests machen, um sicher zu prüfen, ob jemand das wahre Kind eines Vaters ist. Granger würde es wahrscheinlich tun, wenn ich ihrer Familie genug zahlen würde. Sie würde keine Angst vor den Ergebnissen haben. Was soll der Test also zeigen? Sag mir, dass ich ihn durchführen soll und wir werden es tun. Aber du weißt schon, was der Test sagen wird. Du wirst es immer wissen. Du wirst es nie vergessen können. Du magst _wünschen_, dass du an Blutpurismus glaubst, aber du wirst immer _erwarten_, dass genau das passiert, was passieren würde, wenn es nur eine Sache gäbe, die dich zu einem Zauberer macht. Das war dein Opfer, um ein Wissenschaftler zu werden. "
+"Wissenschaftler können Tests machen, um sicher zu prüfen, ob jemand das wahre Kind eines Vaters ist. Granger würde es wahrscheinlich tun, wenn ich ihrer Familie genug zahlen würde. Sie würde keine Angst vor den Ergebnissen haben. Was soll der Test also zeigen? Sag mir, dass ich ihn durchführen soll und wir werden es tun. Aber du weißt schon, was der Test sagen wird. Du wirst es immer wissen. Du wirst es nie vergessen können. Du magst _wünschen_, dass du an Blutpurismus glaubst, aber du wirst immer _erwarten_, dass genau das passiert, was passieren würde, wenn es nur eine Sache gäbe, die dich zu einem Zauberer macht. Das war dein Opfer, um ein Wissenschaftler zu werden."
 
-Dracos Atem ging stoßweise. "Ist dir klar, _was du getan hast_?", stürmte Draco vor und packte Harry am Kragen seines Umhangs. Seine Stimme erhob sich zu einem Schrei, sie klang unerträglich laut in dem geschlossenen Klassenzimmer und der Stille. "_Ist dir klar, was du getan hast?_"
+Dracos Atem ging stoßweise. "Ist dir klar, _was du getan hast_?" Draco stürmte vor und packte Harry am Kragen seines Umhangs. Seine Stimme erhob sich zu einem Schrei, sie klang unerträglich laut in dem geschlossenen Klassenzimmer und der Stille. "_Ist dir klar, was du getan hast?_"
 
 Harrys Stimme war zittrig. "Du hattest einen Glauben. Der Glaube war falsch. Ich habe dir geholfen, das zu erkennen. Was wahr ist, ist schon so, es zuzugeben, macht es nicht schlimmer. -"
 
 Die Finger von Dracos rechter Hand ballten sich zu einer Faust und diese Hand ließ sich nach unten fallen und schoss unaufhaltsam nach oben und schlug Harry Potter so hart auf den Kiefer, dass sein Körper zurück auf den Schreibtisch und dann auf den Boden krachte.
 
-"_Idiot!_ ", schrie Draco. "Idiot! Idiot!
+"_Idiot!_", schrie Draco. "Idiot! Idiot!"
 
-"Draco", flüsterte Harry vom Boden aus, "Draco, es tut mir leid, ich dachte nicht, dass dies monatelang passieren würde, ich habe nicht erwartet, dass du so schnell als Wissenschaftler erwachst, ich dachte, ich hätte länger Zeit, um dich vorzubereiten, dir die Techniken beizubringen, die es weniger schmerzhaft machen, zuzugeben, dass man falsch liegt -"
+"Draco", flüsterte Harry vom Boden aus, "Draco, es tut mir leid, ich dachte, dass dies monatelang passieren würde, ich habe nicht erwartet, dass du so schnell als Wissenschaftler erwachst. Ich dachte, ich hätte länger Zeit, um dich vorzubereiten, dir die Techniken beizubringen, die es weniger schmerzhaft machen, zuzugeben, dass man falsch liegt -"
 
 "Was ist mit Vater?" sagte Draco. Seine Stimme zitterte vor Wut. "Wolltest du _ihn_ vorbereiten oder war es dir einfach _egal_, was danach passiert?"
 
@@ -209,49 +213,49 @@ Für einen Moment war der Gedanke, dass Vater es nicht wusste, eine Erleichterun
 
 Und dann begann die echte Wut aufzusteigen.
 
-"Du hast also geplant, dass ich ihn anlüge und ihm sage, dass ich immer noch glaube", sagte Draco mit zitternder Stimme. "Ich werde ihn immer anlügen müssen, und jetzt, wo ich groß bin, kann ich kein Todesser sein, und ich werde ihm nicht einmal sagen können, warum nicht. "
+"Du hast also geplant, dass ich ihn anlüge und ihm sage, dass ich immer noch glaube", sagte Draco mit zitternder Stimme. "Ich werde ihn immer anlügen müssen, und jetzt, wenn ich groß bin, kann ich kein Todesser sein, und ich werde ihm nicht einmal sagen können, warum nicht."
 
 "Wenn dein Vater dich wirklich liebt", flüsterte Harry vom Boden aus, "wird er dich auch dann noch lieben, wenn du kein Todesser wirst, und es hört sich so an, als ob dein Vater dich _wirklich_ liebt, Draco -"
 
-"_Dein_ Stiefvater ist ein Wissenschaftler", sagte Draco. Die Worte kommen heraus wie beißende Messer. "Wenn _du_ keine Wissenschaftlerin werden würdest, würde er dich trotzdem lieben. Aber du wärst für ihn _ein bisschen weniger besonders_ "
+"_Dein_ Stiefvater ist ein Wissenschaftler", sagte Draco. Die Worte kommen heraus wie beißende Messer. "Wenn _du_ kein Wissenschaftler werden würdest, würde er dich trotzdem lieben. Aber du wärst für ihn _ein bisschen weniger besonders_."
 
 Harry zuckte zusammen. Der Junge öffnete den Mund, als wolle er "Es tut mir leid" sagen, schloss ihn dann aber wieder und schien es sich anders zu überlegen, was entweder sehr klug von ihm war oder ein großes Glück, denn Draco hätte ihn vielleicht umbringen wollen.
 
-"Du hättest mich warnen sollen", sagte Draco. Seine Stimme erhob sich. "_Du hättest mich warnen müssen!_ "
+"Du hättest mich warnen sollen", sagte Draco. Seine Stimme erhob sich. "Du hättest mich warnen _müssen_!"
 
-"I... Das habe ich... jedes Mal, wenn ich dir von der Leistung erzählt habe, habe ich dir vom Preis erzählt. Ich sagte, du musst zugeben, dass du falsch liegst. Ich sagte, dass dies der schwerste Weg für dich sein würde. Dass dies das Opfer war, das jeder bringen musste, um ein Wissenschaftler zu werden. Ich sagte, was ist, wenn das Experiment das eine sagt und deine Familie und Freunde etwas anderes sagen -"
+"Ich... Das habe ich... jedes Mal, wenn ich dir von der Leistung erzählt habe, habe ich dir vom Preis erzählt. Ich sagte, du musst zugeben, dass du falsch liegst. Ich sagte, dass dies der schwerste Weg für dich sein würde. Dass dies das Opfer war, das jeder bringen musste, um ein Wissenschaftler zu werden. Ich sagte, was ist, wenn das Experiment das eine sagt und deine Familie und Freunde etwas anderes sagen -"
 
-"_Das nennst du eine Warnung?_ " Draco was screaming now. "_Das nennst du eine Warnung? Wenn wir ein Ritual durchführen, das ein ständiges Opfer verlangt?_"
+"_Das nennst du eine Warnung?_" Draco schrie jetzt. "_Das nennst du eine Warnung? Wenn wir ein Ritual durchführen, das ein ständiges Opfer verlangt?_"
 
 "Ich... Ich... " Der Junge am Boden schluckte. "Ich denke, vielleicht war es nicht klar. Es tut mir leid. Aber das, was durch die Wahrheit zerstört werden kann, sollte es auch werden."
 
 Ihn zu schlagen war nicht genug.
 
-"In einem Punkt irrst du dich", sagte Draco, seine Stimme war tödlich. "Granger ist nicht die stärkste Schülerin in Hogwarts. Sie bekommt einfach die besten Noten in der Klasse. Du wirst gleich den Unterschied herausfinden. "
+"In einem Punkt irrst du dich", sagte Draco, seine Stimme war tödlich. "Granger ist nicht die stärkste Schülerin in Hogwarts. Sie bekommt einfach die besten Noten in der Klasse. Du wirst gleich den Unterschied herausfinden."
 
 Plötzlicher Schock zeigte sich in Harrys Gesicht und er versuchte, sich schnell auf die Füße zu rollen -.
 
 Es war bereits zu spät für ihn.
 
-"_Expelliarmus!_ "
+"_Expelliarmus!_"
 
 Harrys Zauberstab flog quer durch den Raum.
 
-"_Gom jabbar!_ "
+"_Gom jabbar!_"
 
-Ein Puls aus tintenschwarzer Schwärze traf Harrys linke Hand.
+Ein Impuls aus tintenschwarzer Schwärze traf Harrys linke Hand.
 
-"Das ist ein Folterzauber", sagte Draco. "Es ist dazu da, Informationen aus den Leuten herauszuholen. Ich werde es einfach bei dir lassen und die Tür hinter mir abschließen, wenn ich gehe. Vielleicht stelle ich den Sperrzauber so ein, dass er nach ein paar Stunden nachlässt. Vielleicht wird es nicht nachlassen, bis du hier drin stirbst. Viel Spaß! "
+"Das ist ein Folterzauber", sagte Draco. "Es ist dazu da, Informationen aus den Leuten herauszuholen. Ich werde ihn einfach bei dir lassen und die Tür hinter mir abschließen, wenn ich gehe. Vielleicht stelle ich den Sperrzauber so ein, dass er nach ein paar Stunden nachlässt. Vielleicht wird es nicht nachlassen, bis du hier drin stirbst. Viel Spaß!"
 
-Draco bewegte sich geschmeidig rückwärts, den Zauberstab immer noch auf Harry gerichtet. Dracos Hand tauchte nach unten und griff nach seiner Büchertasche, ohne dass sein Ziel wankte.
+Draco bewegte sich geschmeidig rückwärts, den Zauberstab immer noch auf Harry gerichtet. Dracos Hand tauchte nach unten und griff nach seiner Büchertasche, ohne dass sein Stab wankte.
 
 Der Schmerz zeigte sich bereits in Harry Potters Gesicht, als er sprach. "Malfoys stehen über den Gesetzen für minderjährige Magie, nehme ich an? Das liegt nicht daran, dass dein Blut stärker ist. Das liegt daran, dass du bereits geübt hast. Am Anfang warst du genauso schwach wie jeder von uns. Ist meine Vorhersage falsch?"
 
-Dracos Hand wurde weiß um seinen Zauberstab, aber sein Ziel blieb stabil.
+Dracos Hand wurde weiß um seinen Zauberstab, aber sein Stab wankte nicht.
 
 "Nur damit du es weißt", sagte Harry mit zusammengebissenen Zähnen, "wenn du mir gesagt hättest, dass ich mich irre, hätte ich auf dich gehört. _Ich_ werde _dich_ niemals foltern, wenn du mir zeigst, dass ich falsch liege. Und das _wirst_ du eines Tages. Du bist jetzt als Wissenschaftler erwacht und selbst wenn du nie lernst, deine Kraft zu nutzen, wirst du immer", keuchte Harry, "nach Wegen suchen, um deine Überzeugungen zu testen -"
 
-Dracos Rückzug war jetzt weniger geschmeidig, etwas schneller und er musste sich anstrengen, um seinen Zauberstab auf Harry zu halten, als dieser nach hinten griff, um die Tür zu öffnen und wieder aus dem Klassenzimmer trat.
+Dracos Rückzug war jetzt weniger geschmeidig, etwas schneller und er musste sich anstrengen, um seinen Zauberstab auf Harry zu richten, als er nach hinten griff, um die Tür zu öffnen und wieder aus dem Klassenzimmer trat.
 
 Dann schloss Draco die Tür wieder.
 
@@ -263,7 +267,7 @@ Und dann ging er weg.
 
 * * *
 
-"_Aaahhh! Finite Incantatem! Aaaahhh!_ "
+"_Aaahhh! Finite Incantatem! Aaaahhh!_"
 
 Harrys linke Hand war in einen Topf mit kochendem Öl gelegt und dort liegen gelassen worden. Er hatte alles, was er hatte, in das _Finite Incantatem_ gesteckt und es funktionierte immer noch nicht.
 
@@ -277,15 +281,15 @@ Aber ein paar Schreie später wurde Harry klar, was er tun musste.
 
 Sein Beutel befand sich leider auf der falschen Seite seines Körpers und es bedurfte einiger Verrenkungen, um ihn zu erreichen, vor allem, da sein anderer Arm in einem reflexartigen, unaufhaltsamen Versuch, die Quelle des Schmerzes wegzuschleudern, herumfuchtelte. Bis er es geschafft hatte, hatte sein anderer Arm es geschafft, seinen Zauberstab wieder wegzuwerfen.
 
-"Verbandskasten _ahhhhh_! Verbandskasten!"
+"Verbandskasten! _Ahhhhh_! Verbandskasten!"
 
 Auf dem Boden war das grüne Licht zu schwach, um etwas zu erkennen.
 
-Harry konnte nicht aufstehen. Er konnte nicht kriechen. Er rollte über den Boden zu der Stelle, wo er seinen Zauberstab vermutete, und er war nicht da. Mit einer Hand schaffte er es, sich hoch genug zu heben, um seinen Zauberstab zu sehen, und er rollte dorthin und holte den Zauberstab und rollte zurück zu der Stelle, wo der Verbandskasten geöffnet war. Es gab auch eine Menge Geschrei und ein bisschen Erbrechen.
+Harry konnte nicht aufstehen. Er konnte nicht kriechen. Er rollte über den Boden zu der Stelle, wo er seinen Zauberstab vermutete, und er war nicht da. Mit einer Hand schaffte er es, sich hoch genug zu heben, um seinen Zauberstab zu sehen, und er rollte dorthin und holte den Zauberstab und rollte zurück zu der Stelle, wo der Verbandskasten geöffnet war. Es gab eine Menge Geschrei und ein bisschen Erbrechen.
 
 Er brauchte acht Versuche, bevor Harry den _Lumos_ zaubern konnte.
 
-Und dann, nun ja, das Paket war nicht dafür gedacht, mit einer Hand geöffnet zu werden, denn alle Zauberer waren Idioten, deshalb. Harry musste seine Zähne benutzen und so dauerte es eine Weile, bis Harry es endlich schaffte, das Taubentuch über seine linke Hand zu wickeln.
+Und dann, nun ja, das Paket war nicht dafür gedacht, mit einer Hand geöffnet zu werden, denn alle Zauberer waren Idioten, deshalb. Harry musste seine Zähne benutzen und so dauerte es eine Weile, bis er es endlich schaffte, das Betäubungstuch um seine linke Hand zu wickeln.
 
 Als er schließlich kein Gefühl mehr in der linken Hand hatte, ließ Harry seinen Verstand los, lag regungslos auf dem Boden und weinte eine Weile.
 
@@ -315,9 +319,9 @@ Im Nachhinein betrachtet, hatte Harry sich Stunden Zeit gelassen, um die wichtig
 
 Würde Harry für seine Taten in die Hölle der Wissenschaft kommen? Harry war sich nicht sicher. Er hatte dafür gesorgt, dass Draco die Möglichkeit, dass die Magie schwindet, nicht aus den Augen verlor und den Teil des Experiments durchführte, der auf den ersten Blick in diese Richtung wies. Er hatte gewartet, bis er Draco die Genetik erklärt hatte, um ihn dazu zu bringen, über magische Kreaturen nachzudenken (obwohl Harry an uralte Artefakte wie den Sprechenden Hut gedacht hatte, den niemand mehr duplizieren konnte, der aber weiterhin funktionierte). Aber Harry hatte eigentlich keine Beweise übertrieben, hatte die Bedeutung der Ergebnisse nicht verzerrt. Als das Interdikt von Merlin den Test, der endgültig hätte sein sollen, ungültig gemacht hatte, hatte er es Draco im Voraus gesagt.
 
-Und dann war da noch der Teil _danach_..
+Und dann war da noch der Teil _danach_...
 
-Aber er hatte sich nicht wirklich an Draco _gelogen_ Draco hatte es geglaubt, und _das würde es wahr machen_.
+Aber er hatte Draco nicht wirklich _angelogen_. Draco hatte es geglaubt, und _das würde es wahr machen_.
 
 Das Ende, zugegeben, war nicht lustig gewesen.
 
@@ -343,11 +347,11 @@ Und die Tür zum Klassenzimmer öffnete sich immer noch nicht.
 
 Das schockierte Harry. Harry hatte natürlich nicht vorgehabt, auch nur in die Nähe von Dumbledores verbotenem Korridor zu gehen. Aber ein Zauber, um magische Schlösser zu öffnen, schien sowieso eine nützliche Art von Zauber zu sein, und so hatte Harry ihn gelernt. War Dumbledores verbotener Korridor dazu gedacht, die Leute so dumm zu machen, dass sie nicht bemerkten, dass die Sicherheitsvorkehrungen schlimmer waren als die, die Draco Malfoy anbringen konnte?
 
-Die Angst kroch zurück in Harrys System. Auf dem Schild im Medizinkoffer stand, dass das Betäubungstuch nur bis zu dreißig Minuten lang sicher verwendet werden kann. Danach würde es sich automatisch ablösen und wäre 24 Stunden lang nicht wiederverwendbar. In diesem Moment war es 18:51 Uhr. Er hatte das Taubentuch vor etwa fünf Minuten angezogen.
+Die Angst kroch zurück in Harry. Auf dem Schild im Medizinkoffer stand, dass das Betäubungstuch nur bis zu dreißig Minuten lang sicher verwendet werden kann. Danach würde es sich automatisch ablösen und wäre 24 Stunden lang nicht wiederverwendbar. In diesem Moment war es 18:51 Uhr. Er hatte das Betäubungstuch vor etwa fünf Minuten angezogen.
 
 Also trat Harry einen Schritt zurück und betrachtete die Tür. Sie war aus massivem, dunklem Eichenholz, unterbrochen nur durch den Messing-Metall-Türknauf.
 
-Harry kannte keine Spreng-, Schneid- oder Zertrümmerungszauber und Sprengstoff zu verklären hätte gegen die Regel verstoßen, dass man keine Dinge verklären darf, die verbrannt werden sollen. Säure war eine Flüssigkeit und hätte Dämpfe erzeugt....
+Harry kannte keine Spreng-, Schneid- oder Zertrümmerungszauber und Sprengstoff zu verwandeln hätte gegen die Regel verstoßen, dass man keine Dinge verwandeln darf, die verbrannt werden sollen. Säure war eine Flüssigkeit und hätte Dämpfe erzeugt....
 
 Aber das war kein Hindernis für einen _kreativen Denker_.
 
@@ -357,9 +361,9 @@ Nach zwei Minuten hatte sich das Scharnier überhaupt nicht verändert.
 
 Wer auch immer Dracos Sperrzauber entworfen hatte, er hatte auch daran gedacht. Oder die Tür war Teil von Hogwarts und das Schloss war immun.
 
-Ein Blick zeigte, dass die Wände aus massivem Stein waren. Genau wie der Boden. Genauso wie die Decke. Man konnte einen Teil von etwas, das ein festes Ganzes war, nicht separat verklären; Harry hätte versuchen müssen, die ganze Wand zu verklären, was Stunden oder vielleicht Tage ununterbrochener Anstrengung erfordert hätte, wenn er es überhaupt hätte tun können, und wenn die Wand nicht mit dem Rest des ganzen Schlosses zusammenhängt...
+Ein Blick zeigte, dass die Wände aus massivem Stein waren. Genau wie der Boden. Genauso wie die Decke. Man konnte einen Teil von etwas, das ein festes Ganzes war, nicht separat verwandeln; Harry hätte versuchen müssen, die ganze Wand zu verwandeln, was Stunden oder vielleicht Tage ununterbrochener Anstrengung erfordert hätte, wenn er es überhaupt hätte tun können, und wenn die Wand nicht mit dem Rest des ganzen Schlosses zusammenhängt...
 
-Harry's Zeitumkehrer würde nicht vor 21 Uhr öffnen. Danach konnte er bis 18 Uhr zurückgehen, bevor die Tür verschlossen wurde.
+Harry's Zeitumkehrer würde sich nicht vor 21 Uhr öffnen. Danach konnte er bis 18 Uhr zurückgehen, bevor die Tür verschlossen wurde.
 
 Wie lange würde der Folterzauber dauern?
 
@@ -371,9 +375,9 @@ Und das war offensichtlich eine abscheulich dumme Idee, die Harry den Rest seine
 
 Aber Harry wusste nicht, ob er zwei Stunden unter Folter durchhalten würde.
 
-Er wollte _raus_ aus diesem Klassenzimmer, er wollte raus aus diesem Klassenzimmer _jetzt_, er wollte nicht zwei Stunden schreiend hier drin warten, bis er den Zeitumkehrer benutzen konnte, er musste _raus_ und jemanden finden, der den Folterzauber von seiner Hand nahm...
+Er wollte _raus_ aus diesem Klassenzimmer, er wollte _jetzt_ raus aus diesem Klassenzimmer, er wollte nicht zwei Stunden schreiend hier drin warten, bis er den Zeitumkehrer benutzen konnte, er musste _raus_ und jemanden finden, der den Folterzauber von seiner Hand nahm...
 
-_Denk nach!_ schrie Harry sein Gehirn an. _Denken! Denk!_
+_Denk nach!_ schrie Harry sein Gehirn an. _Denk! Denk!_
 
 * * *
 
@@ -395,9 +399,9 @@ Und das Schlimmste war zu wissen, dass es ein Fehler gewesen sein könnte, Harry
 
 Wer war jetzt noch für Draco da? Dumbledore? Nach dem, was er getan hatte? Draco wäre lieber lebendig verbrannt worden.
 
-Draco würde zu Harry Potter zurückkehren müssen, weil er nirgendwo anders hinkonnte. Und wenn Harry Potter sagen würde, dass er ihn nicht will, dann wäre Draco ein Nichts, nur ein erbärmlicher kleiner Junge, der niemals ein Todesser sein könnte, niemals Dumbledores Fraktion beitreten könnte, niemals Wissenschaft lernen könnte.
+Draco würde zu Harry Potter zurückkehren müssen, weil er nirgendwo anders hinkonnte. Und wenn Harry Potter sagen würde, dass er ihn nicht wollte, dann wäre Draco ein Nichts, nur ein erbärmlicher kleiner Junge, der niemals ein Todesser sein könnte, niemals Dumbledores Fraktion beitreten könnte, niemals Wissenschaft lernen könnte.
 
-Die Falle war perfekt aufgestellt, perfekt ausgeführt. Vater hatte Draco immer wieder gewarnt, dass man das, was man den dunklen Ritualen geopfert hatte, nicht zurückgewinnen konnte. Aber Vater hatte nicht gewusst, dass die verfluchten Muggel Rituale erfunden hatten, die keine Zauberstäbe brauchten, Rituale, zu denen man überlistet werden konnte, ohne es zu wissen, und das war nur eines der schrecklichen Geheimnisse, die die Wissenschaftler kannten und die Harry Potter mitgebracht hatte.
+Die Falle war perfekt aufgestellt, perfekt ausgeführt. Vater hatte Draco immer wieder gewarnt, dass man das, was man den dunklen Ritualen geopfert hatte, nicht zurückgewinnen konnte. Aber Vater hatte nicht gewusst, dass die verfluchten Muggel Rituale erfunden hatten, die keine Zauberstäbe brauchten. Rituale, zu denen man überlistet werden konnte, ohne es zu wissen, und das war nur eines der schrecklichen Geheimnisse, die die Wissenschaftler kannten und die Harry Potter mitgebracht hatte.
 
 Dann fing Draco an, noch stärker zu weinen.
 
@@ -407,25 +411,25 @@ Draco wusste, dass er zurückgehen und Harry Potter befreien und sich entschuldi
 
 Stattdessen blieb Draco in seinem Bett und schluchzte.
 
-Er hatte bereits Harry Potter verletzt. Es war vielleicht das einzige Mal, dass Draco ihm wehtun konnte, und er würde sich für den Rest seines Lebens an diese eine Erinnerung klammern müssen.
+Er hatte Harry Potter bereits verletzt. Es war vielleicht das einzige Mal, dass Draco ihm wehtun konnte, und er würde sich für den Rest seines Lebens an diese eine Erinnerung klammern müssen.
 
 Lass ihn weiter schreien.
 
 * * *
 
-Harry ließ die Reste seiner Bügelsäge auf den Boden fallen. Die Messingscharniere hatten sich als unempfindlich erwiesen, nicht einmal einen Kratzer hatten sie abbekommen und Harry begann zu vermuten, dass selbst die Verzweiflungstat, Säure oder Sprengstoff zu verklären, diese Tür nicht hätte öffnen können. Positiv ist, dass der Versuch die Bügelsäge zerstört hatte.
+Harry ließ die Reste seiner Bügelsäge auf den Boden fallen. Die Messingscharniere hatten sich als unempfindlich erwiesen, nicht einmal einen Kratzer hatten sie abbekommen und Harry begann zu vermuten, dass selbst die Verzweiflungstat, Säure oder Sprengstoff zu verwandeln, diese Tür nicht hätte öffnen können. Das Positive war, dass der Versuch die Bügelsäge zerstört hatte.
 
-Seine Uhr sagte, dass es 19:02 Uhr war und weniger als fünfzehn Minuten übrig waren. Harry versuchte sich daran zu erinnern, ob noch andere scharfe Dinge in seinem Beutel waren, die zerstört werden mussten und fühlte, wie ein weiterer Anfall von Tränen aufkam. Wenn er doch nur, wenn sich sein Zeitumkehrer öffnet, zurückgehen und _verhindern_ könnte -.
+Seine Uhr sagte, dass es 19:02 Uhr war und weniger als fünfzehn Minuten übrig waren. Harry versuchte sich daran zu erinnern, ob noch andere scharfe Dinge in seinem Beutel waren, die zerstört werden mussten und fühlte, wie ein weiterer Anfall von Tränen aufkam. Wenn er doch nur, wenn sich sein Zeitumkehrer öffnete, zurückgehen und _verhindern_ könnte -.
 
 Und das war der Moment, in dem Harry merkte, dass er _dumm_ war.
 
 Es war nicht das erste Mal, dass er in einem Raum eingesperrt war.
 
-Professor McGonagall hatte ihm schon gesagt, wie er das richtig machen sollte.
+Professor McGonagall hatte ihm schon gesagt, was er dann tun sollte.
 
 ... Sie hatte ihm auch gesagt, dass er den Zeitumkehrer nicht für solche Dinge benutzen sollte.
 
-Würde Professor McGonagall erkennen, dass dieser Anlass wirklich _eine_ besondere Ausnahme rechtfertigt? Oder einfach den Zeitumkehrer ganz wegnehmen?
+Würde Professor McGonagall erkennen, dass dieser Anlass wirklich _eine_ besondere Ausnahme rechtfertigte? Oder einfach den Zeitumkehrer ganz wegnehmen?
 
 Harry sammelte alle seine Sachen, alle Beweise, in seinen Beutel. Ein _Scourgify_ kümmerte sich um das Erbrochene auf dem Boden, wenn auch nicht um den Schweiß, der seine Roben durchtränkt hatte. Er ließ die umgestürzten Tische stehen, es war nicht wichtig genug, um es mit einer Hand zu tun.
 

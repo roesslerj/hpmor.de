@@ -4,7 +4,7 @@ J. K. Rowling windet sich und schlägt zu, ungesehen; Orca kreist, hart und schl
 
 * * *
 
-_Act 3:_
+_3. Akt:_
 
 * * *
 
@@ -24,21 +24,21 @@ Das Aufstoßen in Dracos Magen wurde schlimmer.
 
 Harry Potter kam in Sicht. Sein Gesicht war sorgfältig neutral, aber seine blauen Roben sahen seltsam schief aus, als ob sie nicht richtig angezogen worden wären -.
 
-"_Deine Hand,_" sagte Draco, ohne überhaupt darüber nachzudenken.
+"_Deine Hand_", sagte Draco, ohne überhaupt darüber nachzudenken.
 
 Harry hob seinen linken Arm, als ob er ihn selbst ansehen wollte.
 
-Die Hand baumelte schlaff davon, wie etwas Totes.
+Die Hand baumelte schlaff, wie etwas Totes.
 
-"Madam Pomfrey hat gesagt, dass es nicht dauerhaft ist", sagte Harry leise. "Sie sagte, es sollte sich größtenteils erholen, wenn morgen der Unterricht beginnt. "
+"Madam Pomfrey hat gesagt, dass es nicht dauerhaft ist", sagte Harry leise. "Sie sagte, es sollte sich größtenteils erholen, wenn morgen der Unterricht beginnt."
 
 Für einen einzigen Moment kam die Nachricht wie eine Erleichterung.
 
-Und dann wurde Draco klar.
+Und dann wurde es Draco klar.
 
 "Du bist zu Madam Pomfrey gegangen", flüsterte Draco.
 
-"Natürlich habe ich das", sagte Harry Potter, als würde er das Offensichtliche feststellen. "Meine Hand hat nicht funktioniert. "
+"Natürlich bin ich das", sagte Harry Potter, als würde er das Offensichtliche feststellen. "Meine Hand hat nicht funktioniert."
 
 Langsam dämmerte es Draco, was für ein _absoluter_ Narr er gewesen war, viel schlimmer als die älteren Slytherins, die er verprügelt hatte.
 
@@ -48,39 +48,39 @@ Aber Harry Potter war kein verängstigter kleiner Hufflepuff, der versuchte, sic
 
 "Was hat Madam Pomfrey noch gesagt?", fragte Draco, das Herz im Hals.
 
-"Professor Flitwick sagte, dass der Zauber, der auf meine Hand gewirkt wurde, ein dunkler Folterzauber und eine äußerst ernste Angelegenheit war, und dass es absolut inakzeptabel sei, sich zu weigern, zu sagen, wer es getan hat. "
+"Professor Flitwick sagte, dass der Zauber, der auf meine Hand gewirkt wurde, ein dunkler Folterzauber und eine äußerst ernste Angelegenheit war, und dass es absolut inakzeptabel sei, sich zu weigern, zu sagen, wer es getan hat."
 
 Es gab eine lange Pause.
 
 "Und dann?" sagte Draco mit zitternder Stimme.
 
-Harry Potter lächelte leicht. "Ich entschuldigte mich zutiefst, was Professor Flitwick einen _sehr_ strengen Blick einbrachte, und dann sagte ich ihm, dass die ganze Sache in der Tat eine äußerst ernste, geheime, _delikate_ Angelegenheit sei und dass ich den Schulleiter bereits über das Projekt informiert habe. "
+Harry Potter lächelte leicht. "Ich entschuldigte mich zutiefst, was mir einen _sehr_ strengen Blick von Professor Flitwick einbrachte, und dann sagte ich ihm, dass die ganze Sache in der Tat eine äußerst ernste, geheime, _delikate_ Angelegenheit sei und dass ich den Schulleiter bereits über das Projekt informiert habe."
 
 Draco keuchte. "Nein! Flitwick wird das nicht einfach so hinnehmen! Er wird das mit Dumbledore klären!"
 
-"In der Tat", sagte Harry Potter. "Prompt wurde ich ins Büro des Schulleiters geschleppt. "
+"In der Tat", sagte Harry Potter. "Prompt wurde ich ins Büro des Schulleiters geschleppt."
 
-Draco zitterte jetzt. Wenn Dumbledore Harry Potter vor den Wizengamot bringt, ob freiwillig oder nicht, und den Jungen-der-lebte unter Veritaserum aussagen lässt, dass Draco ihn gefoltert hat... zu viele Leute liebten Harry Potter, Vater könnte diese Abstimmung _verlieren_..
+Draco zitterte jetzt. Wenn Dumbledore Harry Potter vor den Wizengamot bringt, ob freiwillig oder nicht, und den Jungen-der-lebt unter Veritaserum aussagen lässt, dass Draco ihn gefoltert hat... zu viele Leute liebten Harry Potter, Vater könnte diese Abstimmung _verlieren_...
 
-Vater könnte Dumbledore vielleicht davon überzeugen, das nicht zu tun, aber es würde _kosten. Furchtbar teuer. Das Spiel hatte jetzt Regeln, du konntest nicht mehr einfach wahllos jemanden bedrohen. Aber Draco war Dumbledore aus freien Stücken in die Hände gelaufen. Und Draco war eine sehr wertvolle Geisel.
+Vater könnte Dumbledore vielleicht davon überzeugen, das nicht zu tun, aber es würde etwas _kosten_. Es wäre furchtbar teuer. Das Spiel hatte jetzt Regeln, du konntest nicht mehr einfach wahllos jemanden bedrohen. Aber Draco war Dumbledore aus freien Stücken in die Hände gelaufen. Und Draco war eine sehr wertvolle Geisel.
 
 Da Draco nun aber kein Todesser mehr sein konnte, war er nicht so wertvoll, wie Vater dachte.
 
-Der Gedanke zerrte an seinem Herzen wie ein schneidender Charme.
+Der Gedanke zerrte an seinem Herzen wie ein schneidender Zauber.
 
 "Was dann?", flüsterte Draco.
 
-"Dumbledore schloss sofort, dass du es warst. Er wusste, dass wir etwas miteinander zu tun hatten. "
+"Dumbledore schloss sofort, dass du es warst. Er wusste, dass wir etwas miteinander zu tun hatten."
 
-Das schlimmstmögliche Szenario. Wenn Dumbledore nicht geahnt hätte, wer es war, hätte er es vielleicht nicht riskiert, Legilimenz einzusetzen, nur um es herauszufinden... aber wenn Dumbledore _wusste... _
+Das schlimmstmögliche Szenario. Wenn Dumbledore nicht geahnt hätte, wer es war, hätte er es vielleicht nicht riskiert, Gedankenlesen einzusetzen, nur um es herauszufinden... aber wenn Dumbledore _wusste_...
 
 "Und?" Draco zwang das Wort heraus.
 
-"Wir haben uns ein wenig unterhalten. "
+"Wir haben uns ein wenig unterhalten."
 
 "Und?"
 
-Harry Potter grinste. "Und ich erklärte ihm, dass es in seinem besten Interesse wäre, nichts zu tun. "
+Harry Potter grinste. "Und ich erklärte ihm, dass es in seinem eigenen Interesse wäre, nichts zu tun."
 
 Dracos Gedanken rannten gegen eine Backsteinmauer und zerplatzten. Er starrte Harry Potter einfach nur an, sein Mund hing schlaff herunter wie ein Narr.
 
@@ -94,17 +94,17 @@ Und Harry sagte höflich zu Dumbledore, er solle den Mund halten, wenn er wüsst
 
 Vater hatte Draco vor solchen Menschen gewarnt. Menschen, die einen ruinieren konnten und trotzdem so sympathisch waren, dass es schwer war, sie richtig zu hassen.
 
-"Danach", sagte Harry, "sagte der Schulleiter zu Professor Flitwick, dass es sich in der Tat um eine geheime und heikle Angelegenheit handele, über die er bereits informiert worden sei, und dass er nicht glaube, dass es mir oder irgendjemandem helfen würde, sie zu diesem Zeitpunkt vorzubringen. Professor Flitwick fing an, etwas darüber zu sagen, dass die üblichen Verschwörungen des Schulleiters viel zu weit gingen, und ich musste an dieser Stelle unterbrechen und erklären, dass es meine _eigene_ Idee gewesen war und nichts, wozu mich der Schulleiter gezwungen hatte, also drehte sich Professor Flitwick herum und fing an, _mich_ zu belehren, und der Schulleiter unterbrach _ihn_ und sagte, dass ich als der Junge-der-lebte dazu verdammt sei, seltsame und gefährliche Abenteuer zu erleben, und dass es daher sicherer sei, wenn ich mich absichtlich darauf einlasse, anstatt darauf zu warten, dass sie zufällig passieren, Und das war der Moment, in dem Professor Flitwick seine kleinen Hände in die Höhe warf und uns beide mit hoher Stimme anbrüllte, dass es ihm egal sei, was wir zusammen ausheckten, aber dass das nie wieder passieren dürfe, solange ich im Haus Ravenclaw sei, sonst würde er mich rauswerfen und ich könnte nach Gryffindor gehen, wo dieses ganze _Dumbledoring_ hingehörte..."
+"Danach", sagte Harry, "sagte der Schulleiter zu Professor Flitwick, dass es sich in der Tat um eine geheime und heikle Angelegenheit handele, über die er bereits informiert worden sei, und dass er nicht glaube, dass es mir oder irgendjemandem helfen würde, sie zu diesem Zeitpunkt vorzubringen. Professor Flitwick fing an, etwas darüber zu sagen, dass die üblichen Verschwörungen des Schulleiters viel zu weit gingen, und ich musste an dieser Stelle unterbrechen und erklären, dass es meine _eigene_ Idee gewesen war und nichts, wozu mich der Schulleiter gezwungen hatte. Also drehte sich Professor Flitwick herum und fing an, _mich_ zu belehren, und der Schulleiter unterbrach _ihn_ und sagte, dass ich als der Junge-der-lebte dazu verdammt sei, seltsame und gefährliche Abenteuer zu erleben, und dass es daher sicherer sei, wenn ich mich absichtlich darauf einlasse, anstatt darauf zu warten, dass sie zufällig passieren. Und das war der Moment, in dem Professor Flitwick seine kleinen Hände in die Luft warf und uns beide mit hoher Stimme anbrüllte, dass es ihm egal sei, was wir zusammen ausheckten, aber dass das nie wieder passieren dürfe, solange ich im Haus Ravenclaw sei, sonst würde er mich rauswerfen und ich könnte nach Gryffindor gehen, wo dieses ganze _Dumbledor-Getue_ hingehörte..."
 
 Harry machte es Draco _sehr_ schwer, ihn zu hassen.
 
-"Jedenfalls", sagte Harry, "wollte ich nicht aus Ravenclaw rausgeworfen werden, also versprach ich Professor Flitwick, dass so etwas nie wieder passieren würde, und wenn doch, würde ich ihm einfach sagen, wer es getan hat. "
+"Jedenfalls", sagte Harry, "wollte ich nicht aus Ravenclaw rausgeworfen werden, also versprach ich Professor Flitwick, dass so etwas nie wieder passieren würde, und wenn doch, würde ich ihm einfach sagen, wer es getan hat."
 
-Harrys Augen hätten kalt sein müssen. Das waren sie nicht. Die Stimme sollte sie zu einer tödlichen Bedrohung machen. Das war es nicht.
+Harrys Augen hätten kalt sein müssen. Das waren sie nicht. Die Stimme sollte sie zu einer tödlichen Bedrohung machen. Das tat sie nicht.
 
 Und Draco sah die Frage, die eigentlich offensichtlich hätte sein müssen, und sie killte die Stimmung im Nu.
 
-"Warum? . . nicht wahr?"
+"Warum ... hast Du nicht ...?"
 
 Harry ging zum Fenster hinüber, in den kleinen Sonnenstrahl, der in die Nische schien, und drehte seinen Kopf nach außen, in Richtung des grünen Geländes von Hogwarts. Die Helligkeit leuchtete auf ihn, auf seine Gewänder, auf sein Gesicht.
 
