@@ -232,57 +232,57 @@ Harry Potter sah aus, als ob er bereit wäre, jemanden zu töten.
 
 "Hermine Granger", sagte Harry Potter, gerade als Draco den Mund öffnen wollte. "_Frag nicht!_"
 
-Er kann doch nicht zu einem anderen Date gegangen sein, oder?", dachte Draco, aber das ergab keinen Sinn.
+"Er kann doch nicht zu einem anderen Date gegangen sein, oder?", dachte Draco, aber das ergab keinen Sinn.
 
 "Harry", sagte Draco, "es tut mir leid, aber ich muss das trotzdem fragen, hast du dem Schlammblutmädchen _wirklich_ einen teuren Eselsfellbeutel zu ihrem Geburtstag bestellt?"
 
 "Ja, das habe ich. Du hast natürlich schon herausgefunden, warum."
 
-Draco griff nach oben und fuhr sich frustriert mit den Fingern durch die Haare, wobei seine Kutte über seinen Handrücken strich. Er war sich nicht ganz sicher, warum, aber jetzt konnte er es nicht mehr sagen. Und Slytherin _wusste_, dass er Harry Potter den Hof machte, er hatte es im Verteidigungsunterricht deutlich genug gemacht. "Harry", sagte Draco, "die Leute wissen, dass ich mit dir befreundet bin, sie wissen natürlich nichts von der Verschwörung, aber sie wissen, dass wir Freunde sind, und es lässt _mich_ schlecht aussehen, wenn du so etwas machst. "
+Draco griff nach oben und fuhr sich frustriert mit den Fingern durch die Haare, wobei seine Kutte über seinen Handrücken strich. Er war sich nicht ganz sicher, warum, aber jetzt konnte er es nicht mehr sagen. Und Slytherin _wusste_, dass er Harry Potter den Hof machte, er hatte es im Verteidigungsunterricht deutlich genug gemacht. "Harry", sagte Draco, "die Leute wissen, dass ich mit dir befreundet bin, sie wissen natürlich nichts von der Verschwörung, aber sie wissen, dass wir Freunde sind, und es lässt _mich_ schlecht aussehen, wenn du so etwas machst."
 
-Harry Potters Gesicht straffte sich. "Jeder in Slytherin, der nicht versteht, dass man zu Leuten, die man eigentlich nicht mag, nett sein soll, sollte zermahlen und an Haustierschlangen verfüttert werden. "
+Harry Potters Gesicht straffte sich. "Jeder in Slytherin, der nicht versteht, dass man zu Leuten, die man eigentlich nicht mag, nett sein soll, sollte zermahlen und an Haustierschlangen verfüttert werden."
 
-"Es gibt eine Menge Leute in Slytherin, die _das nicht tun_" sagte Draco, seine Stimme ernst. "Die meisten Leute sind dumm, und du musst vor ihnen sowieso gut aussehen. " Harry Potter _musste_ das verstehen, wenn er jemals im Leben etwas erreichen wollte.
+"Es gibt eine Menge Leute in Slytherin, die _das nicht tun_", sagte Draco, seine Stimme ernst. "Die meisten Leute sind dumm, und du musst vor ihnen auch gut aussehen." Harry Potter _musste_ das verstehen, wenn er jemals im Leben etwas erreichen wollte.
 
-"Was kümmert es _dich_, was andere Leute denken? Willst du wirklich dein Leben lang alles, was du tust, den dümmsten Idioten in Slytherin erklären und dich von ihnen beurteilen lassen? Es tut mir leid, Draco, aber ich werde meine schlauen Pläne nicht auf das Niveau senken, das die dümmsten Slytherins verstehen können, nur weil es dich sonst schlecht aussehen lässt. Nicht einmal deine Freundschaft ist das wert. Es würde _den ganzen Spaß aus dem Leben nehmen. Sag mir, dass _du_ noch nie das Gleiche gedacht hast, wenn jemand in Slytherin zu dumm zum Atmen ist, dass es unter der Würde eines Malfoys ist, ihnen nachgeben zu müssen. "
+"Was kümmert es _dich_, was andere Leute denken? Willst du wirklich dein Leben lang alles, was du tust, den dümmsten Idioten in Slytherin erklären und dich von ihnen beurteilen lassen? Es tut mir leid, Draco, aber ich werde meine schlauen Pläne nicht auf das Niveau senken, das die dümmsten Slytherins verstehen können, nur weil es dich sonst schlecht aussehen lässt. Nicht einmal deine Freundschaft ist das wert. Es würde _den ganzen Spaß_ verderben. Sag mir, dass _du_ noch nie das Gleiche gedacht hast, wenn jemand in Slytherin zu dumm zum Atmen ist, dass es unter der Würde eines Malfoys ist, ihnen nachgeben zu müssen."
 
 Draco hatte das wirklich nicht. Niemals. Sich Idioten anbiedern war wie atmen, man tat es ohne darüber nachzudenken.
 
-"Harry", sagte Draco schließlich. "Einfach zu tun, was man will, ohne sich Gedanken darüber zu machen, wie es aussieht, ist nicht klug. Der _Dunkler Lord_ sorgte sich darum, wie er aussah! Er wurde gefürchtet und gehasst, und er wusste _genau_, welche Art von Angst und Hass er erzeugen wollte. _Jeder_ muss sich Gedanken darüber machen, was andere Leute denken. "
+"Harry", sagte Draco schließlich. "Einfach zu tun, was man will, ohne sich Gedanken darüber zu machen, wie es aussieht, ist nicht klug. Der _Dunkle Lord_ sorgte sich darum, wie er aussah! Er wurde gefürchtet und gehasst, und er wusste _genau_, welche Art von Angst und Hass er erzeugen wollte. _Jeder_ muss sich Gedanken darüber machen, was andere Leute über ihn denken."
 
-Die vermummte Gestalt zuckte mit den Schultern. "Vielleicht. Erinnere mich irgendwann daran, dir von etwas zu erzählen, das sich Aschs Konformitätsexperiment nennt, du könntest es recht amüsant finden. Für den Moment möchte ich nur anmerken, dass es gefährlich ist, sich darüber Gedanken zu machen, was andere Leute aus _Instinkt_ heraus denken, weil es dich _wirklich interessiert_, nicht als eine Angelegenheit von kaltblütiger Berechnung. Erinnere dich, ich wurde fünfzehn Minuten lang von älteren Slytherins geschlagen und gemobbt, und danach stand ich auf und vergab ihnen gnädig. So wie es der gute und tugendhafte Junge-der-lebte tun sollte. Aber meine kaltblütigen Berechnungen, Draco, sagen mir, dass ich _keine Verwendung_ für die dümmsten Idioten in Slytherin habe, da _ich keine Hausschlange besitze. Ich habe also keinen Grund, mich darum zu kümmern, was sie darüber denken, wie ich mein Duell mit Hermine Granger führe. "
+Die vermummte Gestalt zuckte mit den Schultern. "Vielleicht. Erinnere mich irgendwann daran, dir von etwas zu erzählen, das sich Aschs Konformitätsexperiment nennt, du könntest es recht amüsant finden. Für den Moment möchte ich nur anmerken, dass es gefährlich ist, sich darüber Gedanken zu machen, was andere Leute aus _Instinkt_ heraus denken, weil es dich _wirklich interessiert_, nicht als eine Angelegenheit von kaltblütiger Berechnung. Erinnere dich, ich wurde fünfzehn Minuten lang von älteren Slytherins geschlagen und gemobbt, und danach stand ich auf und vergab ihnen gnädig. So wie es der gute und tugendhafte Junge-der-lebt tun sollte. Aber meine kaltblütigen Berechnungen, Draco, sagen mir, dass ich _keine Verwendung_ für die dümmsten Idioten in Slytherin habe, da _ich keine Hausschlange besitze_. Ich habe also keinen Grund, mich darum zu kümmern, was sie darüber denken, wie ich mein Duell mit Hermine Granger führe."
 
-Draco ballte seine Fäuste nicht vor Frustration. "Sie ist nur ein Schlammblut", sagte Draco, wobei er seine Stimme ruhig hielt, anstatt zu schreien. "Wenn du sie nicht magst, stoße sie die Treppe hinunter. "
+Draco ballte seine Fäuste nicht vor Frustration. "Sie ist nur ein Schlammblut", sagte Draco, wobei er seine Stimme ruhig hielt, anstatt zu schreien. "Wenn du sie nicht magst, stoße sie die Treppe hinunter."
 
 "Ravenclaw würde es wissen -"
 
-"Lass Pansy Parkinson sie die Treppe runterschieben! Du müsstest sie nicht einmal manipulieren, biete ihr eine Sichel an und sie würde es tun!"
+"Lass Pansy Parkinson sie die Treppe runterstoßen! Du müsstest sie nicht einmal manipulieren, biete ihr einen Sichel an und sie würde es tun!"
 
-"_Ich_ würde es wissen! Hermine hat mich in einem Buchlesewettbewerb geschlagen, sie bekommt bessere Noten als ich, ich muss sie mit meinem _Hirn_ besiegen oder es zählt nicht!"
+"_Ich_ würde es wissen! Hermine hat mich in einem Buchlesewettbewerb geschlagen, sie bekommt bessere Noten als ich, ich muss sie mit meinem _Gehirn_ besiegen oder es zählt nicht!"
 
-"_Sie ist nur ein Schlammblut! Warum respektierst du sie so sehr?_ "
+"_Sie ist nur ein Schlammblut! Warum respektierst du sie so sehr?_"
 
-"Sie ist eine Macht unter den Ravenclaws! Was kümmert es dich, was irgendein machtloser Idiot in Slytherin denkt?_ "
+"Sie ist eine Macht unter den Ravenclaws! Was kümmert es dich, was irgendein machtloser Idiot _in Slytherin denkt?_"
 
-"_Das nennt man Politik! Und wenn du sie nicht spielen kannst, kannst du auch keine Macht haben!_ "
+"_Das nennt man Politik! Und wenn du das nicht spielen kannst, kannst du auch keine Macht haben!_"
 
-"_Auf dem Mond zu laufen ist Macht! Ein großer Zauberer zu sein ist Macht! Es gibt Arten von Macht, die nicht erfordern, dass ich den Rest meines Lebens damit verbringe, mich an Idioten zu wenden!
+"_Auf dem Mond zu laufen ist Macht_! Ein großer Zauberer zu sein ist Macht! Es gibt Arten von Macht, die nicht erfordern, dass ich den Rest meines Lebens damit verbringe, mich an Idioten zu wenden!"
 
 Beide hielten inne und begannen, in fast perfektem Einklang, tief einzuatmen, um sich zu beruhigen.
 
-"Tut mir leid", sagte Harry Potter nach ein paar Augenblicken und wischte sich den Schweiß von der Stirn. "Tut mir leid, Draco. Du hast eine Menge politischer Macht und es macht Sinn für dich, sie zu behalten. Du _solltest_ ausrechnen, was Slytherin denkt. Es ist ein wichtiges Spiel und ich hätte es nicht beleidigen sollen. Aber du kannst _mich_ nicht bitten, das Niveau meines Spiels in Ravenclaw zu senken, nur damit du nicht schlecht dastehst, indem du dich mit mir verbindest. Sag Slytherin, dass du mit den Zähnen knirschst, während du so tust, als wärst du mein Freund. "
+"Tut mir leid", sagte Harry Potter nach ein paar Augenblicken und wischte sich den Schweiß von der Stirn. "Tut mir leid, Draco. Du hast eine Menge politischer Macht und es macht Sinn für dich, sie zu behalten. Du _solltest_ beachten, was Slytherin denkt. Es ist ein wichtiges Spiel und ich hätte es nicht beleidigen sollen. Aber du kannst _mich_ nicht bitten, das Niveau meines Spiels in Ravenclaw zu senken, nur damit du nicht schlecht dastehst, indem du dich mit mir verbündest. Sag Slytherin, dass du mit den Zähnen knirschst, während du so tust, als wärst du mein Freund."
 
-Das war genau das, was Draco dem Slytherin erzählt hatte und er war sich immer noch nicht sicher, ob es stimmte.
+Das war genau das, was Draco Slytherin erzählt hatte und er war sich immer noch nicht sicher, ob es stimmte.
 
-"Wie auch immer", sagte Draco. "Wo wir gerade von deinem Image sprechen. Ich fürchte, ich habe ein paar schlechte Nachrichten. Rita Skeeter hat einige der Geschichten über dich gehört und sie hat Fragen gestellt. "
+"Wie auch immer", sagte Draco. "Wo wir gerade von deinem Image sprechen. Ich fürchte, ich habe ein paar schlechte Nachrichten. Rita Skeeter hat einige der Geschichten über dich gehört und sie hat Fragen gestellt."
 
 Harry Potter hob die Augenbrauen. "Wer?"
 
-"Sie schreibt für den _Tagespropheten,_" sagte Draco. Er versuchte, die Sorge aus seiner Stimme zu halten. Der _Tagesprophet_ war eines von Vaters wichtigsten Werkzeugen, er benutzte ihn wie einen Zauberstab. "Das ist die Zeitung, der die Leute tatsächlich Aufmerksamkeit schenken. Rita Skeeter schreibt über Berühmtheiten und benutzt ihre Feder, um deren aufgeblasenen Ruf zu zerstören. Wenn sie keine Gerüchte über dich finden kann, wird sie einfach ihre eigenen erfinden. "
+"Sie schreibt für den _Tagespropheten_", sagte Draco. Er versuchte, die Sorge aus seiner Stimme zu halten. Der _Tagesprophet_ war eines von Vaters wichtigsten Werkzeugen, er benutzte ihn wie einen Zauberstab. "Das ist die Zeitung, der die Leute tatsächlich Aufmerksamkeit schenken. Rita Skeeter schreibt über Berühmtheiten und benutzt ihre Feder, um deren aufgeblasenen Ruf zu zerstören. Wenn sie keine Gerüchte über dich finden kann, wird sie einfach ihre eigenen erfinden."
 
-"Ich _sehe_", sagte Harry Potter. Sein grün beleuchtetes Gesicht sah unter der Kutte sehr nachdenklich aus.
+"Ich _verstehe_", sagte Harry Potter. Sein grün beleuchtetes Gesicht sah unter der Kutte sehr nachdenklich aus.
 
-Draco zögerte, bevor er sagte, was er als nächstes zu sagen hatte. Inzwischen hatte sicher jemand Vater berichtet, dass er Harry Potter den Hof machte, und Vater würde auch wissen, dass Draco nicht nach Hause darüber geschrieben hatte, und Vater würde verstehen, dass Draco nicht glaubte, es wirklich geheim halten zu können, was eine klare Botschaft aussandte, dass Draco jetzt sein eigenes Spiel praktizierte, aber immer noch auf Vaters Seite war, denn wenn Draco weggelockt worden wäre, hätte er falsche Berichte geschickt.
+Draco zögerte, bevor er sagte, was er als nächstes zu sagen hatte. Inzwischen hatte sicher jemand Vater berichtet, dass er Harry Potter den Hof machte, und Vater würde auch wissen, dass Draco nicht nach Hause darüber geschrieben hatte, und Vater würde verstehen, dass Draco nicht glaubte, es wirklich geheim halten zu können, was eine klare Botschaft aussandte, dass Draco jetzt sein eigenes Spiel spielte, aber immer noch auf Vaters Seite war, denn wenn Draco weggelockt worden wäre, hätte er falsche Berichte geschickt.
 
 Daraus folgte, dass Vater wahrscheinlich vorausgesehen hatte, was Draco als nächstes sagen würde.
 
@@ -292,21 +292,21 @@ Das Spiel mit Vater in echt zu spielen, war ein ziemlich nervenaufreibendes Gef�
 
 Dass Vater erwartet hatte, dass Draco Harry Potter genau das sagen würde, hatte Draco nicht laut ausgesprochen. Harry Potter würde es von alleine schaffen, oder auch nicht.
 
-UNTRANSLATED: But instead Harry Potter shook his head, smiling beneath the cowl. "Ich habe nicht die Absicht, Rita Skeeter zu unterdrücken. "
+Doch stattdessen schüttelte Harry Potter den Kopf und lächelte unter der Kutte. "Ich habe nicht die Absicht, Rita Skeeter zu unterdrücken. "
 
 Draco versuchte gar nicht erst, die Ungläubigkeit aus seiner Stimme herauszuhalten. "Du _kannst_ mir nicht erzählen, dass es dir egal ist, was die _Zeitung_ über dich schreibt!"
 
-UNTRANSLATED: "I care less than you might think," said Harry Potter. "Aber ich habe meine eigenen Wege, mit Leuten wie Skeeter umzugehen. Ich brauche die Hilfe von Lucius nicht. "
+"Mir ist es mehr egal, als Du denkst," said Harry Potter. "Aber ich habe meine eigenen Wege, mit Leuten wie Skeeter umzugehen. Ich brauche die Hilfe von Lucius nicht. "
 
 Ein besorgter Blick kam über Dracos Gesicht, bevor er ihn aufhalten konnte. Was auch immer Harry Potter als Nächstes tun würde, es würde etwas sein, womit Vater nicht gerechnet hatte und Draco war sehr nervös, wohin das führen könnte.
 
-UNTRANSLATED: Draco also realized that his hair was getting sweaty underneath the cowl. Er hatte so etwas noch nie getragen und hatte nicht bemerkt, dass die Umhänge der Todesser wahrscheinlich so etwas wie Kühlzauber hatten.
+Draco bemerkte auch, dass sein Haar unter der Kutte verschwitzt war. Er hatte so etwas noch nie getragen und hatte nicht bemerkt, dass die Umhänge der Todesser wahrscheinlich so etwas wie Kühlzauber hatten.
 
 Harry Potter wischte sich wieder etwas Schweiß von der Stirn, zog eine Grimasse, zückte seinen Zauberstab, richtete ihn nach oben, holte tief Luft und sagte "_Frigideiro!_"
 
 Augenblicke später spürte Draco den kalten Luftzug.
 
-"_Bratpfanne! Bratpfanne! Bratpfanne! Bratpfanne! Frigideiro!_ "
+"_Frigideiro! Frigideiro! Frigideiro! Frigideiro! Frigideiro!_ "
 
 Dann ließ Harry Potter den Zauberstab sinken, obwohl seine Hand ein wenig zittrig wirkte, und steckte ihn zurück in seine Robe.
 
@@ -316,7 +316,7 @@ Der ganze Raum schien spürbar kühler zu sein. Das hätte Draco auch machen kö
 
 "Wir werden das mit dem Blut _herausfinden_", sagte Harry Potter. "Indem wir Experimente machen. "
 
-"In Ordnung", sagte Draco. UNTRANSLATED: "What sort of experiments?"
+"In Ordnung", sagte Draco. "Welche Art Experiment?"
 
 Harry Potter lächelte böse unter seiner Kutte und sagte: "Sag du es mir. "
 
@@ -340,15 +340,15 @@ Harry Potter hatte _genickt_.
 
 Draco hatte den Kopf geschüttelt.
 
-Harry Potter hatte dann die Idee präsentiert, dass Wissenschaftler Ideen beim Kämpfen beobachten, um zu sehen, welche gewinnen, und man _kann nicht ohne einen Gegner kämpfen,_ also musste Draco Gegner für die blutpuristische Hypothese finden, die er bekämpfen konnte, damit der Blutpurismus gewinnen konnte, was Draco ein wenig besser verstand, auch wenn Harry Potter es mit einem eher geschmacklosen Blick gesagt hatte. UNTRANSLATED: Like, it was clear that if blood purism was the way the world really was, then the sky just had to be blue, and if some other theory was true, the sky just had to be green; and nobody had seen the sky yet; and then you went outside and looked and the blood purists won; and after this had happened six times in a row, people would start noticing the trend.
+Harry Potter hatte dann die Idee präsentiert, dass Wissenschaftler Ideen beim Kämpfen beobachten, um zu sehen, welche gewinnen, und man _kann nicht ohne einen Gegner kämpfen,_ also musste Draco Gegner für die blutpuristische Hypothese finden, die er bekämpfen konnte, damit der Blutpurismus gewinnen konnte, was Draco ein wenig besser verstand, auch wenn Harry Potter es mit einem eher geschmacklosen Blick gesagt hatte. Es war klar, dass der Himmel blau sein musste, wenn die Welt wirklich blutrein war, und dass der Himmel grün sein musste, wenn eine andere Theorie stimmte; und niemand hatte den Himmel bisher gesehen; und dann ging man nach draußen und sah, dass die Blutpuristen gewonnen hatten; und nachdem das sechsmal hintereinander passiert war, bemerkten die Leute den Trend.
 
 Harry Potter hatte daraufhin behauptet, dass alle Gegner, die Draco erfunden hatte, zu schwach waren, so dass der Blutpurismus keine Anerkennung für den Sieg über sie bekommen würde, weil der Kampf nicht beeindruckend genug gewesen wäre. Draco hatte das auch verstanden. Zauberer sind schwächer geworden, weil Hauselfen unsere Magie stehlen" hatte sich für ihn auch nicht beeindruckend angehört.
 
 (Obwohl Harry Potter gesagt hatte, dass man das zumindest testen könnte, indem man versuchen könnte, zu überprüfen, ob die Hauselfen im Laufe der Zeit stärker geworden sind, und sogar ein Bild zeichnen könnte, das die zunehmende Stärke der Hauselfen darstellt und ein anderes Bild, das die abnehmende Stärke der Zauberer darstellt, und wenn die beiden Bilder übereinstimmen, würde das auf die Hauselfen hindeuten, alles in einem so ernsten Tonfall gesagt, dass Draco einen Impuls verspürte, Dobby unter Veritaserum ein paar spitze Fragen zu stellen, bevor er sich davon losriss. ).
 
-UNTRANSLATED: And Harry Potter had finally said that Draco _couldn't_ fix the battle, scientists weren't dumb, it would be _obvious_ if you fixed the battle, it had to be a _real fight,_ between two different theories that might both _really_ be true, with a test that only the _true_ hypothesis would win, something that actually _would_ come out different ways depending on which hypothesis was actually correct, and there would be experienced scientists watching to make sure that was exactly what happened. Harry Potter hatte behauptet, dass er selbst nur wissen wollte, _wie Blut wirklich funktionierte_ und dafür musste er sehen, wie der Blutpurismus _wirklich gewann_ und Draco hatte nicht vor, _ihn_ mit Theorien zu täuschen, die nur dazu da waren, um niedergemacht zu werden.
+Und Harry Potter hatte schließlich gesagt, dass Draco den Kampf nicht manipulieren _konnte_, Wissenschaftler waren nicht dumm, es wäre _offensichtlich_, wenn man den Kampf manipulierte, es musste ein _echter Kampf_ sein, zwischen zwei verschiedenen Theorien, die beide _wirklich_ wahr sein könnten, mit einem Test, den nur die _wahre_ Hypothese gewinnen würde, etwas, das tatsächlich unterschiedlich ausfallen _würde_, je nachdem, welche Hypothese tatsächlich richtig war, und es würden erfahrene Wissenschaftler zusehen, um sicherzustellen, dass genau das geschah. Harry Potter hatte behauptet, dass er selbst nur wissen wollte, _wie Blut wirklich funktionierte_ und dafür musste er sehen, wie der Blutpurismus _wirklich gewann_ und Draco hatte nicht vor, _ihn_ mit Theorien zu täuschen, die nur dazu da waren, um niedergemacht zu werden.
 
-UNTRANSLATED: Even having seen the point, Draco hadn't been able to invent any "plausible alternatives", as Harry Potter put it, to the idea that wizards were getting less powerful because they were mixing their blood with mud. Es war zu offensichtlich wahr.
+Selbst wenn Draco den Punkt erkannt hatte, war er nicht in der Lage gewesen, eine "plausible Alternative", wie Harry Potter es ausdrückte, zu der Idee zu finden, dass Zauberer weniger mächtig wurden, weil sie ihr Blut mit Schlamm vermischten. Es war zu offensichtlich wahr.
 
 Da hatte Harry Potter ziemlich frustriert gesagt, dass er sich nicht vorstellen könne, dass Draco _wirklich_ so schlecht darin sei, andere Standpunkte zu berücksichtigen, _sicherlich_ habe es Todesser gegeben, die sich als Feinde des Blutpurismus ausgegeben und viel plausibler klingende Argumente gegen ihre eigene Seite vorgebracht hätten, als Draco es tat. Wenn Draco versucht hätte, sich als Mitglied von Dumbledores Fraktion auszugeben und mit der Hauselfen-Hypothese aufzuwarten, hätte er niemanden auch nur eine Sekunde lang getäuscht.
 
@@ -364,17 +364,17 @@ In diesem Moment hatte Draco erkannt, dass mit Harry Potters Gehirn etwas zutief
 
 Harry Potter war dann in weitere und erhebliche Details gegangen: Draco sollte sich als Todesser ausgeben, der sich als Herausgeber einer wissenschaftlichen Zeitschrift ausgibt, Dr. Malfoy, der seinen Feind Dr. Potters Abhandlung "Über die Vererbbarkeit magischer Fähigkeiten", und wenn der Todesser sich nicht wie ein echter Wissenschaftler verhalten würde, würde er als Todesser entlarvt und hingerichtet werden, während Dr. Malfoy wurde auch von seinen eigenen Rivalen beobachtet und musste _scheinen_, um Dr. Potters Arbeit aus neutralen wissenschaftlichen Gründen oder er würde seine Position als Herausgeber der Zeitschrift verlieren.
 
-Es war ein Wunder, dass der Sortierhut nicht in St. Pauli herumgeisterte. UNTRANSLATED: Mungo's.
+Es war ein Wunder, dass der Sortierhut nicht in St. Mungo's herumgeisterte.
 
 Es war auch die komplizierteste Sache, um die jemand Draco gebeten hatte und es gab keine Möglichkeit, dass er die Herausforderung hätte ablehnen können.
 
 Im Moment waren sie, wie Harry Potter es ausgedrückt hatte, dabei, sich in Stimmung zu bringen.
 
-"Ich fürchte, Dr. UNTRANSLATED: Potter, that you wrote this in the wrong color of ink," Draco said. UNTRANSLATED: "Next!"
+"Ich fürchte, Dr. Potter, dass Sie das in der falschen Tintenfarbe geschrieben haben", sagte Draco. "Der Nächste!"
 
-Dr. Potters Gesicht verknitterte vor Verzweiflung und Draco konnte nicht anders, als einen Anflug von Dr. Malfoys Schadenfreude, obwohl der Todesser nur so tat, als wäre er Dr. Malfoy.
+Dr. Potters Gesicht verknitterte vor Verzweiflung und Dr. Malfoy konnte nicht anders, als einen Anflug von Schadenfreude zu fühlen, obwohl der Todesser nur so tat, als wäre er Dr. Malfoy.
 
-Dieser Teil hat _Spaß gemacht. UNTRANSLATED: _ He could have done this all day long.
+Dieser Teil hat _Spaß_ gemacht. Das könnte er den ganzen Tag lang machen.
 
 Dr. Potter stand vom Stuhl auf, sackte erschrocken in sich zusammen und stapfte davon. Er verwandelte sich in Harry Potter, der Draco einen Daumen hoch gab und sich dann wieder in Dr. Potter wieder, der sich nun mit einem eifrigen Lächeln näherte.
 
@@ -386,15 +386,15 @@ _Dr. H. J. Potter-Evans-Verres, Institute for Sufficiently Advanced Science_
 
 _Meine Beobachtung:_
 
-Heutige Zauberer können nicht so beeindruckende Dinge tun wie
-was die Zauberer vor 800 Jahren taten. UNTRANSLATED: _
+_Heutige Zauberer können nicht so beeindruckende Dinge tun wie
+was die Zauberer vor 800 Jahren taten._
 
 _Mein Fazit:_
 
-Die Zauberer sind schwächer geworden durch die Vermischung
-ihr Blut mit Muggelgeborenen und Squibs. UNTRANSLATED: _
+_Die Zauberer sind schwächer geworden durch die Vermischung
+ihr Blut mit Muggelgeborenen und Squibs._
 
-"Dr. Malfoy", sagte Dr. Potter mit einem hoffnungsvollen Blick: "Ich habe mich gefragt, ob das _Journal of Irreproducible Results_ meine Arbeit mit dem Titel 'On the Heritability of Magical Ability' zur Veröffentlichung in Betracht ziehen könnte. "
+"Dr. Malfoy", sagte Dr. Potter mit einem hoffnungsvollen Blick: "Ich habe mich gefragt, ob das _Journal der Nicht-Reproduzierbaren Ergebnisse_ meine Arbeit mit dem Titel 'Über die Vererbbarkeit von Zauberkraft' zur Veröffentlichung in Betracht ziehen könnte."
 
 Draco blickte auf das Pergament und lächelte, während er über mögliche Ablehnungen nachdachte. Wenn er ein Professor wäre, hätte er den Aufsatz als zu kurz abgelehnt, also -.
 
@@ -404,11 +404,11 @@ Für einen Moment war echte Ungläubigkeit auf Dr. Potters Gesicht.
 
 "Ah..." sagte Dr. Potter. "Was, wenn ich die separaten Zeilen für Beobachtung und Schlussfolgerung weg lasse, und nur ein _deshalb_ hinschreibe?"
 
-"Dann wäre es zu kurz. UNTRANSLATED: Next!"
+"Dann wäre es zu kurz. Der Nächste!"
 
-UNTRANSLATED: Dr. UNTRANSLATED: Potter trudged off.
+Dr. tapste Potter davon.
 
-"In Ordnung", sagte Harry Potter, "du wirst _zu_ gut darin. UNTRANSLATED: Two more times to practice, and then third time is for real, no interruptions between, I'll just come in straight at you and that time you'll reject the paper based on the actual content, remember, your scientific rivals are watching."
+"In Ordnung", sagte Harry Potter, "du wirst _zu_ gut darin. Zwei weitere Male zum Üben, und beim dritten Mal geht es dann richtig zur Sache, ohne Unterbrechungen, ich komme einfach direkt auf dich zu, und dieses Mal wirst du das Papier aufgrund des tatsächlichen Inhalts ablehnen, denk daran, deine wissenschaftlichen Konkurrenten schauen zu."
 
 Dr. Potters nächste Arbeit war in jeder Hinsicht perfekt, ein Wunderwerk seiner Art, musste aber leider abgelehnt werden, weil Dr. Malfoys Tagebuch Probleme mit dem Buchstaben E. hatte. Dr. Potter bot an, es ohne diese Worte umzuschreiben, und Dr. Malfoy erklärte, dass es eigentlich eher ein Problem mit den Vokalen war.
 
@@ -416,7 +416,7 @@ Das Papier danach wurde abgelehnt, weil es Dienstag war.
 
 Es war in der Tat ein Samstag.
 
-Dr. Potter versuchte, darauf hinzuweisen und wurde mit "Next!" begrüßt.
+Dr. Potter versuchte, darauf hinzuweisen und wurde mit "Der Nächste!" begrüßt.
 
 (Draco begann zu verstehen, warum Snape seine Macht über Dumbledore ausgenutzt hatte, nur um eine Position zu bekommen, die es ihm erlaubte, schrecklich zu Schülern zu sein.)
 
@@ -424,13 +424,13 @@ Und dann -.
 
 Dr. Potter kam mit einem überlegenen Grinsen auf seinem Gesicht auf uns zu.
 
-UNTRANSLATED: "This is my latest paper, _On the Heritability of Magical Ability,_" Dr. erklärte Potter selbstbewusst und streckte das Pergament aus. "Ich habe mich entschlossen, Ihrer Zeitschrift die Veröffentlichung zu erlauben und habe sie in perfekter Übereinstimmung mit Ihren Richtlinien vorbereitet, damit Sie sie schnell veröffentlichen können. "
+"Das ist meine letzte Arbeit, _Über die Vererblichkeit von Zauberkraft_", erklärte Dr. Potter selbstbewusst und streckte das Pergament aus. "Ich habe mich entschlossen, Ihrer Zeitschrift die Veröffentlichung zu erlauben und habe sie in perfekter Übereinstimmung mit Ihren Richtlinien vorbereitet, damit Sie sie schnell veröffentlichen können."
 
-Der Todesser entschied sich, Dr. aufzuspüren und zu töten. Potter, nachdem seine Mission erledigt war. Dr. UNTRANSLATED: Malfoy kept a polite smile on his face, since his rivals were watching, and said...
+Der Todesser entschied sich, Dr. Potter aufzuspüren und zu töten, nachdem seine Mission erledigt war. Dr. Malfoy lächelte höflich, da seine Rivalen ihn beobachteten, und sagte...
 
-UNTRANSLATED: (The pause stretched, with Dr. UNTRANSLATED: Potter looking at him impatiently. ).
+(Die Pause wurde länger, und Dr. Potter sah ihn ungeduldig an.)
 
-... UNTRANSLATED: "Let me look at that, please. "
+... "Lassen Sie mich das bitte anschauen."
 
 Dr. Malfoy nahm das Pergament und betrachtete es sorgfältig.
 
@@ -438,17 +438,17 @@ Der Todesser wurde langsam nervös, weil er kein richtiger Wissenschaftler war, 
 
 "Du, ähm, musst andere mögliche Erklärungen für deine, ähm, Beobachtung in Betracht ziehen, als nur diese eine -"
 
-"Wirklich?", unterbrach Dr. Potter. "Was genau zum Beispiel? Hauselfen stehlen unsere Magie?" Meine Daten lassen nur eine mögliche Schlussfolgerung zu, Dr. Malfoy. Es _gibt_ keine anderen plausiblen Hypothesen. "
+"Wirklich?", unterbrach Dr. Potter. "Was genau zum Beispiel? Hauselfen stehlen unsere Magie?" Meine Daten lassen nur eine mögliche Schlussfolgerung zu, Dr. Malfoy. Es _gibt_ keine anderen plausiblen Hypothesen."
 
 Draco versuchte krampfhaft, seinem Gehirn zu befehlen, zu denken. Was würde er sagen, wenn er sich als Mitglied von Dumbledores Fraktion ausgeben würde, was _hatten_ sie als Erklärung für den Niedergang der Zauberer behauptet, Draco hatte sich nie die Mühe gemacht, das wirklich zu fragen...
 
-"Wenn dir kein anderer Weg einfällt, um meine Daten zu erklären, dann musst du meine Arbeit veröffentlichen, _Dr. Malfoy. UNTRANSLATED: _"
+"Wenn dir kein anderer Weg einfällt, um meine Daten zu erklären, dann musst du meine Arbeit veröffentlichen, _Dr. Malfoy_."
 
-Es war der spöttische Blick von Dr. UNTRANSLATED: Potter's face that did it.
+Es war der spöttische Blick von Dr. Potters Gesicht, dass den Ausschlag gab.
 
-"Ach ja?", schnappte Dr. UNTRANSLATED: Malfoy. "Woher weißt du, dass die Magie selbst nicht verblasst?"
+"Ach ja?", schnappte Dr. Malfoy. "Woher weißt du, dass die Magie selbst nicht verblasst?"
 
-UNTRANSLATED: Time stopped.
+Die Zeit selbst stoppte.
 
 Draco und Harry Potter tauschten entsetzte Blicke aus.
 
@@ -462,27 +462,27 @@ Nach ein paar Augenblicken schnappte sich Harry von einem nahegelegenen Schreibt
 
 "Wir werden es herausfinden", sagte Harry mit fester Stimme, "wenn die Magie aus der Welt schwindet, werden wir herausfinden, wie schnell sie schwindet und wie viel Zeit wir noch haben, um etwas zu tun, und dann werden wir herausfinden, warum sie schwindet, und dann werden wir etwas dagegen tun. Draco, haben die Zauberkräfte stetig abgenommen oder gab es plötzliche Einbrüche?"
 
-"I... Ich weiß es nicht... "
+"Ich... Ich weiß es nicht... "
 
 "Du hast mir gesagt, dass es niemand mit den vier Gründern von Hogwarts aufnehmen kann. Es geht also schon seit mindestens acht Jahrhunderten so weiter? Du kannst dich nicht daran erinnern, irgendetwas darüber gehört zu haben, dass die Probleme plötzlich vor fünf Jahrhunderten aufgetaucht sind oder so etwas?"
 
 Draco versuchte krampfhaft zu denken. "Ich habe immer gehört, dass niemand so gut war wie Merlin und danach war niemand so gut wie die Gründer von Hogwarts. "
 
-UNTRANSLATED: "All right," Harry said. Er hat immer noch gekritzelt. UNTRANSLATED: "Because three centuries ago is when Muggles started to not believe in magic, which I thought might have something to do with it. UNTRANSLATED: And about a century and a half ago was when Muggles began using a kind of technology that stops working around magic and I was wondering if it might also go the other way around. "
+"Also gut", sagte Harry, der immernoch gkritzelte. "Denn vor drei Jahrhunderten begannen die Muggel, nicht mehr an Magie zu glauben, und ich dachte, das könnte etwas damit zu tun haben. Und vor etwa anderthalb Jahrhunderten begannen die Muggel, eine Art von Technologie zu verwenden, die ohne Magie nicht mehr funktioniert, und ich habe mich gefragt, ob es vielleicht auch andersherum ist."
 
-UNTRANSLATED: Draco exploded out of his chair, so angry he could hardly even speak. UNTRANSLATED: "It's the _Muggles_ -"
+Draco sprang aus seinem Stuhl, so wütend, dass er fast nicht mehr sprechen konnte. "Es sind die _Muggel_ -"
 
-UNTRANSLATED: "_Damn it!_ " roared Harry. "Hast du dir selbst nicht zugehört?_Das geht schon seit mindestens acht Jahrhunderten so und die Muggel haben damals nichts Interessantes getan! Die Muggel _könnten_ etwas damit zu tun haben, aber wenn sie es _nicht_ tun und du alles auf sie schiebst und uns daran hinderst, herauszufinden, was _wirklich_ vor sich geht, dann wirst du eines Tages morgens aufwachen und feststellen, dass dein Zauberstab nur ein Stück Holz ist!"
+"_Verdammt!_" rief Harry. "Hast du dir selbst nicht zugehört?_Das geht schon seit mindestens acht Jahrhunderten so und die Muggel haben damals nichts Interessantes getan_! Die Muggel _könnten_ etwas damit zu tun haben, aber wenn sie es _nicht_ tun und du alles auf sie schiebst und uns daran hinderst, herauszufinden, was _wirklich_ vor sich geht, dann wirst du eines Tages morgens aufwachen und feststellen, dass dein Zauberstab nur ein Stück Holz ist!"
 
-UNTRANSLATED: Draco's breath stopped in his throat. UNTRANSLATED: His father often said _our wands will break in our hands_ in his speeches but Draco had never really thought before about what that _meant_, it wasn't going to happen to _him_ after all. UNTRANSLATED: And now suddenly it seemed very real. Nur ein Stock aus Holz. UNTRANSLATED: _ Draco could imagine just what it would be like to take out his wand and try to cast a spell and find that nothing was happening...
+Draco blieb der Atem in der Kehle stecken. Sein Vater sagte in seinen Reden oft, dass _unsere Zauberstäbe in unseren Händen zerbrechen werden_, aber Draco hatte noch nie darüber nachgedacht, was das _bedeutete_, es würde _ihm_ schließlich nicht passieren. Und jetzt schien es plötzlich sehr real zu sein. _Nur ein Stock aus Holz._ Draco konnte sich vorstellen, wie es wäre, seinen Zauberstab zu nehmen und zu versuchen, einen Zauber zu sprechen, und festzustellen, dass nichts passierte...
 
-UNTRANSLATED: That could happen to _everyone_
+Das könnte _jedem_ passieren.
 
-UNTRANSLATED: There would be no more wizards, no more magic, ever. UNTRANSLATED: Just Muggles who had a few legends about what their ancestors had been able to do. UNTRANSLATED: Some of the Muggles would be called Malfoy, and that would be all that was left of the name.
+Es würde keine Zauberer mehr geben, keine Magie mehr, niemals. Nur noch Muggel, die ein paar Legenden darüber hatten, was ihre Vorfahren zu tun vermochten. Einige der Muggel würden Malfoy genannt werden, und das wäre alles, was von dem Namen übrig bleiben würde.
 
-UNTRANSLATED: For the first time in his life, Draco realized why there were Death Eaters.
+Zum ersten Mal in seinem Leben wurde Draco klar, warum es die Todesser gab.
 
-UNTRANSLATED: He'd always taken for granted that becoming a Death Eater was something you did when you grew up. Jetzt _verstand_ Draco, er wusste, warum Vater und Vaters Freunde geschworen hatten, ihr Leben zu geben, um den Albtraum zu verhindern, es gab Dinge, bei denen man nicht einfach zusehen konnte, wie sie passierten. Aber was, wenn es _irgendwie_ passieren würde, was, wenn all die Opfer, all die Freunde, die sie an Dumbledore verloren hatten, die _Familie_, die sie verloren hatten, was, wenn das alles für _nichts_ gewesen wäre... _
+Er war immer davon ausgegangen, dass man einfach ein Todesser wird, wenn man erwachsen ist. Jetzt _verstand_ Draco, er wusste, warum Vater und Vaters Freunde geschworen hatten, ihr Leben zu geben, um den Albtraum zu verhindern, es gab Dinge, bei denen man nicht einfach zusehen konnte, wie sie passierten. Aber was, wenn es _irgendwie_ passieren würde, was, wenn all die Opfer, all die Freunde, die sie an Dumbledore verloren hatten, die _Familie_, die sie verloren hatten, was, wenn das alles für _nichts_ gewesen wäre... _
 
 "Die Magie _kann_ nicht schwinden", sagte Draco. Seine Stimme brach. "Es wäre nicht _fair_ "
 
@@ -494,79 +494,82 @@ Vater hatte das jedes Mal gesagt, wenn Draco das Wort benutzte. "Aber, aber, es 
 
 "Was wahr ist, ist schon so", wiederholte Draco, seine Stimme zitterte, "es zuzugeben, macht es nicht schlimmer. "
 
-UNTRANSLATED: "If magic is fading, I want to believe that magic is fading. Wenn die Magie nicht vergeht, möchte ich nicht glauben, dass die Magie vergeht. Sag es. "
+"Wenn die Magie verschwindet, möchte ich glauben, dass die Magie verschwindet. Wenn die Magie nicht verschwindet, möchte ich nicht glauben, dass die Magie verschwindet. Sag es."
 
-UNTRANSLATED: Draco repeated back the words, the sickness churning in his stomach.
+Draco wiederholte die Worte, während sich die Übelkeit in seinem Magen zusammenbraute.
 
-UNTRANSLATED: "Good," Harry said, "remember, it might _not_ be happening, and then you won't have to believe it, either. _Erst_ wollen wir einfach wissen, was eigentlich los ist, in welcher Welt wir eigentlich leben. UNTRANSLATED: " Harry turned back to his work, scribbled some more, and then turned the parchment so Draco could see it. Draco lehnte sich über den Schreibtisch und Harry brachte das grüne Licht näher.
+"Gut", sagte Harry, "denk daran, dass es vielleicht _nicht_ passiert, und dann musst du es auch nicht glauben. _Erst_ wollen wir einfach wissen, was eigentlich los ist, in welcher Welt wir eigentlich leben." Harry wandte sich wieder seiner Arbeit zu, kritzelte noch etwas und drehte dann das Pergament so, dass Draco es sehen konnte. Draco lehnte sich über den Schreibtisch und Harry brachte das grüne Licht näher.
 
-UNTRANSLATED: _Observation:_
+_Beobachtung:_
 
-Die Zauberei ist heute nicht mehr so mächtig, wie sie es bei der Gründung von Hogwarts war. UNTRANSLATED: _
+_Die Zauberei ist heute nicht mehr so mächtig, wie sie es bei der Gründung von Hogwarts war._
 
-UNTRANSLATED: _Hypotheses:_
+_Hypothesen:_
 
-_1\. Die Magie selbst verblasst. 2\. UNTRANSLATED: Wizards are interbreeding with Muggles and Squibs. 3\. Das Wissen, mächtige Zauber zu wirken, geht verloren. __
-4\. Zauberer essen als Kinder das Falsche, oder etwas anderes als Blut lässt sie schwächer aufwachsen. 5\. Muggeltechnologie greift in die Magie ein. (Seit 800 Jahren?)
-6\. Stärkere Zauberer bekommen weniger Kinder. UNTRANSLATED: (Draco = only child? Check if 3 powerful wizards, Quirrell / Dumbledore / Dunkler Lord, had any children. )_
+1. Die Magie selbst verblasst. 
+2. Zauberer kreuzen sich mit Muggeln und Squibs. 
+3. Das Wissen, mächtige Zauber zu wirken, geht verloren.
+4. Zauberer essen als Kinder das Falsche, oder etwas anderes als Blut lässt sie schwächer aufwachsen. 
+5. Muggeltechnologie greift in die Magie ein. (Seit 800 Jahren?)
+6. Stärkere Zauberer bekommen weniger Kinder. (Draco = Einzelkind? Prüfen ob 3 mächtige Zauberer, Quirrell / Dumbledore / Dunkler Lord, irgendwelche Kinder hatten.)
 
 _Tests:_
 
-"In Ordnung", sagte Harry. Seine Atmung klang ein wenig ruhiger. "Wenn du es mit einem verwirrenden Problem zu tun hast und du keine Ahnung hast, was los ist, ist es klug, ein paar wirklich einfache Tests zu machen, Dinge, die du dir sofort ansehen kannst. Wir brauchen schnelle Tests, die zwischen diesen Hypothesen unterscheiden. UNTRANSLATED: Observations that would come out a different way for at least one of them compared to all the other ones. "
+"In Ordnung", sagte Harry. Seine Atmung klang ein wenig ruhiger. "Wenn du es mit einem verwirrenden Problem zu tun hast und du keine Ahnung hast, was los ist, ist es klug, ein paar wirklich einfache Tests zu machen, Dinge, die du dir sofort ansehen kannst. Wir brauchen schnelle Tests, die zwischen diesen Hypothesen unterscheiden. Beobachtungen, die bei mindestens einem von ihnen anders ausfallen würden als bei allen anderen."
 
-UNTRANSLATED: Draco stared at the list in shock. Ihm wurde plötzlich klar, dass er sehr viele Reinblüter kannte, die nur Kinder waren. Er selbst, Vincent, Gregory, praktisch _jeder. UNTRANSLATED: _ The two most powerful wizards everyone talked about were Dumbledore and the Dunkler Lord and neither had any children just like Harry had suspected...
+Draco starrte die Liste geschockt an. Ihm wurde plötzlich klar, dass er sehr viele Reinblüter kannte, die Einzelkinder waren. Er selbst, Vincent, Gregory, praktisch _jeder_. Die beiden mächtigsten Zauberer, von denen alle sprachen, waren Dumbledore und der Dunkler Lord, und beide hatten keine Kinder, wie Harry vermutet hatte....
 
-UNTRANSLATED: "It's going to be really hard to distinguish between 2 and 6," Harry said, "it's in the blood either way, you'd have to try and track the decline of wizardry and compare that to how many kids different wizards were having and measure the abilities of Muggleborns compared to purebloods... UNTRANSLATED: " Harry's fingers were tapping nervously on the desk. UNTRANSLATED: "Let's just lump 6 in with 2 and call them the blood hypothesis for now. UNTRANSLATED: 4 is unlikely because then everyone would notice a sudden drop when the wizards switched to new foods, it's hard to see what would've changed steadily over 800 years. 5 ist aus dem gleichen Grund unwahrscheinlich, kein plötzlicher Abfall, Muggel haben vor 800 Jahren nichts gemacht. UNTRANSLATED: 4 looks like 2 and 5 looks like 1 anyway. Wir sollten also hauptsächlich versuchen, zwischen 1, 2 und 3 zu unterscheiden. " Harry drehte das Pergament zu sich, zeichnete eine Ellipse um die drei Zahlen und drehte es zurück. UNTRANSLATED: "Magic is fading, blood is weakening, knowledge is disappearing. UNTRANSLATED: What test comes out differently depending on which of those is true? What could we see that would mean any one of these was false?"
+"Es wird wirklich schwer sein, zwischen zwei und sechs zu unterscheiden", sagte Harry, "es liegt so oder so im Blut, man müsste versuchen, den Niedergang der Zauberei zu verfolgen und damit vergleichen, wie viele Kinder die verschiedenen Zauberer bekamen, und die Fähigkeiten von Muggelgeborenen im Vergleich zu Reinblütigen messen..." Harrys Finger klopften nervös auf den Schreibtisch. "Lass uns 6 und 2 in einen Topf werfen und sie vorerst die Bluthypothese nennen. 4 ist unwahrscheinlich, denn dann würde jeder einen plötzlichen Rückgang bemerken, wenn die Zauberer auf neue Nahrungsmittel umsteigen, und es ist schwer zu erkennen, was sich über 800 Jahre hinweg stetig verändert haben soll. 5 ist aus dem gleichen Grund unwahrscheinlich, kein plötzlicher Abfall, Muggel haben vor 800 Jahren nichts gemacht. 4 sieht aus wie 2 und 5 sieht sowieso aus wie 1. Wir sollten also hauptsächlich versuchen, zwischen 1, 2 und 3 zu unterscheiden." Harry drehte das Pergament zu sich, zeichnete eine Ellipse um die drei Zahlen und drehte es zurück. "Die Magie schwindet, das Blut wird schwächer, das Wissen verschwindet. Test fällt unterschiedlich aus, je nachdem, was davon zutrifft? Was könnten wir sehen, was bedeuten würde, dass eine dieser Aussagen falsch ist?"
 
-"_Ich_ weiß es nicht!", platzte Draco heraus. UNTRANSLATED: "Why are you asking me? You're the scientist!"
+"_Ich_ weiß es nicht!", platzte Draco heraus. "Warum fragst Du mich? Du bist der Wissenschaftler!"
 
 "Draco", sagte Harry mit einem Ton flehender Verzweiflung in der Stimme, "ich weiß nur, was Muggelwissenschaftler wissen! Du bist in der Welt der Zauberer aufgewachsen, ich nicht! Du weißt mehr über Magie als ich und du weißt mehr _über_ Magie als ich und du hast dir diese ganze Idee überhaupt erst ausgedacht, also fang an wie ein Wissenschaftler zu denken und löse das Problem!"
 
-UNTRANSLATED: Draco swallowed hard and stared at the paper.
+Draco schluckte hart und starrte auf das Papier.
 
-Die Magie verblasst... UNTRANSLATED: wizards are interbreeding with Muggles... Das Wissen geht verloren...
+Die Magie verblasst... Zauberer kreuzen sich mit Muggeln und Squibs... Das Wissen geht verloren...
 
-UNTRANSLATED: "What does the world look like if magic is fading?" said Harry Potter. "Du weißt mehr über Magie, du solltest derjenige sein, der rät, nicht ich! Stell dir vor, du erzählst eine Geschichte darüber, was passiert in der Geschichte?"
+"Wie sieht die Welt aus, wenn die Magie verblasst?", fragte Harry Potter. "Du weißt mehr über Magie, du solltest derjenige sein, der rät, nicht ich! Stell dir vor, du erzählst eine Geschichte darüber, was passiert in der Geschichte?"
 
-Draco stellte es sich vor. UNTRANSLATED: "Charms that used to work stop working. " _Zauberer wachen auf und stellen fest, dass ihre Zauberstäbe aus Holzstäben bestehen... UNTRANSLATED: _
+Draco stellte es sich vor. "Verzauberungen, die früher funktioniert haben, hören auf zu funktionieren." _Zauberer wachen auf und stellen fest, dass ihre Zauberstäbe nur noch Holzstäbchen sind..._
 
 "Wie sieht die Welt aus, wenn das Zaubererblut schwächer wird?"
 
-UNTRANSLATED: "People can't do things their ancestors could do. "
+"Die Menschen können nicht mehr tun, was ihre Vorfahren tun konnten."
 
 "Wie sieht die Welt aus, wenn das Wissen verloren geht?"
 
-UNTRANSLATED: "People don't know how to cast the Charms in the first place... ", sagte Draco. Er hielt inne, überrascht über sich selbst. "Das ist ein Test, nicht wahr?"
+"Die Leute wissen nicht, wie die Zaubersprüche gehen...", sagte Draco. Er hielt inne, überrascht über sich selbst. "Das ist ein Test, nicht wahr?"
 
-UNTRANSLATED: Harry nodded decisively. UNTRANSLATED: "That's one. " Er schrieb es auf dem Pergament unter _Tests:_ auf.
+Harry nickte entschieden. "Das ist er." Er schrieb es auf dem Pergament unter _Tests:_ auf.
 
 _A. Gibt es Zauber, die wir kennen, aber nicht wirken können (1 oder 2) oder sind die verlorenen Zauber nicht mehr bekannt (3)?_
 
 "Das unterscheidet also zwischen 1 und 2 auf der einen Seite und 3 auf der anderen Seite", sagte Harry. "Jetzt brauchen wir einen Weg, um zwischen 1 und 2 zu unterscheiden. Die Magie schwindet, das Blut wird schwächer, wie könnten wir den Unterschied erkennen?"
 
-"Welche Art von Zaubern haben die Schüler in ihrem ersten Jahr in Hogwarts gewirkt?", fragte Draco. "Wenn sie früher in der Lage waren, viel mächtigere Charms zu wirken, war das Blut stärker -"
+"Welche Art von Zauber haben die Schüler in ihrem ersten Jahr in Hogwarts gewirkt?", fragte Draco. "Wenn sie früher in der Lage waren, viel mächtigere Zauber zu wirken, war das Blut stärker -"
 
-Harry Potter schüttelte den Kopf. "Oder die Magie selbst war stärker. Wir müssen einen Weg finden, um den _Unterschied zu erkennen. _" Harry stand von seinem Stuhl auf und begann nervös durch das Klassenzimmer zu laufen. "Nein, warte, das könnte noch funktionieren. Nimm an, dass verschiedene Zauber unterschiedliche Mengen an magischer Energie verbrauchen. Wenn dann die Umgebungsmagie schwächer würde, würden die mächtigen Zauber zuerst sterben, aber die Zauber, die jeder in seinem ersten Jahr lernt, würden die gleichen bleiben... " Harrys nervöses Schreiten beschleunigte sich. "Es ist kein sehr guter Test, es geht mehr darum, dass mächtige Zauberei verloren geht, als dass alle Zauberei verloren geht. Das Blut von jemandem könnte zu schwach für mächtige Zauberei sein, aber stark genug für einfache Zaubersprüche... Draco, weißt du, ob mächtigere Zauberer innerhalb einer _einzigen_ Ära, wie z.B. mächtige Zauberer aus genau diesem Jahrhundert, als Kinder mächtiger sind? Wenn der Dunkle Lord den Abkühlungszauber mit elf Jahren gewirkt hätte, hätte er dann den ganzen Raum einfrieren können?"
+Harry Potter schüttelte den Kopf. "Oder die Magie selbst war stärker. Wir müssen einen Weg finden, um den _Unterschied zu erkennen_." Harry stand von seinem Stuhl auf und begann nervös durch das Klassenzimmer zu laufen. "Nein, warte, das könnte noch funktionieren. Nimm an, dass verschiedene Zauber unterschiedliche Mengen an magischer Energie verbrauchen. Wenn dann die Umgebungsmagie schwächer würde, würden die mächtigen Zauber zuerst sterben, aber die Zauber, die jeder in seinem ersten Jahr lernt, würden die gleichen bleiben..." Harrys nervöses Schreiten beschleunigte sich. "Es ist kein sehr guter Test, es geht mehr darum, dass mächtige Zauberei verloren geht, als dass alle Zauberei verloren geht. Das Blut von jemandem könnte zu schwach für mächtige Zauberei sein, aber stark genug für einfache Zaubersprüche... Draco, weißt du, ob mächtigere Zauberer innerhalb einer _einzigen_ Ära, wie z.B. mächtige Zauberer aus genau diesem Jahrhundert, als Kinder mächtiger sind? Wenn der Dunkle Lord den Abkühlungszauber mit elf Jahren gewirkt hätte, hätte er dann den ganzen Raum einfrieren können?"
 
-Dracos Gesicht verzog sich, als er versuchte, sich zu erinnern. "Ich kann mich nicht erinnern, irgendetwas über den Dunklen Lord gehört zu haben, aber ich glaube, Dumbledore soll etwas Erstaunliches in seiner Verklärungs-O gemacht haben. W. L. s im fünften Jahr... Ich denke, andere mächtige Zauberer waren auch in Hogwarts gut... "
+Dracos Gesicht verzog sich, als er versuchte, sich zu erinnern. "Ich kann mich nicht erinnern, irgendetwas über den Dunklen Lord gehört zu haben, aber ich glaube, Dumbledore soll etwas Erstaunliches in seiner Verwandlungsklasse bei den Abschlussprüfungen im fünften Jahr gemacht haben... Ich denke, andere mächtige Zauberer waren auch in Hogwarts gut..."
 
-Harry blickte finster drein und ging immer noch auf und ab. "Sie könnten einfach fleißig lernen. Dennoch, wenn die Erstklässler die gleichen Zaubersprüche gelernt haben und damals genauso mächtig schienen wie heute, könnten wir das als _schwachen_ Beweis für 1 gegenüber 2 bezeichnen... Warte, bleib dran. " Harry blieb stehen, wo er stand. "Ich habe einen weiteren Test, der zwischen 1 und 2 unterscheiden kann. Es würde eine Weile dauern, das zu erklären, es nutzt einige Dinge, die Wissenschaftler über Blut und Vererbung wissen, aber es ist eine einfache Frage, die man stellen kann. Und wenn wir meinen Test und deinen Test _kombinieren_ und beide das gleiche Ergebnis haben, ist das ein starker Hinweis auf die Antwort. " Harry rannte fast zurück zum Schreibtisch, nahm das Pergament und schrieb:.
+Harry blickte finster drein und ging immer noch auf und ab. "Sie könnten einfach fleißig lernen. Dennoch, wenn die Erstklässler die gleichen Zaubersprüche gelernt haben und damals genauso mächtig schienen wie heute, könnten wir das als _schwachen_ Beweis für 1 gegenüber 2 bezeichnen... Warte, einen Moment." Harry blieb stehen, wo er stand. "Ich habe einen weiteren Test, der zwischen 1 und 2 unterscheiden kann. Es würde eine Weile dauern, das zu erklären, es nutzt einige Dinge, die Wissenschaftler über Blut und Vererbung wissen, aber es ist eine einfache Frage, die man stellen kann. Und wenn wir meinen Test und deinen Test _kombinieren_ und beide das gleiche Ergebnis haben, ist das ein starker Hinweis auf die Antwort." Harry rannte fast zurück zum Schreibtisch, nahm das Pergament und schrieb:
 
-_B. Haben antike Erstklässler die gleiche Art von Zaubern mit der gleichen Macht gewirkt, wie heute? (Schwacher Beweis für 1 über 2, aber Blut könnte auch nur mächtige Zauberei verlieren. )_
+_B. Haben antike Erstklässler die gleiche Art von Zauber mit der gleichen Macht gewirkt, wie heute? (Schwacher Beweis für 1 über 2, aber Blut könnte auch nur mächtige Zauberei verlieren.)_
 
-_C. Ein zusätzlicher Test, der 1 und 2 anhand von wissenschaftlichen Erkenntnissen über Blut unterscheidet, wird später erklärt. _
+_C. Ein zusätzlicher Test, der 1 und 2 anhand von wissenschaftlichen Erkenntnissen über Blut unterscheidet, wird später erklärt._
 
 "Okay", sagte Harry, "wir können zumindest versuchen, den Unterschied zwischen 1 und 2 und 3 zu erkennen, also lass uns gleich damit anfangen, wir können uns _mehr_ Tests ausdenken, nachdem wir die, die wir schon haben, gemacht haben. Jetzt wird es ein wenig seltsam aussehen, wenn Draco Malfoy und Harry Potter zusammen herumgehen und Fragen stellen, also hier ist meine Idee. Du gehst durch Hogwarts und findest alte Porträts und fragst sie nach den Zaubersprüchen, die sie in ihren ersten Jahren gelernt haben. Es sind Porträts, also werden sie nicht merken, dass es etwas Seltsames ist, wenn Draco Malfoy das tut. Ich werde aktuelle Porträts und lebende Menschen nach Zaubersprüchen fragen, die wir kennen, aber nicht wirken können. Niemand wird etwas Ungewöhnliches bemerken, wenn Harry Potter seltsame Fragen stellt. Und ich werde komplizierte Nachforschungen über vergessene Zaubersprüche anstellen müssen, also möchte ich, dass du derjenige bist, der die Daten sammelt, die ich für meine eigene wissenschaftliche Frage brauche. Es ist eine einfache Frage und du solltest in der Lage sein, die Antwort zu finden, indem du Porträts fragst. Das solltest du dir vielleicht aufschreiben, fertig?"
 
-Draco setzte sich wieder hin und kramte in seiner Büchertasche nach Pergament und Federkiel. Als sie auf dem Schreibtisch abgelegt wurde, sah Draco mit entschlossenem Gesicht auf. "Mach weiter. "
+Draco setzte sich wieder hin und kramte in seiner Büchertasche nach Pergament und Federkiel. Als sie auf dem Schreibtisch abgelegt wurde, sah Draco mit entschlossenem Gesicht auf. "Mach weiter."
 
-"Finde Porträts, die ein verheiratetes Squib-Paar kennen - mach nicht so ein Gesicht, Draco, das ist eine wichtige Information. Frag einfach die letzten Porträts, die Gryffindors sind oder so. Finde Porträts, die ein verheiratetes Squib-Paar gut genug kannten, um die Namen aller Kinder zu kennen. Schreibe den Namen jedes Kindes auf und ob das Kind ein Zauberer, ein Squib oder ein Muggel war. Wenn sie nicht wissen, ob das Kind ein Squib oder ein Muggel war, schreiben sie "Nicht-Zauberer" auf. Schreibe das für _jedes_ Kind auf, das das Paar hatte, lass keins aus. Wenn das Porträt nur den Namen der Zaubererkinder kennt, nicht aber die Namen _aller_ Kinder, dann schreibe _keine_ Daten von diesem Paar auf. Es ist sehr wichtig, dass du mir nur Daten von jemandem bringst, der _alle_ Kinder, die ein Squib-Paar hatte, gut genug kennt, um sie alle mit Namen zu kennen. Versuche, mindestens vierzig Namen zu bekommen, wenn du kannst, und wenn du Zeit für mehr hast, umso besser. Hast du das alles?"
+"Finde Porträts, die ein verheiratetes Squib-Paar kennen - mach nicht so ein Gesicht, Draco, das ist eine wichtige Information. Frag einfach die letzten Porträts, die Gryffindors sind oder so. Finde Porträts, die ein verheiratetes Squib-Paar gut genug kannten, um die Namen aller Kinder zu kennen. Schreibe den Namen jedes Kindes auf und ob das Kind ein Zauberer, ein Squib oder ein Muggel war. Wenn sie nicht wissen, ob das Kind ein Squib oder ein Muggel war, schreib sie "Nicht-Zauberer" auf. Schreibe das für _jedes_ Kind auf, das das Paar hatte, lass keins aus. Wenn das Porträt nur den Namen der Zaubererkinder kennt, nicht aber die Namen _aller_ Kinder, dann schreibe _keine_ Daten von diesem Paar auf. Es ist sehr wichtig, dass du mir nur Daten von jemandem bringst, der _alle_ Kinder, die ein Squib-Paar hatte, gut genug kennt, um sie alle mit Namen zu kennen. Versuche, mindestens vierzig Namen zu bekommen, wenn du kannst, und wenn du Zeit für mehr hast, umso besser. Hast du das alles?"
 
 "Wiederhole es", sagte Draco, als er mit dem Schreiben fertig war, und Harry wiederholte es.
 
 "Ich habe es", sagte Draco, "aber warum -"
 
-"Es hat mit einem der Geheimnisse des Blutes zu tun, das Wissenschaftler bereits entdeckt haben. UNTRANSLATED: I'll explain when you get back. Wir teilen uns auf und treffen uns in einer Stunde wieder hier, 18:22 Uhr sollte das sein. UNTRANSLATED: Are we ready to go?"
+"Es hat mit einem der Geheimnisse des Blutes zu tun, das Wissenschaftler bereits entdeckt haben. Ich erkläre es, wenn Du zurück kommst. Wir teilen uns auf und treffen uns in einer Stunde wieder hier, 18:22 Uhr sollte das sein. Bist Du bereit?"
 
 Draco nickte entschlossen. Es war alles sehr eilig, aber er hatte schon lange gelernt, wie man sich beeilt.
 
