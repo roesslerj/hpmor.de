@@ -8,6 +8,8 @@ const error_prefix = 'UNTRANSLATED: ';
 
 const auth_key = fs.readFileSync('deepl.auth-key', 'utf8').trim();
 
+var errorCnt = 0;
+
 function translateChunk(text2Translate) {
   if (!/\w+/.test(text2Translate)) {
     console.debug("Text does not contain chars to translate: " + text2Translate);
@@ -25,6 +27,7 @@ function translateChunk(text2Translate) {
     return response.data.translations[0].text;
   }).catch(error => {
     console.error("Error " + error.code + " translating: " + text2Translate);
+    errorCnt++;
     return error_prefix + text2Translate;
   });
 }
@@ -44,7 +47,8 @@ function translateParagraphs(paragraph) {
   }
   return Promise.all(translations)
     .then(values => values.join(' '))
-    .then(values => values.replaceAll('Mr ', 'Mr. '));
+    .then(values => values.replaceAll('Mr ', 'Mr. '))
+    .then(values => values.replaceAll('" ', '"'));
 }
 
 function translateText(text) {
@@ -80,6 +84,7 @@ async function run() {
       .replaceAll('".', '"')
       .replaceAll('_.', '_')
       .replaceAll(' -".', '."')
+      .replaceAll('," ', '", ')
       .replaceAll('Mum', 'Mama')
       .replaceAll('Dad', 'Papa')
       .replaceAll('Diagon Alley', 'Winkelgasse')
@@ -94,8 +99,8 @@ async function run() {
       .replaceAll('Dark Lord', 'Dunkler Lord')
       .replaceAll('Herr ', 'Mr. ')
       .replaceAll('\{\\an8\}', '_');
-    console.log("/n/n/n");
-    console.log("Writing translated chapter " + chapter + " into file " + filename + ".");
+    console.log("\n\n\n");
+    console.log("Writing translated chapter " + chapter + " into file " + filename + " with " + errorCnt + " errors.\n");
     fs.writeFileSync(filename, '# ' + translated, err => {
         if (err) {
           console.error(err);
