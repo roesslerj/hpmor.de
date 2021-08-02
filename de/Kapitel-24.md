@@ -304,7 +304,7 @@ Stattdessen würde Harry weiterleben, nur damit Draco ihm sagen konnte, dass das
 
 Und mit einem plötzlichen Zucken der überraschten Freude erkannte Draco, dass es tatsächlich _zu_ Harrys eigenem Wohl war. Wenn Harry versuchen würde, seinen Plan auszuführen, Dumbledore und Vater für dumm zu verkaufen, würde er _sterben. _
 
-UNTRANSLATED: That made it _perfect. _
+Das machte es _perfekt_.
 
 Draco würde ihm alle Träume wegnehmen, so wie Harry es mit ihm getan hatte.
 
@@ -320,7 +320,7 @@ Es sei denn...
 
 _Tue einfach so, als ob du ein Wissenschaftler wärst,_ hatte Harry ihm gesagt.
 
-UNTRANSLATED: Draco didn't have words to describe exactly what was wrong with Harry's mind -.
+Draco fand keine Worte, um zu beschreiben, was genau in Harrys Kopf vorging. -.
 
 (da Draco den Begriff _Rekursionstiefe_ noch nie gehört hatte).
 
@@ -328,7 +328,7 @@ UNTRANSLATED: Draco didn't have words to describe exactly what was wrong with Ha
 
 ... Es sei denn, all das war genau das, was Harry _wollte_, dass Draco als Teil eines noch _größeren_ Plans tat, in den Draco _gerade hineinspielte_, indem er versuchte, diesen zu vereiteln, Harry könnte sogar _wissen_, dass sein Plan undurchführbar war, er könnte keinen Zweck haben, _außer_ Draco zu locken, ihn zu vereiteln -.
 
-Nein. Auf diesem Weg lag _Wahnsinn. UNTRANSLATED: _ There _had_ to be a limit. Der Dunkle Lord selbst war nicht _so_ verdreht gewesen. So etwas passierte nicht im wirklichen Leben, sondern nur in Vaters albernen Gute-Nacht-Geschichten über dumme Wasserspeier, die jedes Mal, wenn sie versuchten, den Helden aufzuhalten, dessen Pläne vorantrieben.
+Nein. Auf diesem Weg lag _Wahnsinn_. Es _musste_ eine Grenze geben. Der Dunkle Lord selbst war nicht _so_ verdreht gewesen. So etwas passierte nicht im wirklichen Leben, sondern nur in Vaters albernen Gute-Nacht-Geschichten über dumme Wasserspeier, die jedes Mal, wenn sie versuchten, den Helden aufzuhalten, dessen Pläne vorantrieben.
 
 * * *
 

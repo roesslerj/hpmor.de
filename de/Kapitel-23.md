@@ -157,7 +157,7 @@ Harry Potter starrte ihn einen Moment lang an, immer noch sitzend. Wenn er sprac
 
 "Oh", sagte Draco, wobei die Wut langsam in seine Stimme drang, "du wusstest nicht, wie die ganze Sache ausgehen würde?"
 
-"Ich _wusste_ nichts, was du nicht wusstest", sagte Harry, immer noch leise. "Ich gebe zu, dass ich einen Verdacht hatte. Hermine Granger war zu stark, sie hätte kaum magisch sein dürfen und war es nicht, wie kann eine Muggelgeborene die beste Zauberin in Hogwarts sein? Und sie bekommt auch die besten Noten in ihren Aufsätzen, es ist zu viel Zufall, dass ein Mädchen magisch _und_ akademisch am stärksten ist, es sei denn, es gibt eine einzige Ursache. Hermine Grangers Existenz deutete darauf hin, dass es nur eine Sache gibt, die einen zum Zauberer macht, etwas, das man entweder hat oder nicht hat, und dass die Machtunterschiede dadurch entstehen, wie viel wir wissen und wie viel wir üben. UNTRANSLATED: And there weren't different classes for purebloods and Muggleborns, and so on. Es gab zu viele Möglichkeiten, dass die Welt nicht so aussah, wie sie aussehen würde, wenn du Recht hättest. Aber Draco, ich habe nichts gesehen, was du nicht auch sehen konntest. Ich habe keine Tests durchgeführt, von denen ich dir nicht erzählt habe. Ich habe nicht geschummelt, Draco. Ich wollte, dass wir die Antwort gemeinsam ausarbeiten. Und ich habe nie gedacht, dass die Magie aus der Welt verschwinden könnte, bis du es gesagt hast. Es war auch für mich eine beängstigende Vorstellung. "
+"Ich _wusste_ nichts, was du nicht wusstest", sagte Harry, immer noch leise. "Ich gebe zu, dass ich einen Verdacht hatte. Hermine Granger war zu stark, sie hätte kaum magisch sein dürfen und war es nicht, wie kann eine Muggelgeborene die beste Zauberin in Hogwarts sein? Und sie bekommt auch die besten Noten in ihren Aufsätzen, es ist zu viel Zufall, dass ein Mädchen magisch _und_ akademisch am stärksten ist, es sei denn, es gibt eine einzige Ursache. Hermine Grangers Existenz deutete darauf hin, dass es nur eine Sache gibt, die einen zum Zauberer macht, etwas, das man entweder hat oder nicht hat, und dass die Machtunterschiede dadurch entstehen, wie viel wir wissen und wie viel wir üben. Und es gab keine unterschiedlichen Klassen für Reinblüter und Muggelgeborene usw. Es gab zu viele Möglichkeiten, dass die Welt nicht so aussah, wie sie aussehen würde, wenn du Recht hättest. Aber Draco, ich habe nichts gesehen, was du nicht auch sehen konntest. Ich habe keine Tests durchgeführt, von denen ich dir nicht erzählt habe. Ich habe nicht geschummelt, Draco. Ich wollte, dass wir die Antwort gemeinsam ausarbeiten. Und ich habe nie gedacht, dass die Magie aus der Welt verschwinden könnte, bis du es gesagt hast. Es war auch für mich eine beängstigende Vorstellung. "
 
 "Wie auch immer", sagte Draco. Er bemühte sich sehr, seine Stimme zu kontrollieren und Harry nicht einfach anzuschreien. "Du behauptest, du würdest nicht weglaufen und jemand anderem davon erzählen. "
 
@@ -167,11 +167,11 @@ Harry Potter starrte ihn einen Moment lang an, immer noch sitzend. Wenn er sprac
 
 Draco drehte sich um, spürte das Brennen in seiner Kehle, das Gefühl des Verrats, und da wurde ihm klar, dass er Harry Potter wirklich gemocht hatte, und dieser Gedanke bremste ihn keinen Moment, als er zur Tür des Klassenzimmers schritt.
 
-UNTRANSLATED: And Harry Potter's voice came, now louder, and worried:.
+Und Harry Potters Stimme kam, nun lauter und besorgt:
 
-UNTRANSLATED: "Draco... du _kannst_ es nicht vergessen. Verstehst du nicht? Das war deine Aufopferung. "
+"Draco... du _kannst_ es nicht vergessen. Verstehst du nicht? Das war dein _Opfer_."
 
-UNTRANSLATED: Draco stopped in midstride and turned around. "_Wovon_ redest du?"
+Draco blieb auf halbem Weg stehen und drehte sich um. "_Wovon_ redest du?"
 
 Aber es herrschte bereits eine eisige Kälte in Dracos Rücken.
 
@@ -179,21 +179,21 @@ Er wusste es schon, bevor Harry Potter es sagte.
 
 "Um ein Wissenschaftler zu werden. Du hast einen deiner Glaubenssätze in Frage gestellt, nicht nur einen kleinen Glaubenssatz, sondern etwas, das große Bedeutung für dich hatte. Du hast Experimente gemacht, Daten gesammelt, und das Ergebnis hat bewiesen, dass der Glaube falsch war. Du hast die Ergebnisse gesehen und verstanden, was sie bedeuten. " Harry Potters Stimme schwankte. "Denk daran, Draco, du kannst einen _wahren_ Glauben nicht auf diese Weise opfern, denn die Experimente werden ihn bestätigen, anstatt ihn zu falsifizieren. Dein Opfer, ein Wissenschaftler zu werden, war dein _falscher_ Glaube, dass sich das Blut der Zauberer vermischt und schwächer wird. "
 
-"Das ist nicht wahr!", sagte Draco. UNTRANSLATED: "I didn't sacrifice the belief. Das glaube ich immer noch!" Seine Stimme wurde lauter und das Frösteln wurde schlimmer.
+"Das ist nicht wahr!", sagte Draco. "Ich habe den Glauben nicht geopfert. Das glaube ich immer noch!" Seine Stimme wurde lauter und das Frösteln wurde schlimmer.
 
-Harry Potter schüttelte den Kopf. Seine Stimme kam im Flüsterton. "Draco... Es tut mir leid, Draco, du _glaubst_ es nicht, nicht mehr. " Harrys Stimme erhob sich wieder. "Ich werde es dir beweisen. Stell dir vor, dass dir jemand erzählt, dass er einen Drachen in seinem Haus hält. Du sagst ihnen, dass du es sehen willst. Man sagt, es ist ein unsichtbarer Drache. Du sagst, gut, dann hörst du, wie es sich bewegt. Sie sagen, es ist ein unhörbarer Drache. Du sagst, du wirfst etwas Kochmehl in die Luft und siehst den Umriss des Drachens. UNTRANSLATED: They say the dragon is permeable to flour. Und das Bezeichnende ist, dass sie schon im Voraus genau wissen, welche experimentellen Ergebnisse sie weg erklären müssen. Sie _wissen_, dass alles so kommen wird, wie es kommt, wenn es keinen Drachen gibt, sie wissen im _Voraus_, welche Ausreden sie vorbringen werden müssen. Vielleicht _sagen_ sie also, dass es einen Drachen gibt. Vielleicht _glauben_ sie, dass es einen Drachen gibt, das nennt man Glauben-im-Glauben. Aber sie glauben es nicht wirklich. Du kannst dich in dem, was du glaubst, irren. Die meisten Menschen erkennen nie, dass es einen Unterschied gibt zwischen etwas zu glauben und zu denken, dass es gut ist, es zu glauben. " Harry Potter hatte sich nun vom Schreibtisch erhoben und ging ein paar Schritte auf Draco zu. "Und Draco, du glaubst nicht mehr an den Blutpurismus, ich werde dir zeigen, dass du es nicht tust. Wenn der Blutpurismus wahr ist, dann macht Hermine Granger keinen Sinn, was könnte sie also erklären? Vielleicht ist sie ein magisches Waisenkind, das von Muggeln aufgezogen wurde, so wie ich es war? Ich könnte zu Granger gehen und darum bitten, Bilder von ihren Eltern zu sehen, um zu sehen, ob sie ihnen ähnlich sieht. Würdest du erwarten, dass sie anders aussieht? Sollen wir den Test durchführen?"
+Harry Potter schüttelte den Kopf. Seine Stimme kam im Flüsterton. "Draco... Es tut mir leid, Draco, du _glaubst_ es nicht, nicht mehr. " Harrys Stimme erhob sich wieder. "Ich werde es dir beweisen. Stell dir vor, dass dir jemand erzählt, dass er einen Drachen in seinem Haus hält. Du sagst ihnen, dass du es sehen willst. Man sagt, es ist ein unsichtbarer Drache. Du sagst, gut, dann hörst du, wie es sich bewegt. Sie sagen, es ist ein unhörbarer Drache. Du sagst, du wirfst etwas Kochmehl in die Luft und siehst den Umriss des Drachens. Es heißt, der Drache sei durchlässig für Mehl. Und das Bezeichnende ist, dass sie schon im Voraus genau wissen, welche experimentellen Ergebnisse sie weg erklären müssen. Sie _wissen_, dass alles so kommen wird, wie es kommt, wenn es keinen Drachen gibt, sie wissen im _Voraus_, welche Ausreden sie vorbringen werden müssen. Vielleicht _sagen_ sie also, dass es einen Drachen gibt. Vielleicht _glauben_ sie, dass es einen Drachen gibt, das nennt man Glauben-im-Glauben. Aber sie glauben es nicht wirklich. Du kannst dich in dem, was du glaubst, irren. Die meisten Menschen erkennen nie, dass es einen Unterschied gibt zwischen etwas zu glauben und zu denken, dass es gut ist, es zu glauben. " Harry Potter hatte sich nun vom Schreibtisch erhoben und ging ein paar Schritte auf Draco zu. "Und Draco, du glaubst nicht mehr an den Blutpurismus, ich werde dir zeigen, dass du es nicht tust. Wenn der Blutpurismus wahr ist, dann macht Hermine Granger keinen Sinn, was könnte sie also erklären? Vielleicht ist sie ein magisches Waisenkind, das von Muggeln aufgezogen wurde, so wie ich es war? Ich könnte zu Granger gehen und darum bitten, Bilder von ihren Eltern zu sehen, um zu sehen, ob sie ihnen ähnlich sieht. Würdest du erwarten, dass sie anders aussieht? Sollen wir den Test durchführen?"
 
-UNTRANSLATED: "They would have put her with relatives," Draco said, his voice trembling. "Sie werden immer noch gleich aussehen. "
+"Sie hätten sie bei Verwandten untergebracht", sagte Draco mit zitternder Stimme. "Sie werden immer noch gleich aussehen."
 
-UNTRANSLATED: "You see. Du weißt bereits, welches experimentelle Ergebnis du zu entschuldigen hast. Wenn du noch an den Blutpurismus glauben würdest, würdest du sagen, sicher, lass uns mal nachschauen, ich wette, sie wird nicht wie ihre Eltern aussehen, sie ist zu mächtig, um eine echte Muggelgeborene zu sein -"
+"Siehst Du. Du weißt bereits, welches experimentelle Ergebnis du zu entschuldigen hast. Wenn du noch an den Blutpurismus glauben würdest, würdest du sagen, sicher, lass uns mal nachschauen, ich wette, sie wird nicht wie ihre Eltern aussehen, sie ist zu mächtig, um eine echte Muggelgeborene zu sein -"
 
 "Sie _hätten_ sie bei Verwandten untergebracht!"
 
 "Wissenschaftler können Tests machen, um sicher zu prüfen, ob jemand das wahre Kind eines Vaters ist. Granger würde es wahrscheinlich tun, wenn ich ihrer Familie genug zahlen würde. Sie würde keine Angst vor den Ergebnissen haben. Was soll der Test also zeigen? Sag mir, dass ich ihn durchführen soll und wir werden es tun. Aber du weißt schon, was der Test sagen wird. Du wirst es immer wissen. Du wirst es nie vergessen können. Du magst _wünschen_, dass du an Blutpurismus glaubst, aber du wirst immer _erwarten_, dass genau das passiert, was passieren würde, wenn es nur eine Sache gäbe, die dich zu einem Zauberer macht. Das war dein Opfer, um ein Wissenschaftler zu werden. "
 
-Dracos Atem ging stoßweise. UNTRANSLATED: "Do you realize _what you've done?_ " Draco surged forward and he seized Harry by the collar of his robes. Seine Stimme erhob sich zu einem Schrei, sie klang unerträglich laut in dem geschlossenen Klassenzimmer und der Stille. "Ist dir klar, was du getan hast?_"
+Dracos Atem ging stoßweise. "Ist dir klar, _was du getan hast_?", stürmte Draco vor und packte Harry am Kragen seines Umhangs. Seine Stimme erhob sich zu einem Schrei, sie klang unerträglich laut in dem geschlossenen Klassenzimmer und der Stille. "_Ist dir klar, was du getan hast?_"
 
-Harrys Stimme war zittrig. "Du hattest einen Glauben. Der Glaube war falsch. Ich habe dir geholfen, das zu erkennen. UNTRANSLATED: What's true is already so, owning up to it doesn't make it worse -"
+Harrys Stimme war zittrig. "Du hattest einen Glauben. Der Glaube war falsch. Ich habe dir geholfen, das zu erkennen. Was wahr ist, ist schon so, es zuzugeben, macht es nicht schlimmer. -"
 
 Die Finger von Dracos rechter Hand ballten sich zu einer Faust und diese Hand ließ sich nach unten fallen und schoss unaufhaltsam nach oben und schlug Harry Potter so hart auf den Kiefer, dass sein Körper zurück auf den Schreibtisch und dann auf den Boden krachte.
 
@@ -221,9 +221,9 @@ Harry zuckte zusammen. Der Junge öffnete den Mund, als wolle er "Es tut mir lei
 
 "I... Das habe ich... jedes Mal, wenn ich dir von der Leistung erzählt habe, habe ich dir vom Preis erzählt. Ich sagte, du musst zugeben, dass du falsch liegst. Ich sagte, dass dies der schwerste Weg für dich sein würde. Dass dies das Opfer war, das jeder bringen musste, um ein Wissenschaftler zu werden. Ich sagte, was ist, wenn das Experiment das eine sagt und deine Familie und Freunde etwas anderes sagen -"
 
-UNTRANSLATED: "_You call that a warning?_ " Draco was screaming now. "_Das nennst du eine Warnung? Wenn wir ein Ritual durchführen, das ein ständiges Opfer verlangt?_ "
+"_Das nennst du eine Warnung?_ " Draco was screaming now. "_Das nennst du eine Warnung? Wenn wir ein Ritual durchführen, das ein ständiges Opfer verlangt?_"
 
-"I... I... " Der Junge am Boden schluckte. "Ich denke, vielleicht war es nicht klar. Es tut mir leid. Aber das, was durch die Wahrheit zerstört werden kann, sollte es sein. "
+"Ich... Ich... " Der Junge am Boden schluckte. "Ich denke, vielleicht war es nicht klar. Es tut mir leid. Aber das, was durch die Wahrheit zerstört werden kann, sollte es auch werden."
 
 Ihn zu schlagen war nicht genug.
 
@@ -235,7 +235,7 @@ Es war bereits zu spät für ihn.
 
 "_Expelliarmus!_ "
 
-UNTRANSLATED: Harry's wand flew across the room.
+Harrys Zauberstab flog quer durch den Raum.
 
 "_Gom jabbar!_ "
 
@@ -249,15 +249,15 @@ Der Schmerz zeigte sich bereits in Harry Potters Gesicht, als er sprach. "Malfoy
 
 Dracos Hand wurde weiß um seinen Zauberstab, aber sein Ziel blieb stabil.
 
-UNTRANSLATED: "Just so you know," Harry said through gritted teeth, "if you'd told me I was wrong I would have listened. _Ich_ werde _dich_ niemals foltern, wenn du mir zeigst, dass ich falsch liege. Und du _wirst_ Eines Tages. Du bist jetzt als Wissenschaftler erwacht und selbst wenn du nie lernst, deine Kraft zu nutzen, wirst du immer", keuchte Harry, "nach Wegen suchen, um deine Überzeugungen zu testen -"
+"Nur damit du es weißt", sagte Harry mit zusammengebissenen Zähnen, "wenn du mir gesagt hättest, dass ich mich irre, hätte ich auf dich gehört. _Ich_ werde _dich_ niemals foltern, wenn du mir zeigst, dass ich falsch liege. Und das _wirst_ du eines Tages. Du bist jetzt als Wissenschaftler erwacht und selbst wenn du nie lernst, deine Kraft zu nutzen, wirst du immer", keuchte Harry, "nach Wegen suchen, um deine Überzeugungen zu testen -"
 
 Dracos Rückzug war jetzt weniger geschmeidig, etwas schneller und er musste sich anstrengen, um seinen Zauberstab auf Harry zu halten, als dieser nach hinten griff, um die Tür zu öffnen und wieder aus dem Klassenzimmer trat.
 
-UNTRANSLATED: Then Draco shut the door again.
+Dann schloss Draco die Tür wieder.
 
 Er wirkte den mächtigsten Sperrzauber, den er kannte.
 
-UNTRANSLATED: Draco waited until he heard Harry's first scream before casting the _Quietus. _
+Draco wartete, bis er Harrys ersten Schrei hörte, bevor er den _Quietus_ zauberte.
 
 Und dann ging er weg.
 
@@ -265,59 +265,59 @@ Und dann ging er weg.
 
 "_Aaahhh! Finite Incantatem! Aaaahhh!_ "
 
-UNTRANSLATED: Harry's left hand had been put into a pot of boiling cooking oil and left there. Er hatte alles, was er hatte, in das _Finite Incantatem_ gesteckt und es funktionierte immer noch nicht.
+Harrys linke Hand war in einen Topf mit kochendem Öl gelegt und dort liegen gelassen worden. Er hatte alles, was er hatte, in das _Finite Incantatem_ gesteckt und es funktionierte immer noch nicht.
 
-UNTRANSLATED: Some hexes required specific counters or you couldn't undo them, or maybe it was just that Draco was that much stronger.
+Manche Verhexungen erforderten bestimmte Gegenmaßnahmen, oder man konnte sie nicht rückgängig machen, oder vielleicht war Draco einfach nur so viel stärker.
 
 "_Aaaahhhh!_"
 
 Harrys Hand begann jetzt wirklich zu schmerzen und das störte seine Versuche, kreativ zu denken.
 
-UNTRANSLATED: But a few screams later, Harry realized what he had to do.
+Aber ein paar Schreie später wurde Harry klar, was er tun musste.
 
 Sein Beutel befand sich leider auf der falschen Seite seines Körpers und es bedurfte einiger Verrenkungen, um ihn zu erreichen, vor allem, da sein anderer Arm in einem reflexartigen, unaufhaltsamen Versuch, die Quelle des Schmerzes wegzuschleudern, herumfuchtelte. Bis er es geschafft hatte, hatte sein anderer Arm es geschafft, seinen Zauberstab wieder wegzuwerfen.
 
-UNTRANSLATED: "Medical _ahhhhh_ kit! Medical kit!"
+"Verbandskasten _ahhhhh_! Verbandskasten!"
 
-UNTRANSLATED: On the floor, the green light was too dim to see by.
+Auf dem Boden war das grüne Licht zu schwach, um etwas zu erkennen.
 
-Harry konnte nicht aufstehen. UNTRANSLATED: He couldn't crawl. Er rollte über den Boden zu der Stelle, wo er seinen Zauberstab vermutete, und er war nicht da. Mit einer Hand schaffte er es, sich hoch genug zu heben, um seinen Zauberstab zu sehen, und er rollte dorthin und holte den Zauberstab und rollte zurück zu der Stelle, wo der Verbandskasten geöffnet war. UNTRANSLATED: There was also a good deal of screaming, and a bit of throwing up.
+Harry konnte nicht aufstehen. Er konnte nicht kriechen. Er rollte über den Boden zu der Stelle, wo er seinen Zauberstab vermutete, und er war nicht da. Mit einer Hand schaffte er es, sich hoch genug zu heben, um seinen Zauberstab zu sehen, und er rollte dorthin und holte den Zauberstab und rollte zurück zu der Stelle, wo der Verbandskasten geöffnet war. Es gab auch eine Menge Geschrei und ein bisschen Erbrechen.
 
-UNTRANSLATED: It took eight tries before Harry could cast _Lumos. UNTRANSLATED: _
+Er brauchte acht Versuche, bevor Harry den _Lumos_ zaubern konnte.
 
-UNTRANSLATED: And then, well, the package wasn't designed to be opened one-handed, because all wizards were idiots, that was why. Harry musste seine Zähne benutzen und so dauerte es eine Weile, bis Harry es endlich schaffte, das Taubentuch über seine linke Hand zu wickeln.
+Und dann, nun ja, das Paket war nicht dafür gedacht, mit einer Hand geöffnet zu werden, denn alle Zauberer waren Idioten, deshalb. Harry musste seine Zähne benutzen und so dauerte es eine Weile, bis Harry es endlich schaffte, das Taubentuch über seine linke Hand zu wickeln.
 
-UNTRANSLATED: When all feeling in his left hand was finally gone, Harry let his mind come apart, and lay motionless on the floor, and cried for a while.
+Als er schließlich kein Gefühl mehr in der linken Hand hatte, ließ Harry seinen Verstand los, lag regungslos auf dem Boden und weinte eine Weile.
 
-_Nun,_ sagte Harrys Geist leise in sich hinein, als er sich genug erholt hatte, um wieder in Worten zu denken. _War es das wert?_
+_Nun_, sagte Harrys Geist leise in sich hinein, als er sich genug erholt hatte, um wieder in Worten zu denken. _War es das wert?_
 
 Langsam griff Harrys funktionsfähige Hand nach einem Schreibtisch.
 
 Harry zog sich auf seine Füße.
 
-UNTRANSLATED: Took a deep breath.
+Er holte tief Luft.
 
-Ausgeatmet.
+Er atmete aus.
 
-Ich lächelte.
+Er lächelte.
 
 Es war kein großes Lächeln, aber es war trotzdem ein Lächeln.
 
-_Danke, Professor Quirrell, ohne Sie hätte ich nicht verlieren können. _
+_Danke, Professor Quirrell, ohne Sie hätte ich nicht verlieren können._
 
-Er hatte Draco noch nicht erlöst, nicht einmal annähernd. UNTRANSLATED: Contrary to what Draco himself might now believe, Draco was still the child of a Death Eater, through and through. Immer noch ein Junge, der mit dem Gedanken aufgewachsen ist, dass "Vergewaltigung" etwas ist, was die coolen älteren Kinder tun. Aber es war ein verdammt guter Start.
+Er hatte Draco noch nicht erlöst, nicht einmal annähernd. Im Gegensatz zu dem, was Draco selbst jetzt glauben mag, war Draco immer noch das Kind eines Todessers, durch und durch. Immer noch ein Junge, der mit dem Gedanken aufgewachsen ist, dass "Vergewaltigung" etwas ist, was die coolen älteren Kinder tun. Aber es war ein verdammt guter Start.
 
 Harry konnte nicht behaupten, dass alles so gelaufen war wie geplant. Es war alles genau so komplett auf der Stelle erfunden worden. Der _Plan_ sah vor, dass dies erst im Dezember oder so geschehen sollte, nachdem Harry Draco die Techniken beigebracht hatte, um die Beweise nicht zu leugnen, wenn er sie sah.
 
 Aber er hatte den ängstlichen Gesichtsausdruck von Draco gesehen, erkannte, dass Draco _bereits_ eine alternative Hypothese ernst nahm, und nutzte den Moment. Ein Fall von wahrer Neugierde hatte die gleiche Art von erlösender Kraft in der Rationalität, wie ein Fall von wahrer Liebe im Film.
 
-Im Nachhinein betrachtet, hatte Harry sich Stunden Zeit gelassen, um die wichtigste Entdeckung in der Geschichte der Magie zu machen, und Monate, um die unentwickelten mentalen Barrieren eines elfjährigen Jungen zu durchbrechen. UNTRANSLATED: This could indicate that Harry had some sort of major cognitive deficit with respect to estimating task completion times.
+Im Nachhinein betrachtet, hatte Harry sich Stunden Zeit gelassen, um die wichtigste Entdeckung in der Geschichte der Magie zu machen, und Monate, um die unentwickelten mentalen Barrieren eines elfjährigen Jungen zu durchbrechen. Dies könnte darauf hindeuten, dass Harry eine Art schwerwiegendes kognitives Defizit in Bezug auf die Schätzung von Aufgabenerledigungszeiten hatte.
 
-UNTRANSLATED: Was Harry going to Science Hell for what he'd done? Harry wasn't sure. Er hatte dafür gesorgt, dass Draco die Möglichkeit, dass die Magie schwindet, nicht aus den Augen verlor und den Teil des Experiments durchführte, der auf den ersten Blick in diese Richtung wies. Er hatte gewartet, bis er Draco die Genetik erklärt hatte, um ihn dazu zu bringen, über magische Kreaturen nachzudenken (obwohl Harry an uralte Artefakte wie den Sprechenden Hut gedacht hatte, den niemand mehr duplizieren konnte, der aber weiterhin funktionierte). Aber Harry hatte eigentlich keine Beweise übertrieben, hatte die Bedeutung der Ergebnisse nicht verzerrt. Als das Interdikt von Merlin den Test, der endgültig hätte sein sollen, ungültig gemacht hatte, hatte er es Draco im Voraus gesagt.
+Würde Harry für seine Taten in die Hölle der Wissenschaft kommen? Harry war sich nicht sicher. Er hatte dafür gesorgt, dass Draco die Möglichkeit, dass die Magie schwindet, nicht aus den Augen verlor und den Teil des Experiments durchführte, der auf den ersten Blick in diese Richtung wies. Er hatte gewartet, bis er Draco die Genetik erklärt hatte, um ihn dazu zu bringen, über magische Kreaturen nachzudenken (obwohl Harry an uralte Artefakte wie den Sprechenden Hut gedacht hatte, den niemand mehr duplizieren konnte, der aber weiterhin funktionierte). Aber Harry hatte eigentlich keine Beweise übertrieben, hatte die Bedeutung der Ergebnisse nicht verzerrt. Als das Interdikt von Merlin den Test, der endgültig hätte sein sollen, ungültig gemacht hatte, hatte er es Draco im Voraus gesagt.
 
 Und dann war da noch der Teil _danach_..
 
-Aber er hatte sich nicht wirklich an Draco _gelogen_ Draco hatte es geglaubt, und _das würde es wahr machen. _
+Aber er hatte sich nicht wirklich an Draco _gelogen_ Draco hatte es geglaubt, und _das würde es wahr machen_.
 
 Das Ende, zugegeben, war nicht lustig gewesen.
 
@@ -329,33 +329,33 @@ Der erste Schritt war, einfach zu versuchen, den Türknauf zu drehen. Draco kön
 
 Draco hatte nicht geblufft.
 
-"_Finite Incantatem. _" Harrys Stimme kam etwas heiser heraus und er konnte spüren, dass der Zauber nicht gewirkt hatte.
+"_Finite Incantatem_." Harrys Stimme kam etwas heiser heraus und er konnte spüren, dass der Zauber nicht gewirkt hatte.
 
-Also versuchte Harry es noch einmal, und dieses Mal fühlte es sich wahr an. Aber eine weitere Drehung am Türknauf zeigte, dass es nicht funktioniert hatte. UNTRANSLATED: No surprise there.
+Also versuchte Harry es noch einmal, und dieses Mal fühlte es sich wahr an. Aber eine weitere Drehung am Türknauf zeigte, dass es nicht funktioniert hatte. Keine Überraschung.
 
-Zeit, die großen Geschütze aufzufahren. UNTRANSLATED: Harry drew a deep breath. UNTRANSLATED: This spell was one of the most powerful he'd learned so far.
+Zeit, die großen Geschütze aufzufahren. Harry holte tief Luft. Dieser Zauber war einer der mächtigsten, die er bis jetzt gelernt hatte.
 
-"_Alohomora!_"
+"_Alohomora_!"
 
 Harry taumelte ein wenig, nachdem er das gesagt hatte.
 
 Und die Tür zum Klassenzimmer öffnete sich immer noch nicht.
 
-Das schockierte Harry. Harry hatte natürlich nicht vorgehabt, auch nur in die Nähe von Dumbledores verbotenem Korridor zu gehen. Aber ein Zauber, um magische Schlösser zu öffnen, schien sowieso eine nützliche Art von Zauber zu sein, und so hatte Harry ihn gelernt. UNTRANSLATED: Was Dumbledore's forbidden corridor meant to lure people so stupid that they didn't notice the security was worse than what Draco Malfoy could put on it?.
+Das schockierte Harry. Harry hatte natürlich nicht vorgehabt, auch nur in die Nähe von Dumbledores verbotenem Korridor zu gehen. Aber ein Zauber, um magische Schlösser zu öffnen, schien sowieso eine nützliche Art von Zauber zu sein, und so hatte Harry ihn gelernt. War Dumbledores verbotener Korridor dazu gedacht, die Leute so dumm zu machen, dass sie nicht bemerkten, dass die Sicherheitsvorkehrungen schlimmer waren als die, die Draco Malfoy anbringen konnte?
 
 Die Angst kroch zurück in Harrys System. Auf dem Schild im Medizinkoffer stand, dass das Betäubungstuch nur bis zu dreißig Minuten lang sicher verwendet werden kann. Danach würde es sich automatisch ablösen und wäre 24 Stunden lang nicht wiederverwendbar. In diesem Moment war es 18:51 Uhr. Er hatte das Taubentuch vor etwa fünf Minuten angezogen.
 
-UNTRANSLATED: So Harry took a step back, and considered the door. Es war ein massives Paneel aus dunklem Eichenholz, unterbrochen nur durch den Messing-Metall-Türknauf.
+Also trat Harry einen Schritt zurück und betrachtete die Tür. Sie war aus massivem, dunklem Eichenholz, unterbrochen nur durch den Messing-Metall-Türknauf.
 
-Harry kannte keine Spreng-, Schneid- oder Zertrümmerungszauber und Sprengstoff zu verklären hätte gegen die Regel verstoßen, dass man keine Dinge verklären darf, die verbrannt werden sollen. UNTRANSLATED: Acid was a liquid and would have made fumes...
+Harry kannte keine Spreng-, Schneid- oder Zertrümmerungszauber und Sprengstoff zu verklären hätte gegen die Regel verstoßen, dass man keine Dinge verklären darf, die verbrannt werden sollen. Säure war eine Flüssigkeit und hätte Dämpfe erzeugt....
 
-Aber das war kein Hindernis für einen _kreativen Denker. _
+Aber das war kein Hindernis für einen _kreativen Denker_.
 
 Harry legte seinen Zauberstab an eines der Messingscharniere der Tür und konzentrierte sich auf die Form der Baumwolle als reine Abstraktion, abgesehen von jeglicher materieller Baumwolle, und auch auf das reine Material, abgesehen von dem Muster, das es zu einem Messingscharnier machte, und brachte die beiden Konzepte zusammen, indem er der Substanz die Form aufzwang. Eine Stunde Transfigurationstraining jeden Tag für einen Monat hatte Harry an den Punkt gebracht, an dem er einen Gegenstand von fünf Kubikzentimetern in knapp einer Minute verformen konnte.
 
 Nach zwei Minuten hatte sich das Scharnier überhaupt nicht verändert.
 
-UNTRANSLATED: Whoever had designed Draco's locking spell, they'd thought of that, too. Oder die Tür war Teil von Hogwarts und das Schloss war immun.
+Wer auch immer Dracos Sperrzauber entworfen hatte, er hatte auch daran gedacht. Oder die Tür war Teil von Hogwarts und das Schloss war immun.
 
 Ein Blick zeigte, dass die Wände aus massivem Stein waren. Genau wie der Boden. Genauso wie die Decke. Man konnte einen Teil von etwas, das ein festes Ganzes war, nicht separat verklären; Harry hätte versuchen müssen, die ganze Wand zu verklären, was Stunden oder vielleicht Tage ununterbrochener Anstrengung erfordert hätte, wenn er es überhaupt hätte tun können, und wenn die Wand nicht mit dem Rest des ganzen Schlosses zusammenhängt...
 
@@ -377,7 +377,7 @@ _Denk nach!_ schrie Harry sein Gehirn an. _Denken! Denk!_
 
 * * *
 
-Der Slytherin-Schlafsaal war größtenteils leer. Die Leute waren beim Abendessen. UNTRANSLATED: For some reason Draco himself wasn't feeling very hungry.
+Der Slytherin-Schlafsaal war größtenteils leer. Die Leute waren beim Abendessen. Aus irgendeinem Grund hatte Draco selbst keinen großen Hunger.
 
 Draco schloss die Tür zu seinem Privatzimmer, verriegelte sie, zauberte sie zu, brachte sie zum Schweigen, setzte sich auf sein Bett und begann zu weinen.
 
@@ -387,7 +387,7 @@ Es war nicht fair.
 
 Es war das erste Mal, dass Draco wirklich _verloren_ hatte. Vater hatte ihn gewarnt, dass richtiges Verlieren beim ersten Mal weh tun würde, aber er hatte _so viel_ verloren, es war nicht fair, es war nicht fair für ihn, _alles_ beim ersten Mal zu verlieren.
 
-UNTRANSLATED: Somewhere in the dungeons, a boy Draco had actually liked was screaming in pain. Draco hatte noch nie jemanden verletzt, den er mochte. Leute zu bestrafen, die es verdient haben, sollte eigentlich Spaß machen, aber das hier fühlte sich einfach innerlich krank an. Vater hatte ihn nicht davor gewarnt und Draco fragte sich, ob es eine harte Lektion war, die jeder lernen musste, wenn er erwachsen wurde, oder ob Draco einfach nur schwach war.
+Irgendwo in den Kerkern schrie ein Junge, den Draco eigentlich gemocht hatte, vor Schmerzen. Draco hatte noch nie jemanden verletzt, den er mochte. Leute zu bestrafen, die es verdient haben, sollte eigentlich Spaß machen, aber das hier fühlte sich einfach innerlich krank an. Vater hatte ihn nicht davor gewarnt und Draco fragte sich, ob es eine harte Lektion war, die jeder lernen musste, wenn er erwachsen wurde, oder ob Draco einfach nur schwach war.
 
 Draco wünschte, es wäre Pansy, die schrie. Das hätte sich besser angefühlt.
 
@@ -399,7 +399,7 @@ Draco würde zu Harry Potter zurückkehren müssen, weil er nirgendwo anders hin
 
 Die Falle war perfekt aufgestellt, perfekt ausgeführt. Vater hatte Draco immer wieder gewarnt, dass man das, was man den dunklen Ritualen geopfert hatte, nicht zurückgewinnen konnte. Aber Vater hatte nicht gewusst, dass die verfluchten Muggel Rituale erfunden hatten, die keine Zauberstäbe brauchten, Rituale, zu denen man überlistet werden konnte, ohne es zu wissen, und das war nur eines der schrecklichen Geheimnisse, die die Wissenschaftler kannten und die Harry Potter mitgebracht hatte.
 
-UNTRANSLATED: Draco started crying harder, then.
+Dann fing Draco an, noch stärker zu weinen.
 
 Er wollte das nicht, er _wollte_ es nicht, aber es gab kein Zurück mehr. Es war zu spät. Er war bereits ein Wissenschaftler.
 
@@ -407,7 +407,7 @@ Draco wusste, dass er zurückgehen und Harry Potter befreien und sich entschuldi
 
 Stattdessen blieb Draco in seinem Bett und schluchzte.
 
-Er hatte bereits Harry Potter verletzt. UNTRANSLATED: It might be the only time Draco ever got to hurt him, and he would have to hold to that one memory for the rest of his life.
+Er hatte bereits Harry Potter verletzt. Es war vielleicht das einzige Mal, dass Draco ihm wehtun konnte, und er würde sich für den Rest seines Lebens an diese eine Erinnerung klammern müssen.
 
 Lass ihn weiter schreien.
 

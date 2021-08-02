@@ -292,7 +292,7 @@ Purer Schock überzog Harrys Gesicht und er stand so schnell auf, dass er fast h
 
 Und Hermine knallte die Tür wieder zu, gerade als das gigantische Krachen von hundert Kilogramm fallendem Metall aus dem Inneren kam.
 
-Sie keuchte, schnappte nach Luft, sie war den ganzen Weg hierher gelaufen, ohne anzuhalten, sie war schweißgebadet und ihre Beine und Oberschenkel brannten wie lebende Flammen, sie hätte Harrys Fragen für keine Galleone der Welt beantworten können.
+Sie keuchte, schnappte nach Luft, sie war den ganzen Weg hierher gelaufen, ohne anzuhalten, sie war schweißgebadet und ihre Beine und Oberschenkel brannten wie lebende Flammen, sie hätte Harrys Fragen nicht für alle Galleonen der Welt beantworten können.
 
 Hermine blinzelte und bemerkte, dass sie zu fallen begonnen hatte. Harry hatte sie aufgefangen und ließ sie sanft auf den Boden sinken.
 
