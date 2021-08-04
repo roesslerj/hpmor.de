@@ -650,11 +650,11 @@ Dann lächelte Severus, sah plötzlich wieder entspannt aus und die ganze Anspan
 
 "Eher Papas Science-Fiction- und Fantasy-Sammlung", sagte Harry. "Sozusagen mein fünftes Elternteil, wirklich. Ich habe das Leben all der Charaktere in all meinen Büchern gelebt, und all ihre mächtigen Weisheiten donnern in meinem Kopf. Irgendwo da drin war jemand wie Lesath, vermute ich, obwohl ich nicht sagen könnte, wer. Es war nicht schwer, mich in seine Lage zu versetzen. Und es waren auch meine Bücher, die mir sagten, was zu tun ist. Die guten Jungs verzeihen. "
 
-Severus gab ein leichtes, amüsiertes Lachen von sich. "Ich fürchte, ich wüsste nicht viel darüber, was gute Menschen tun. "
+Severus gab ein leichtes, amüsiertes Lachen von sich. "Ich fürchte, ich wüsste nicht viel darüber, was gute Menschen tun."
 
 Harry sah ihn an. Das war eigentlich ganz schön traurig. "Ich leihe dir ein paar Romane mit guten Menschen darin, wenn du willst. "
 
-"Ich würde dich gerne in einer Sache um Rat fragen", sagte Severus mit lässiger Stimme. "Ich weiß von einem anderen Slytherin aus dem fünften Jahr, der von Gryffindors gemobbt wurde. Er umwirbt ein wunderschönes Muggleborn-Mädchen, das ihn beim Mobbing erwischt und versucht, ihn zu retten. Und er nannte sie ein Schlammblut und das war das Ende für sie. Er hat sich entschuldigt, viele Male, aber sie hat ihm nie verziehen. Hast du eine Idee, was er hätte sagen oder tun können, um von ihr die Vergebung zu erhalten, die du Lestrange gegeben hast?"
+"Ich würde dich gerne in einer Sache um Rat fragen", sagte Severus mit lässiger Stimme. "Ich weiß von einem anderen Slytherin aus dem fünften Jahr, der von Gryffindors gemobbt wurde. Er umwirbt ein wunderschönes Muggel-Mädchen, das ihn beim Mobbing erwischt und versucht, ihn zu retten. Und er nannte sie ein Schlammblut und das war das Ende für sie. Er hat sich entschuldigt, viele Male, aber sie hat ihm nie verziehen. Hast du eine Idee, was er hätte sagen oder tun können, um von ihr die Vergebung zu erhalten, die du Lestrange gegeben hast?"
 
 "Ähm", sagte Harry, "nur aufgrund dieser Information bin ich mir nicht sicher, ob _er_ das Hauptproblem war. Ich hätte ihm gesagt, dass er sich nicht mit jemandem treffen soll, der unfähig ist, zu vergeben. Angenommen, sie hätten geheiratet, kannst du dir das Leben in diesem Haushalt vorstellen?"
 
@@ -777,3 +777,5 @@ Und Harry konnte Professor Quirrells Worte nicht verstehen, es könnte ein Auße
 Du konntest deinen Heimatplaneten nicht verlassen, solange er noch einen Ort wie Askaban enthielt.
 
 Du musstest bleiben und kämpfen.
+
+→ [Kapitel 28](Kapitel-28.md)

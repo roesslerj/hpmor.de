@@ -116,7 +116,7 @@ _"Dann plane um! Lass Dein Leben nicht durch Deinen Widerwillen, ein wenig mehr 
 
 _Wo sollte ich denn hingehen, wenn nicht nach Ravenclaw?_
 
-_"Ähem. 'Die schlauen Kinder in Ravenclaw, die bösen Kinder in Slytherin, die Möchtegern-Helden in Gryffindor und alle, die die eigentliche Arbeit machen, in Hufflepuff. 'Das deutet auf einen gewissen Grad an Respekt hin. Du bist Dir darüber im Klaren, dass Gewissenhaftigkeit genauso wichtig ist wie rohe Intelligenz, wenn es darum geht, den Ausgang des Lebens zu bestimmen. Du glaubst, dass Du Deinen Freunden gegenüber extrem loyal sein wirst, wenn Du jemals welche hast. Du bist nicht erschrocken über die Erwartung, dass die Lösung der von Dir gewählten wissenschaftlichen Probleme Jahrzehnte dauern kann -"_
+_"Ähem. 'Die schlauen Kinder in Ravenclaw, die bösen Kinder in Slytherin, die Möchtegern-Helden in Gryffindor und alle, die die eigentliche Arbeit machen, in Hufflepuff.' Das deutet auf einen gewissen Grad an Respekt hin. Du bist Dir darüber im Klaren, dass Gewissenhaftigkeit genauso wichtig ist wie rohe Intelligenz, wenn es darum geht, den Ausgang des Lebens zu bestimmen. Du glaubst, dass Du Deinen Freunden gegenüber extrem loyal sein wirst, wenn Du jemals welche hast. Du bist nicht erschrocken über die Erwartung, dass die Lösung der von Dir gewählten wissenschaftlichen Probleme Jahrzehnte dauern kann -"_
 
 _Ich bin faul! Ich hasse Arbeit! Ich hasse harte Arbeit in all ihren Formen! Clevere Abkürzungen, das ist alles, worum es mir geht!_
 

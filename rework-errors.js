@@ -16,7 +16,6 @@ function translateChunk(text2Translate) {
     return text2Translate;
   }
   return translate({
-    free_api: true,
     text: text2Translate,
     target_lang: 'DE',
     formality: 'less',
@@ -43,7 +42,12 @@ function translateParagraphs(paragraph) {
       }
       continue;
     }
-    translations.push(translateChunk(sentence.trim() + '.'));
+    if (sentence.trim().startsWith(error_prefix)) {
+      translations.push(translateChunk(sentence.replace(error_prefix, '').trim() + '.'));
+    }
+    else {
+      translations.push(Promise.resolve(sentence.trim() + '.'));
+    }
   }
   return Promise.all(translations)
     .then(values => values.join(' '))
@@ -65,55 +69,44 @@ function translateText(text) {
   return Promise.all(translations).then(values => values.join('\n\n'));
 }
 
-const re = /Chapter (\d*) .*/i;
-
 async function run() {
-  const files = fs.readdirSync('en').filter(file => file.startsWith('Chapter'));
-  for (var idx = 0; idx <= 121; idx++) {
-    const file = files[idx];
-    const chapter = file.match(re)[1];
-    if (process.argv.length > 2 && process.argv[2] != chapter) {
-      continue;
-    }
-    const filename = `de/Kapitel-${chapter}.md`;
-    const en_filename = path.join(__dirname, 'en', file);
-    const text = fs.readFileSync(en_filename, 'utf8');
-    const nextChapter = chapter + 1;
-    const translated = await (await translateText(text))
-      .replaceAll('. . .', '...')
-      .replaceAll('* * *.', '* * *')
-      .replaceAll('".', '"')
-      .replaceAll('_.', '_')
-      .replaceAll(' -".', '."')
-      .replaceAll('," ', '", ')
-      .replaceAll('Mum', 'Mama')
-      .replaceAll('Dad', 'Papa')
-      .replaceAll('Diagon Alley', 'Winkelgasse')
-      .replaceAll('Leaky Cauldron', 'Tropfender Kessel')
-      .replaceAll('Moke', 'Eselsfell')
-      .replaceAll('Mokeskin', 'Eselsfell')
-      .replaceAll('Mokassin', 'Eselsfell')
-      .replaceAll('Pouch', 'Beutel')
-      .replaceAll('Präfektin', 'Vertrauensschülerin')
-      .replaceAll('Präfekt', 'Vertrauensschüler')
-      .replaceAll('Comed-Tea', 'Seltsaft')
-      .replaceAll('Time-Turner', 'Zeitumkehrer')
-      .replaceAll('Zeitdreher', 'Zeitumkehrer')
-      .replaceAll('Dark Lord', 'Dunkler Lord')
-      .replaceAll('Herr ', 'Mr. ')
-      .replaceAll('. "\n', '."\n')
-      .replaceAll('verklären', 'verwandeln')
-      .replaceAll('Aftermath', 'Nachspiel')
-      .replaceAll('\{\\an8\}', '_')
-      .concat(`\n\n→ [Kapitel ${nextChapter}](Kapitel-${nextChapter}.md)\n`);
-    console.log("\n\n\n");
-    console.log(`Writing translated chapter ${chapter} into file ${filename} with ${errorCnt} errors.\n`);
-    fs.writeFileSync(filename, '# ' + translated, err => {
-        if (err) {
-          console.error(err);
-        }
-      });
-  }
+  const chapter = process.argv[2];
+  const filename = `de/Kapitel-${chapter}.md`;
+  const text = fs.readFileSync(filename, 'utf8');
+  const nextChapter = chapter + 1;
+  const translated = await (await translateText(text))
+    .replaceAll('. . .', '...')
+    .replaceAll('* * *.', '* * *')
+    .replaceAll('".', '"')
+    .replaceAll('_.', '_')
+    .replaceAll(' -".', '."')
+    .replaceAll('," ', '", ')
+    .replaceAll('Mum', 'Mama')
+    .replaceAll('Dad', 'Papa')
+    .replaceAll('Diagon Alley', 'Winkelgasse')
+    .replaceAll('Leaky Cauldron', 'Tropfender Kessel')
+    .replaceAll('Moke', 'Eselsfell')
+    .replaceAll('Mokeskin', 'Eselsfell')
+    .replaceAll('Mokassin', 'Eselsfell')
+    .replaceAll('Pouch', 'Beutel')
+    .replaceAll('Präfektin', 'Vertrauensschülerin')
+    .replaceAll('Präfekt', 'Vertrauensschüler')
+    .replaceAll('Comed-Tea', 'Seltsaft')
+    .replaceAll('Time-Turner', 'Zeitumkehrer')
+    .replaceAll('Zeitdreher', 'Zeitumkehrer')
+    .replaceAll('Dark Lord', 'Dunkler Lord')
+    .replaceAll('Herr ', 'Mr. ')
+    .replaceAll('. "\n', '."\n')
+    .replaceAll('verklären', 'verwandeln')
+    .replaceAll('Aftermath', 'Nachspiel')
+    .replaceAll('\{\\an8\}', '_');
+  console.log("\n\n\n");
+  console.log(`Updating translated chapter ${chapter} in file ${filename} with ${errorCnt} errors.\n`);
+  fs.writeFileSync(filename, translated, err => {
+      if (err) {
+        console.error(err);
+      }
+    });
 }
 
 run();

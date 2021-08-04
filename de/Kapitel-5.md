@@ -72,7 +72,7 @@ Harry trat gegen die Backsteinmauer der Gasse so fest, dass sein Fuß schmerzte.
 
 "Ja", sagte Harry, Ärger und Frustration kämpften in ihm, "als hätte ich den Dunklen Lord zerstört, weil ich eine Art permanente, dauerhafte Zerstör-den-Dunklen-Lord-Eigenschaft habe. Ich war zu der Zeit fünfzehn Monate alt! Ich _weiß_ nicht, was passiert ist, aber ich würde _annehmen_, dass es etwas mit, wie man so schön sagt, kontingenten Umweltbedingungen zu tun hatte. Und ganz sicher nichts mit meiner Persönlichkeit. Die Leute interessieren sich nicht für _mich_, sie schenken _mir_ keine Aufmerksamkeit, sie wollen nur _ohne guten Grund_ meine Hand schütteln. " Harry hielt inne und sah McGonagall an. "Wissen _Sie_, was wirklich passiert ist?".
 
-"Ich _habe_ eine Vermutung... ", sagte Professor McGonagall. "Zumindest seitdem ich Sie kennengelernt habe."
+"Ich _habe_ eine Vermutung...", sagte Professor McGonagall. "Zumindest seitdem ich Sie kennengelernt habe."
 
 "Ja?"
 
@@ -92,7 +92,7 @@ Harry nickte. Er hasste Kleiderkauf mit einer feurigen Leidenschaft und konnte e
 
 Professor McGonagalls Zauberstab kam aus ihrem Ärmel und tippte leicht an Harrys Kopf. "Und da Sie für Madam Malkins Sinne klar sein müssen, entferne ich die Vernebelung."
 
-"Äh... " sagte Harry. Das beunruhigte ihn ein wenig; er war immer noch nicht an diese "Harry Potter"-Sache gewöhnt.
+"Äh..." sagte Harry. Das beunruhigte ihn ein wenig; er war immer noch nicht an diese "Harry Potter"-Sache gewöhnt.
 
 "Ich bin mit Madam Malkin nach Hogwarts gegangen", sagte McGonagall. "Schon damals war sie eine der _gefasstesten_ Menschen, die ich kannte. Sie würde nicht einmal blinzeln, wenn Sie-wissen-schon-wer höchstpersönlich ihr Geschäft betreten würde." McGonagalls Stimme war nostalgisch und sehr angetan. "Madam Malkin wird Sie nicht belästigen, und sie wird auch nicht zulassen, dass Sie jemand anderes belästigt."
 
@@ -188,9 +188,9 @@ Die dunklen Augen weiteten sich, schockierte Überraschung ersetzte tödliche Be
 
 "Ihr Sohn hat mir _alles_ über Sie erzählt", sprudelte es aus Harry heraus, der kaum noch wusste, was aus seinem Mund kam, sondern einfach so schnell wie möglich sprach. "Aber natürlich wusste ich schon vorher von Ihnen, jeder weiß von Ihnen, der große Lucius Malfoy! Der ehrenvollste Preisträger des Hauses Slytherin, ich habe schon darüber nachgedacht, selbst ins Haus Slytherin zu gehen, nur weil ich gehört habe, dass Sie als Kind dort waren -"
 
-"Was wollen Sie damit sagen, _Mr. Potter?_" kam ein Beinahe-Schrei von außerhalb des Ladens, und Professor McGonagall platzte eine Sekunde später herein.
+"Was wollen Sie damit sagen, _Mr. Potter_?" kam ein Beinahe-Schrei von außerhalb des Ladens, und Professor McGonagall platzte eine Sekunde später herein.
 
-Auf ihrem Gesicht lag so pures Entsetzen, dass Harrys Mund sich automatisch öffnete, dann aber mit offenem Mund dastand, weil er nicht wusste, was er sagen sollte.
+Auf ihrem Gesicht lag so pures Entsetzen, dass Harrys Mund sich automatisch öffnete, er dann aber mit offenem Mund dastand, weil er nicht wusste, was er sagen sollte.
 
 "Professor McGonagall!", rief Draco. "Sind Sie es wirklich? Ich habe von meinem Vater so viel über Sie gehört, dass ich überlegt habe, mich nach Gryffindor sortieren zu lassen, damit ich -"
 
@@ -210,7 +210,7 @@ Madam Malkin schaute Ihr vier Sekunden lang stumm in die Augen, dann brach sie l
 
 Professor McGonagall drehte sich langsam um und sah Harry an, ihr Ausdruck war kühl. "Ich habe Sie für fünf Minuten allein gelassen. Genau _fünf Minuten_, Mr Potter."
 
-"Ich habe nur herumgealbert", protestierte Harry, als in der Nähe hysterisches Gelächter ertönte.
+"Ich habe nur ... herumgealbert", protestierte Harry, als in der Nähe hysterisches Gelächter ertönte.
 
 "Draco Malfoy hat vor seinem Vater gesagt, dass er nach Gryffindor einsortiert werden will!" "Herumalbern, reicht _dafür_ wohl nicht aus!" Professor McGonagall hielt inne und holte sichtlich Luft. "Welcher Teil von 'Roben anfertigen lassen' klang für Sie wie _Bitte zaubern Sie einen Confundus-Zauber auf das gesamte Universum!_"
 

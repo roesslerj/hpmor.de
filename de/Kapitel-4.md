@@ -10,13 +10,13 @@ A/N: Wie andere bemerkt haben, scheinen die Romane in Bezug auf die scheinbare K
 
 * * *
 
-Haufenweise goldene Galeonen. Stapel von silbernen Sicheln. Stapel von Bronze-Knuts.
+Haufen goldener Galeonen. Stapel silberner Sickel. Berge Bronze-Knuts.
 
-Harry stand da und starrte mit offenem Mund auf die Familiengruft. Er hatte so viele Fragen, dass er nicht wusste, _wo_ er anfangen sollte.
+Harry stand da und starrte mit offenem Mund auf den Familientresor. Er hatte so viele Fragen, dass er nicht wusste, _wo_ er anfangen sollte.
 
 Von der Tür des Tresors aus beobachtete ihn Professor McGonagall, die scheinbar lässig an der Wand lehnte, aber ihre Augen waren aufmerksam. Nun, das machte Sinn. Vor einen riesigen Haufen Goldmünzen gesetzt zu werden, war eine so reine Charakterprüfung, dass sie archetypisch war.
 
-"Sind diese Münzen das reine Metall?" sagte Harry schließlich.
+"Sind diese Münzen aus purem Metall?" sagte Harry schließlich.
 
 "Was?", zischte der Kobold Griphook, der in der Nähe der Tür wartete. "Stellen Sie die Integrität von Gringotts in Frage, Mr. Potter-Evans-Verres?"
 
@@ -34,7 +34,7 @@ Griphook grinste und zeigte scharfe Zähne. "Nur ein Narr würde etwas anderem a
 
 Griphook starrte Harry an. Professor McGonagall schaute verwirrt.
 
-"Ich meine, angenommen, ich komme mit einer Tonne Silber hierher. Könnte ich eine Tonne Sickles daraus machen lassen?"
+"Ich meine, angenommen, ich komme mit einer Tonne Silber hierher. Könnte ich eine Tonne Sickel daraus machen lassen?"
 
 "Gegen eine Gebühr, Mr. Potter-Evans-Verres. " Der Kobold beobachtete ihn mit funkelnden Augen. "Gegen eine gewisse Gebühr. Wo würden Sie wohl eine Tonne Silber finden?"
 
@@ -48,7 +48,7 @@ Griphook's Augen waren aufmerksam. "Ich müsste meine Vorgesetzten konsultieren.
 
 Harry nickte. "Vielen Dank, Mr. Griphook."
 
-Die Zauberer-Wirtschaft ist also nicht nur fast vollständig von der Muggel-Wirtschaft abgekoppelt, es hat hier auch noch nie jemand etwas von Arbitrage gehört. Die größere Muggelwirtschaft hatte eine schwankende Handelsspanne von Gold zu Silber, so dass jedes Mal, wenn das Muggel-Gold-zu-Silber-Verhältnis mehr als 5% vom Gewicht von siebzehn Sickles zu einer Galeone abwich, entweder Gold oder Silber aus der Zaubererwirtschaft hätte abfließen müssen, bis es unmöglich wurde, den Wechselkurs aufrechtzuerhalten. Bringen Sie eine Tonne Silber herein, tauschen Sie es in Sickles um (und zahlen Sie 5%), tauschen Sie die Sickles in Galleonen um, bringen Sie das Gold in die Muggelwelt, tauschen Sie es in mehr Silber um, als Sie am Anfang hatten, und wiederholen Sie den Vorgang.
+Die Zauberer-Wirtschaft ist also nicht nur fast vollständig von der Muggel-Wirtschaft abgekoppelt, es hat hier auch noch nie jemand etwas von Arbitrage gehört. Die größere Muggelwirtschaft hatte eine schwankende Handelsspanne von Gold zu Silber, so dass jedes Mal, wenn das Muggel-Gold-zu-Silber-Verhältnis mehr als 5% vom Gewicht von siebzehn Sickel zu einer Galeone abwich, entweder Gold oder Silber aus der Zaubererwirtschaft hätte abfließen müssen, bis es unmöglich wurde, den Wechselkurs aufrechtzuerhalten. Bringen Sie eine Tonne Silber herein, tauschen Sie es in Sickel um (und zahlen Sie 5%), tauschen Sie die Sickel in Galleonen um, bringen Sie das Gold in die Muggelwelt, tauschen Sie es in mehr Silber um, als Sie am Anfang hatten, und wiederholen Sie den Vorgang.
 
 War das Verhältnis von Muggelgold zu Silber nicht irgendwo bei fünfzig zu eins? Harry glaubte jedenfalls nicht, dass es siebzehn war. Und es sah so aus, als wären die Silbermünzen tatsächlich _kleiner_ als die Goldmünzen.
 

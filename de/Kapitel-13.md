@@ -200,7 +200,7 @@ Harry zerdrückte den Zettel in seiner Hand, das Gesicht flammte scharlachrot. D
 
 Zu diesem Zeitpunkt wusste er es besser, als dass er es laut aussprach. Er würde wahrscheinlich eine Profanity Penalty bekommen.
 
-Harry umgürtete sich mit seinem Eselsfellskin-Beutel und seinem Zauberstab. Er zog die Verpackung eines seiner Müsliriegel ab und warf sie in den Mülleimer des Zimmers, wo sie auf einem größtenteils angefressenen Schokofrosch, einem zerknitterten Umschlag und etwas grünem und rotem Geschenkpapier landete. Die anderen Müsliriegel steckte er in seinen Mokeskin-Beutel.
+Harry umgürtete sich mit seinem Eselsfell-Beutel und seinem Zauberstab. Er zog die Verpackung eines seiner Müsliriegel ab und warf sie in den Mülleimer des Zimmers, wo sie auf einem größtenteils angefressenen Schokofrosch, einem zerknitterten Umschlag und etwas grünem und rotem Geschenkpapier landete. Die anderen Müsliriegel steckte er in seinen Eselsfell-Beutel.
 
 Er sah sich in einer letzten, verzweifelten und letztlich vergeblichen Suche nach Hinweisen um.
 

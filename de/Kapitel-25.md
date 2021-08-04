@@ -68,7 +68,7 @@ Und es führte unweigerlich zu einer einzigen endgültigen Schlussfolgerung.
 
 Die alten Vorfahren der Zauberer, tausende von Jahren zuvor, hatten der Quelle der Magie gesagt, dass man Dinge nur schweben lassen kann, wenn man es sagt...
 
-'Wingardium Leviosa. '.
+"Wingardium Leviosa."
 
 Harry sackte am Frühstückstisch in sich zusammen und stützte seine Stirn müde auf seine rechte Hand.
 
@@ -436,7 +436,7 @@ Freds Augen waren vor Erstaunen weit aufgerissen. Das passierte manchmal, zwisch
 
 "Er hat recht", sagte Fred und fühlte sich ziemlich nervös. Die Weasley-Zwillinge stimmten _gelegentlich_ nicht überein, selbst wenn sie alle die gleichen Informationen hatten, aber jedes Mal, wenn sie es taten, schien es unnatürlich, als ob mindestens einer von ihnen etwas falsch machen müsste. "Das ist _Harry Potter_, über den wir hier reden. Er kann das Unmögliche tun. Das können wir nicht. "
 
-"Ja, das können wir", sagte George. "Und wir müssen _mehr_ unmöglich sein als er. "
+"Ja, das können wir", sagte George. "Und wir müssen _mehr_ unmöglich sein als er."
 
 "Aber -", sagte Fred.
 
@@ -446,4 +446,6 @@ Damit war die Sache erledigt und die Zwillinge schnappten wieder zu... was auch 
 
 "Na gut, dann -"
 
-"- lass uns darüber nachdenken. "
+"- lass uns darüber nachdenken."
+
+→ [Kapitel 26](Kapitel-26.md)

@@ -108,13 +108,13 @@ Und Draco sah die Frage, die eigentlich offensichtlich hätte sein müssen, und 
 
 Harry ging zum Fenster hinüber, in den kleinen Sonnenstrahl, der in die Nische schien, und drehte seinen Kopf nach außen, in Richtung des grünen Geländes von Hogwarts. Die Helligkeit leuchtete auf ihn, auf seine Gewänder, auf sein Gesicht.
 
-"Warum habe ich das nicht?" sagte Harry. Seine Stimme hat sich verfangen. "Ich schätze, weil ich einfach nicht wütend auf dich sein konnte. Ich wusste, dass ich dich zuerst verletzen würde. Ich werde es nicht einmal fair nennen, denn was ich dir angetan habe, war schlimmer als das, was du mir angetan hast. "
+"Warum habe ich das nicht?" sagte Harry. Seine Stimme hat sich verfangen. "Ich schätze, weil ich einfach nicht wütend auf dich sein konnte. Ich wusste, dass ich dich zuerst verletzt hatte. Ich werde es nicht einmal fair nennen, denn was ich dir angetan habe, war schlimmer als das, was du mir angetan hast."
 
-Es war, als ob ich gegen eine weitere Ziegelmauer laufen würde. Harry hätte auch archaisches Griechisch sprechen können, wenn Draco ihn verstanden hätte.
+Es war, als ob er gegen eine weitere Ziegelmauer gelaufen wäre. Harry hätte auch archaisches Griechisch sprechen können, Draco ihn genauso gut verstanden.
 
-Dracos Verstand suchte nach Mustern und kam mit leeren Händen zurück. Die Aussage war ein Zugeständnis, das nicht in Harrys Interesse gewesen war. Es war nicht einmal das, was Harry sagen sollte, um Draco zu einem loyaleren Diener zu machen, jetzt, wo Harry Macht über ihn hatte. Dafür sollte Harry betonen, wie freundlich er gewesen war, nicht wie sehr er Draco verletzt hatte.
+Dracos Verstand suchte nach Mustern und kam mit leeren Händen zurück. Die Aussage war ein Zugeständnis, das nicht in Harrys Interesse gewesen war. Es war nicht einmal das, was Harry sagen sollte, um Draco zu einem loyaleren Diener zu machen – jetzt, wo Harry Macht über ihn hatte. Dafür hätte Harry betonen sollen, wie freundlich er gewesen war – nicht wie sehr er Draco verletzt hatte.
 
-"Trotzdem", sagte Harry und jetzt war seine Stimme tiefer, fast ein Flüstern, "bitte tu das nicht noch einmal, Draco. Es tat weh und ich bin mir nicht sicher, ob ich dir ein zweites Mal verzeihen könnte. Ich bin mir nicht sicher, ob ich das wollen könnte. "
+"Trotzdem", sagte Harry und jetzt war seine Stimme tiefer, fast ein Flüstern, "bitte tu das nicht noch einmal, Draco. Es tat weh und ich bin mir nicht sicher, ob ich dir ein zweites Mal verzeihen könnte. Ich bin mir nicht sicher, ob ich das wollen könnte."
 
 Draco hat es einfach nicht verstanden.
 
@@ -124,25 +124,25 @@ Harry Potter konnte auf keinen Fall so dumm sein, zu glauben, dass das noch mög
 
 Du konntest jemandes Freund und Verbündeter sein, wie Draco es bei Harry versucht hatte, oder du konntest sein Leben zerstören und ihm keine andere Wahl lassen. Nicht beides.
 
-Aber dann verstand Draco nicht, was Harry sonst noch versuchen _könnte_
+Aber dann verstand Draco nicht, was Harry sonst noch versuchen _könnte_.
 
 Und dann kam Draco ein seltsamer Gedanke, etwas, worüber Harry gestern immer wieder gesprochen hatte.
 
-Und der Gedanke war: _Teste es. _
+Und der Gedanke war: _Teste es._
 
-Du bist jetzt als Wissenschaftler erwacht", hatte Harry gesagt, "und selbst wenn du nie lernst, deine Kraft zu nutzen, wirst du immer nach Wegen suchen, um deine Überzeugungen zu testen... Diese unheilvollen Worte, gesprochen in qualvollen Atemzügen, waren Draco immer wieder durch den Kopf gegangen.
+"Du bist jetzt als Wissenschaftler erwacht", hatte Harry gesagt, "und selbst wenn du nie lernst, deine Kraft zu nutzen, wirst du immer nach Wegen suchen, um deine Überzeugungen zu testen... Diese unheilvollen Worte, gesprochen in qualvollen Atemzügen, waren Draco immer wieder durch den Kopf gegangen.
 
 Wenn Harry so tun würde, als wäre er der reumütige Freund, der versehentlich jemanden verletzt hatte...
 
 "Du hast _geplant_, was du mit mir gemacht hast!" sagte Draco und schaffte es, einen Ton der Anschuldigung in seine Stimme zu legen. "Du hast es nicht getan, weil du wütend warst, du hast es getan, weil du es _gewollt_ hast!"
 
-_Dummkopf,_ würde Harry Potter sagen, _natürlich habe ich es geplant, und jetzt gehörst du mir -_
+_Dummkopf_, würde Harry Potter sagen, _natürlich habe ich es geplant, und jetzt gehörst du mir!_
 
-Harry drehte sich wieder zu Draco um. "Was gestern passiert ist, _war_ nicht der Plan", sagte Harry, seine Stimme schien in seiner Kehle stecken zu bleiben. "Der _Plan_ war, dass ich dir beibringen würde, warum es immer besser ist, die Wahrheit zu kennen, und dann würden wir gemeinsam versuchen, die Wahrheit über das Blut herauszufinden, und was auch immer die Antwort war, wir würden sie akzeptieren. Gestern I... überstürzte Dinge. "
+Harry drehte sich wieder zu Draco um. "Was gestern passiert ist, _war_ nicht der Plan", sagte Harry, seine Stimme schien in seiner Kehle stecken zu bleiben. "Der _Plan_ war, dass ich dir beibringen würde, warum es immer besser ist, die Wahrheit zu kennen, und dann würden wir gemeinsam versuchen, die Wahrheit über das Blut herauszufinden, und was auch immer die Antwort war, wir würden sie akzeptieren. Gestern habe ich... die Dinge überstürzt."
 
-"Es ist immer besser, die Wahrheit zu kennen", sagte Draco kalt. "Als ob du mir einen _Gefallen getan hättest. _"
+"Es ist immer besser, die Wahrheit zu kennen", sagte Draco kalt. "Als ob du mir einen _Gefallen getan hättest_."
 
-Harry nickte, was Draco völlig aus dem Konzept brachte, und sagte: "Was ist, wenn Lucius auf die gleiche Idee kommt wie ich, dass das Problem darin besteht, dass stärkere Zauberer weniger Kinder haben? Er könnte ein Programm starten, um die stärksten Reinblüter dafür zu bezahlen, mehr Kinder zu bekommen. Tatsächlich, wenn der Blutpurismus _richtig_ wäre, ist es genau das, was Lucius tun _sollte_ - das Problem auf _seiner_ Seite angehen, wo er sofort etwas bewirken kann. Im Moment, Draco, bist du der einzige Freund, den Lucius hat, der versuchen würde, ihn davon abzuhalten, die Anstrengung zu verschwenden, denn du bist der einzige, der die _wirkliche_ Wahrheit kennt und die wirklichen Ergebnisse vorhersagen kann. "
+Harry nickte, was Draco völlig aus dem Konzept brachte, und sagte: "Was ist, wenn Lucius auf die gleiche Idee kommt wie ich, dass das Problem darin besteht, dass stärkere Zauberer weniger Kinder haben? Er könnte ein Programm starten, um die stärksten Reinblüter dafür zu bezahlen, mehr Kinder zu bekommen. Tatsächlich, wenn der Blutpurismus _richtig_ wäre, ist es genau das, was Lucius tun _sollte_ - das Problem auf _seiner_ Seite angehen, wo er sofort etwas bewirken kann. Im Moment, Draco, bist du der einzige Freund, den Lucius hat, der versuchen würde, ihn davon abzuhalten, seine Mühe zu verschwenden, denn du bist der einzige, der die _wirkliche_ Wahrheit kennt und die wirklichen Ergebnisse vorhersagen kann."
 
 Draco kam der Gedanke, dass Harry Potter an einem Ort aufgewachsen war, der so fremdartig war, dass er nun tatsächlich eher ein magisches Wesen als ein Zauberer war. Draco konnte einfach nicht erraten, was Harry als nächstes sagen oder tun würde.
 
@@ -150,13 +150,13 @@ Draco kam der Gedanke, dass Harry Potter an einem Ort aufgewachsen war, der so f
 
 "Nun", sagte Harry, "du bist Lucius' Erbe und ob du es glaubst oder nicht, Dumbledore denkt, ich gehöre ihm. So konnten wir aufwachsen und ihre Kämpfe miteinander austragen. Oder wir könnten etwas anderes machen. "
 
-Langsam machte sich Dracos Verstand einen Reim darauf. "Du willst einen Kampf bis zum Ende zwischen ihnen provozieren und dann die Macht an dich reißen, nachdem sie beide erschöpft sind. " Draco spürte kaltes Grauen in seiner Brust. Er würde versuchen _müssen_, das zu stoppen, egal was es ihn selbst kosten würde -.
+Langsam machte sich Dracos Verstand einen Reim darauf. "Du willst einen Kampf bis zum Ende zwischen ihnen provozieren und dann die Macht an dich reißen, nachdem sie beide erschöpft sind." Draco spürte kaltes Grauen in seiner Brust. Er würde versuchen _müssen_, das zu stoppen, egal was es ihn selbst kosten würde -
 
-Doch Harry schüttelte den Kopf. "Sterne oben, _nein!_"
+Doch Harry schüttelte den Kopf. "Bei den Sterne, _nein!_"
 
 "Nein... ?"
 
-"Darauf würdest du dich nicht einlassen und ich auch nicht", sagte Harry. "Dies ist _unsere_ Welt, wir wollen sie nicht kaputt machen. Aber stell dir vor, sagen wir, Lucius dachte, die Verschwörung wäre dein Werkzeug und du wärst auf seiner Seite, Dumbledore dachte, die Verschwörung wäre mein Werkzeug und ich wäre auf seiner Seite, Lucius dachte, du hättest mich verwandelt und Dumbledore glaubte, die Verschwörung wäre meine, Dumbledore dachte, ich hätte dich verwandelt und Lucius glaubte, die Verschwörung wäre deine, und so halfen sie uns beide, aber nur auf eine Art und Weise, die der andere nicht bemerken würde. "
+"Darauf würdest du dich nicht einlassen und ich auch nicht", sagte Harry. "Dies ist _unsere_ Welt, wir wollen sie nicht kaputt machen. Aber stell dir vor, sagen wir, Lucius dachte, die Verschwörung wäre dein Werkzeug und du wärst auf seiner Seite, Dumbledore dachte, die Verschwörung wäre mein Werkzeug und ich wäre auf seiner Seite. Lucius dachte, du hättest mich verwandelt und Dumbledore glaubte, die Verschwörung wäre meine, Dumbledore dachte, ich hätte dich verwandelt und Lucius glaubte, die Verschwörung wäre deine, und so halfen sie uns beide, aber nur auf eine Art und Weise, die der andere nicht bemerken würde."
 
 Draco musste nicht vortäuschen, sprachlos zu sein.
 
@@ -170,11 +170,11 @@ Vater hatte gesagt, dass Draco unmöglich falscher liegen könnte, und wies dara
 
 Damals hatte Vater Draco von der Dreierregel erzählt, die besagte, dass jede Handlung, bei der mehr als drei verschiedene Dinge passieren mussten, im wahren Leben niemals funktionieren würde.
 
-Vater hatte _weiterhin_ erklärt, dass, da nur ein Narr einen Plot versuchen würde, der _so kompliziert wie möglich ist_, die wirkliche Grenze bei zwei liegt.
+Vater hatte _weiterhin_ erklärt, dass, da nur ein Narr einen Plan versuchen würde, der _so kompliziert wie möglich ist_, die wirkliche Grenze bei zwei liegt.
 
 Draco konnte nicht einmal Worte finden, um die schiere, gigantische Undurchführbarkeit von Harrys Masterplan zu beschreiben.
 
-Aber es war _genau_ die Art von Fehler, die man machen würde, wenn man keine Mentoren hat und denkt, dass man schlau ist und das Plotten durch das Ansehen von Theaterstücken gelernt hat.
+Aber es war _genau_ die Art von Fehler, die man machen würde, wenn man keine Mentoren hat und denkt, dass man schlau ist und das Planen durch das Ansehen von Theaterstücken gelernt hat.
 
 "Also", sagte Harry, "was hältst du von dem Plan?"
 
@@ -182,19 +182,19 @@ Aber es war _genau_ die Art von Fehler, die man machen würde, wenn man keine Me
 
 "Sicher", sagte Harry.
 
-"Warum hast du Granger ein teures Täschchen gekauft?"
+"Warum hast du Granger eine teure Tasche gekauft?"
 
-"Um nicht böse zu sein", sagte Harry sofort. "Obwohl ich davon ausgehe, dass sie sich auch unwohl fühlen wird, wenn sie jede kleine Bitte, die ich in den nächsten Monaten stelle, ablehnt. "
+"Um nicht böse zu sein", sagte Harry sofort. "Obwohl ich davon ausgehe, dass sie sich auch unwohl fühlen wird, wenn sie jede kleine Bitte, die ich in den nächsten Monaten stelle, ablehnt."
 
 Und das war der Moment, in dem Draco erkannte, dass Harry tatsächlich versuchte, sein Freund zu sein.
 
-Harrys Vorgehen gegen Granger _war_ klug gewesen, vielleicht sogar brillant. Bringe deinen Feind dazu, dich nicht zu verdächtigen, _und_ bringe sie auf freundliche Art und Weise in deine Schuld, so dass du sie in Position manövrieren kannst, _nur indem du sie fragst_ Draco hätte damit nicht durchkommen können, sein Ziel wäre zu verdächtig gewesen, aber der Junge-der-lebte _konnte. Der erste Schritt von Harrys Plan war also, seinem Feind ein teures Geschenk zu machen, daran hätte Draco nicht gedacht, aber es könnte _funktionieren... _
+Harrys Vorgehen gegen Granger _war_ klug gewesen, vielleicht sogar brillant. Bringe deinen Feind dazu, dich nicht zu verdächtigen, _und_ bringe sie auf freundliche Art und Weise in deine Schuld, so dass du sie in eine Position manövrieren kannst, _nur indem du sie fragst_. Draco hätte damit nicht durchkommen können, für Ihn wäre es zu verdächtig gewesen, aber der Junge-der-lebt _konnte_. Der erste Schritt von Harrys Plan war also, seinem Feind ein teures Geschenk zu machen, daran hätte Draco nicht gedacht, aber es _könnte_ funktionieren...
 
 Wenn du Harrys Feind wärst, wären seine Intrigen anfangs vielleicht schwer zu durchschauen, sie könnten sogar dumm sein, aber seine Argumentation würde _Sinn_ ergeben, sobald du sie verstehst, du würdest begreifen, dass er versucht, dir zu schaden.
 
 Die Art und Weise, wie Harry sich im Moment gegenüber Draco verhielt, machte _keinen_ Sinn.
 
-Denn wenn du Harrys _Freund_ warst, dann hat er versucht, mit dir befreundet zu sein, auf die fremdartige, unverständliche Art und Weise, zu der er von Muggeln erzogen worden war, auch wenn das bedeutete, dein ganzes Leben zu zerstören.
+Denn wenn du Harrys _Freund_ warst, dann würde er versuchen, Dein Freund zu sein, auf die fremdartige, unverständliche Art und Weise, zu der er von Muggeln erzogen worden war, auch wenn das bedeutete, dein ganzes Leben zu zerstören.
 
 Die Stille dehnte sich aus.
 
@@ -202,7 +202,7 @@ Die Stille dehnte sich aus.
 
 Eine Gabelung mit zwei Wegen, aber mit nur einem Weg, auf den man später leicht zurückgehen konnte, falls Draco seine Meinung änderte...
 
-"Ich glaube, ich verstehe, was du vorhattest", log Draco, "also ja. "
+"Ich glaube, ich verstehe, was du vorhattest", log Draco, "also ja."
 
 Harrys Augen leuchteten auf. "Ich bin froh, das zu hören, Draco", sagte er leise.
 
@@ -214,7 +214,7 @@ Wahrscheinlich.
 
 Vielleicht.
 
-Nun, er könnte später immer noch dazu übergehen, Feinde zu sein...
+Nun, er könnte später immer noch dazu übergehen, sein Feind zu sein...
 
 Er war dem Untergang geweiht.
 
@@ -224,11 +224,11 @@ Er war dem Untergang geweiht.
 
 "Es sollte besser nicht so laufen wie beim letzten Mal -"
 
-"Keine Sorge, das wird es nicht", sagte Harry. "Noch ein paar Samstage wie _das_ und du wärst vor _mir. _"
+"Keine Sorge, das wird es nicht", sagte Harry. "Noch ein paar Samstage wie _den_ und du wärst besser als _ich_."
 
 Harry lachte. Draco tat es nicht.
 
-"Oh, und bevor du gehst", sagte Harry und grinste verlegen. "Ich weiß, es ist ein schlechter Zeitpunkt, aber ich wollte dich eigentlich um einen Rat bitten. "
+"Oh, und bevor du gehst", sagte Harry und grinste verlegen. "Ich weiß, es ist ein schlechter Zeitpunkt, aber ich wollte dich eigentlich um einen Rat bitten."
 
 "Okay", sagte Draco, immer noch ein wenig abgelenkt von der letzten Aussage.
 
@@ -236,31 +236,31 @@ Harrys Augen wurden aufmerksam. "Der Kauf dieses Beutels für Granger hat das me
 
 Was?
 
-"- und McGonagall hat den Tresorschlüssel, oder Dumbledore hat ihn jetzt, vielleicht. Und ich war gerade dabei, einen Plot zu starten, der etwas Geld kosten könnte, also habe ich mich gefragt, ob du weißt, wie ich Zugang bekommen kann -"
+"- und McGonagall hat den Tresorschlüssel, oder Dumbledore hat ihn jetzt, vielleicht. Und ich war gerade dabei, einen Plan zu starten, der etwas Geld kosten könnte, also habe ich mich gefragt, ob du weißt, wie ich Zugang bekommen kann -"
 
 "Ich leihe dir das Geld", sagte Dracos Mund aus reinem Existenzreflex.
 
-Harry sah verblüfft aus, aber auf eine erfreute Art. "Draco, du musst nicht -"
+Harry sah verblüfft aus, aber auf eine erfreute Art. "Draco, das musst Du nicht -"
 
 "Wie viel?"
 
-Harry nannte den Betrag und Draco konnte nicht ganz verhindern, dass sich der Schock in seinem Gesicht zeigte. Das war fast alles Taschengeld, das Vater Draco für das ganze Jahr gegeben hatte, Draco würde nur noch ein paar Galleonen übrig haben -.
+Harry nannte den Betrag und Draco konnte nicht ganz verhindern, dass sich der Schock in seinem Gesicht zeigte. Das war fast alles Taschengeld, das Vater Draco ihm für das ganze Jahr gegeben hatte, Draco würde nur noch ein paar Galleonen übrig haben -
 
-Dann gab sich Draco mental einen Tritt. Alles, was er tun musste, war, Vater zu schreiben und zu erklären, dass das Geld weg war, weil er es geschafft hatte, es an Harry Potter zu _verleihen_, und Vater würde ihm einen speziellen Glückwunschbrief mit goldener Tinte, einen riesigen Schokoladenfrosch, der zwei Wochen zum Essen brauchen würde, und zehnmal so viele Galleonen schicken, nur für den Fall, dass Harry Potter ein weiteres Darlehen benötigte.
+Dann gab sich Draco mental einen Tritt. Alles, was er tun musste, war, Vater zu schreiben und zu erklären, dass das Geld weg war, weil er es geschafft hatte, es an Harry Potter zu _verleihen_, und Vater würde ihm einen speziellen Glückwunschbrief mit goldener Tinte, einen riesigen Schokoladenfrosch, für den er er zwei Wochen zum Essen brauchen würde, und zehnmal so viele Galleonen schicken, nur für den Fall, dass Harry Potter ein weiteres Darlehen benötigte.
 
 "Das ist viel zu viel, nicht wahr?", sagte Harry. "Es tut mir leid, ich hätte nicht fragen sollen -"
 
-"Entschuldigung, ich _bin_ ein Malfoy, weißt du", sagte Draco. "Ich war nur überrascht, dass du so viel _wolltest_ "
+"Entschuldigung, ich _bin_ ein Malfoy, weißt du", sagte Draco. "Ich war nur überrascht, dass du so viel _wolltest_."
 
-"Mach dir keine Sorgen", sagte Harry Potter fröhlich. "Es ist nichts, was die Interessen deiner Familie bedroht, ich bin nur böse. "
+"Mach dir keine Sorgen", sagte Harry Potter fröhlich. "Es ist nichts, was die Interessen deiner Familie bedroht, ich bin nur böse."
 
 Draco nickte. "Dann ist das kein Problem. Willst du es jetzt sofort holen?"
 
 "Sicher", sagte Harry.
 
-Als sie die Nische verließen und sich auf den Weg zu den Kerkern machten, konnte Draco nicht anders als zu fragen: "Kannst du mir sagen, für welchen Plot das ist?"
+Als sie die Nische verließen und sich auf den Weg zu den Kerkern machten, konnte Draco nicht anders als zu fragen: "Kannst du mir sagen, für welchen Plan das ist?"
 
-"Rita Skeeter. "
+"Rita Skeeter."
 
 Draco dachte ein paar sehr böse Worte zu sich selbst, aber es war viel zu spät, um nein zu sagen.
 
@@ -268,17 +268,17 @@ Draco dachte ein paar sehr böse Worte zu sich selbst, aber es war viel zu spät
 
 Als sie die Kerker erreicht hatten, begann Draco seine Gedanken wieder zu ordnen.
 
-Er _hatte_ Probleme, Harry Potter zu hassen. Harry _hatte_ versucht, freundlich zu sein, er war einfach wahnsinnig.
+Er _hatte_ Probleme, Harry Potter zu hassen. Harry _hatte_ versucht, freundlich zu sein, er war nur einfach wahnsinnig.
 
 Und das würde Dracos Rache nicht aufhalten oder gar verlangsamen.
 
-"Also", sagte Draco, nachdem er sich umgesehen hatte, um sicherzustellen, dass niemand in der Nähe war. Ihre Stimmen würden natürlich beide verschwommen sein, aber es schadet nie, extra sicher zu sein. "Ich habe nachgedacht. Wenn wir neue Rekruten in die Verschwörung bringen, müssen sie _denken_, dass wir gleichberechtigt sind. Sonst bräuchte es nur _einen_ von ihnen, um das Grundstück zu Vater zu sprengen. Das hast du doch schon geklärt, oder?"
+"Also", sagte Draco, nachdem er sich umgesehen hatte, um sicherzustellen, dass niemand in der Nähe war. Ihre Stimmen würden natürlich beide verschwommen sein, aber es schadet nie, extra sicher zu sein. "Ich habe nachgedacht. Wenn wir neue Rekruten in die Verschwörung bringen, müssen sie _denken_, dass wir gleichberechtigt sind. Sonst bräuchte es nur _einen_ von ihnen, um Vater den Plan zu verraten. Daran hast Du schon gedacht, oder?"
 
 "Natürlich", sagte Harry.
 
 "_Werden_ wir gleichberechtigt sein?", fragte Draco.
 
-"Ich fürchte nicht", sagte Harry. Es war klar, dass er versuchte, sanft zu klingen, und auch klar, dass er versuchte, eine gute Portion Herablassung zu unterdrücken und es nicht ganz schaffte. "Es tut mir leid, Draco, aber du weißt gerade nicht einmal, was das Wort _Bayesian_ in _Bayesianische Verschwörung_ bedeutet. Du wirst monatelang lernen müssen, bevor wir jemand anderen aufnehmen, nur damit du eine _gute Fassade_ aufbauen kannst. "
+"Ich fürchte nicht", sagte Harry. Es war klar, dass er versuchte, sanft zu klingen, und auch klar, dass er versuchte, eine gute Portion Herablassung zu unterdrücken und es nicht ganz schaffte. "Es tut mir leid, Draco, aber du weißt gerade nicht einmal, was das Wort _Bayesianisch_ in _Bayesianische Verschwörung_ bedeutet. Du wirst monatelang lernen müssen, bevor wir jemand anderen aufnehmen, nur damit du _den Anschein_ wahren kannst."
 
 "Weil ich nicht genug von der Wissenschaft verstehe", sagte Draco und achtete darauf, dass seine Stimme neutral blieb.
 

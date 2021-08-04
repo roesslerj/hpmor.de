@@ -206,11 +206,11 @@ _Donner_. _Au_. Das hatte er etwas härter gemacht, als er es geplant hatte.
 
 "Gut. Aber wenn meine Bücher einen _Karpfen_ wert wären, das ist eine Art Fisch und nichts Schlechtes, dann hätten sie mir den folgenden wichtigen Rat gegeben: Wenn es ein verwirrendes Problem gibt und du gerade erst anfängst und eine falsifizierbare Hypothese hast, geh und teste sie. Finde eine einfache, leichte Möglichkeit, einen Basis-Check zu machen und mach es gleich. Mach dir keine Gedanken darüber, wie du einen ausgeklügelten Ablauf von Experimenten entwerfen kannst, der einen Förderantrag bei einer Förderorganisation beeindruckend aussehen lässt. Überprüfe einfach so schnell wie möglich, ob deine Ideen falsch sind, bevor du anfängst, riesige Mengen an Aufwand in sie zu investieren. Wie klingt das für eine Moral?"
 
-"Hm... Okay", sagte Hermine. "Aber ich hatte auch auf etwas gehofft wie 'Hermines Bücher sind nicht wertlos. Sie werden von weisen alten Zauberern geschrieben, die viel mehr über Magie wissen als ich. Ich sollte darauf achten, was in Hermines Büchern steht. ' Können wir auch diese Moral haben?"
+"Hm... Okay", sagte Hermine. "Aber ich hatte auch auf etwas gehofft wie 'Hermines Bücher sind nicht wertlos. Sie werden von weisen alten Zauberern geschrieben, die viel mehr über Magie wissen als ich. Ich sollte darauf achten, was in Hermines Büchern steht.' Können wir auch diese Moral haben?"
 
 Harrys Kiefer schien zu fest zusammengebissen zu sein, um irgendwelche Worte herauszulassen, also nickte er nur.
 
-"Toll!" sagte Hermine. "Ich mochte dieses Experiment. Wir haben eine Menge daraus gelernt und ich habe nur etwa eine Stunde gebraucht. "
+"Toll!" sagte Hermine. "Ich mochte dieses Experiment. Wir haben eine Menge daraus gelernt und ich habe nur etwa eine Stunde gebraucht."
 
 "AAAAAAAAAAAAHHHHHHHH!"
 
@@ -256,7 +256,7 @@ Draco ballte seine Fäuste nicht vor Frustration. "Sie ist nur ein Schlammblut",
 
 "Ravenclaw würde es wissen -"
 
-"Lass Pansy Parkinson sie die Treppe runterstoßen! Du müsstest sie nicht einmal manipulieren, biete ihr einen Sichel an und sie würde es tun!"
+"Lass Pansy Parkinson sie die Treppe runterstoßen! Du müsstest sie nicht einmal manipulieren, biete ihr einen Sickel an und sie würde es tun!"
 
 "_Ich_ würde es wissen! Hermine hat mich in einem Buchlesewettbewerb geschlagen, sie bekommt bessere Noten als ich, ich muss sie mit meinem _Gehirn_ besiegen oder es zählt nicht!"
 

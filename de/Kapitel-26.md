@@ -168,9 +168,9 @@ Das Wichtigste zuerst. Harry trat zum Verkaufstresen hinüber.
 
 "Verzeihung", sagte Harry, "ein Exemplar des _Tagespropheten_, bitte. "
 
-"Fünf Sickles", sagte der Ladenbesitzer. "Tut mir leid, Junge, ich habe nur noch drei. "
+"Fünf Sickel", sagte der Ladenbesitzer. "Tut mir leid, Junge, ich habe nur noch drei. "
 
-Fünf Sickles fielen auf den Tresen. Harry hatte das Gefühl, dass er ihn um ein paar Punkte hätte herunterhandeln können, aber zu diesem Zeitpunkt war es ihm egal.
+Fünf Sickel fielen auf den Tresen. Harry hatte das Gefühl, dass er ihn um ein paar Punkte hätte herunterhandeln können, aber zu diesem Zeitpunkt war es ihm egal.
 
 Die Augen des Ladenbesitzers weiteten sich und er schien Harry zum ersten Mal wirklich zu bemerken. "_Du!_"
 
@@ -519,3 +519,5 @@ Der Schriftzug war offensichtlich handgeschrieben und sehr schwer zu lesen, aber
 Harry wurde fast ohnmächtig.
 
 An die Wand geschmiegt, wo Professor Quirrell gestolpert war, glitzerten die zerquetschten Überreste eines wunderschönen blauen Käfers.
+
+→ [Kapitel 27](Kapitel-27.md)
