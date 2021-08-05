@@ -6,7 +6,7 @@ Anmerkung: Da die Wissenschaft in dieser Geschichte in der Regel alle korrekt is
 
 * * *
 
-_Act 2:_
+_2. Akt_
 
 (Die Sonne schien von der verwunschenen Himmelsdecke in die Große Halle und beleuchtete die Schüler, als ob sie unter dem nackten Himmel säßen, von ihren Tellern und Schüsseln leuchtend, während sie, erfrischt von einer Nacht Schlaf, das Frühstück inhalierten, um sich auf die Pläne vorzubereiten, die sie für ihren Sonntag gemacht hatten. ).
 
@@ -386,9 +386,9 @@ Nachdem er gegangen war, gab es eine lange Pause.
 
 ".. wie zum Beispiel, als er behauptete, dass man den Tötungsfluch nur mit Liebe wirken kann, was ihn ziemlich nutzlos machte. "
 
-"Das gefällt mir. "
+"Das gefällt mir."
 
-"Danke. "
+"Danke."
 
 "Ich wette, der Verteidigungsprofessor mag es auch. "
 

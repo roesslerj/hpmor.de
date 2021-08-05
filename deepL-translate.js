@@ -104,6 +104,8 @@ async function run() {
       .replaceAll('. "\n', '."\n')
       .replaceAll('verklären', 'verwandeln')
       .replaceAll('Aftermath', 'Nachspiel')
+      .replaceAll('Muggle', 'Muggel')
+      .replaceAll('Snitch', 'Schnatz')
       .replaceAll('\{\\an8\}', '_')
       .concat(`\n\n→ [Kapitel ${nextChapter}](Kapitel-${nextChapter}.md)\n`);
     console.log("\n\n\n");

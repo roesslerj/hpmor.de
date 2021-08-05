@@ -1,4 +1,4 @@
-# Kapitel 27: Empathie.
+# Kapitel 27: Empathie
 
 J. K. Rowling ist sich zu 87% sicher, dass du in Flammen aufgehen wirst.
 
@@ -8,7 +8,7 @@ Roger Bacon lebte im 13. Jahrhundert und wird als einer der frühesten Verfechte
 
 Es kam nicht jeden Tag vor, dass man Harry Potter betteln sah.
 
-"_Pleeaaase,_"jammerte Harry Potter.
+"_Biiiitte_", jammerte Harry Potter.
 
 Fred und George schüttelten wieder lächelnd den Kopf.
 
@@ -58,7 +58,7 @@ Es war gut zu wissen, dass nicht jeder, der nach Gryffindor sortiert wurde, zu P
 
 Harry befand sich in einem weißen Raum, fensterlos, gesichtslos, vor einem Schreibtisch sitzend, einem ausdruckslosen Mann in förmlichen Roben aus solidem Schwarz gegenüber.
 
-Der Raum war gegen Entdeckung abgeschirmt und der Mann hatte genau siebenundzwanzig Zauber durchgeführt, bevor er so viel sagte wie "Hallo, Mr. Potter. "
+Der Raum war gegen Entdeckung abgeschirmt und der Mann hatte genau siebenundzwanzig Zauber durchgeführt, bevor er so viel sagte wie "Hallo, Mr. Potter."
 
 Es war seltsam passend, dass der Mann in Schwarz gerade versuchte, Harrys Gedanken zu lesen.
 
@@ -68,17 +68,17 @@ Ein menschlicher Geist, so hatte Harrys Okklumentik-Buch gesagt, war einem Legil
 
 ... was tendenziell nicht viel ist. Der menschliche Verstand, so schien es, war für Menschen auf jeder Ebene schwer zu verstehen, außer auf der oberflächlichsten. Harry hatte sich gefragt, ob das Wissen über viele kognitive Wissenschaften ihn zu einem unglaublich mächtigen Legilimens machen könnte, aber wiederholte Erfahrungen hatten ihm _endlich_ die Lektion eingetrichtert, dass er sich in seinen Vorahnungen über diese Art von Dingen ein wenig weniger aufregen sollte. Es war nicht so, dass irgendein kognitiver Wissenschaftler die Menschen gut genug verstanden hätte, um einen zu machen.
 
-Um den Konter, Occlumency, zu erlernen, war der erste Schritt, sich vorzustellen, eine andere Person zu sein, es so gründlich wie möglich vorzutäuschen und sich ganz in diese alternative Persona zu versenken. Das musst du nicht immer machen, aber am Anfang hast du so gelernt, wo deine Flächen sind. Die Legilimens würden versuchen, dich zu lesen, und du würdest es spüren, wenn du genau genug aufpasst, du würdest spüren, wie sie versuchen, einzudringen. Und deine Aufgabe war es, dafür zu sorgen, dass sie immer deine imaginäre Persona berührten und nicht die echte.
+Um zu erlernen wie man Occlumency verhinderte, war der erste Schritt, sich vorzustellen, eine andere Person zu sein. Es so gründlich wie möglich vorzutäuschen und sich ganz in diese alternative Person zu versenken. Das musste du nicht immer machen, aber am Anfang lernst du so, wo deine Flächen sind. Die Legilimens würden versuchen, dich zu lesen, und du würdest es spüren, wenn du genau genug aufpasst, du würdest spüren, wie sie versuchen, einzudringen. Und deine Aufgabe war es, dafür zu sorgen, dass sie immer deine imaginäre Person berührten und nicht die echte.
 
 Wenn du gut genug darin warst, konntest du dir vorstellen, eine sehr _einfache_ Art von Person zu sein, so zu tun, als ob du ein Stein wärst, und es dir zur Gewohnheit machen, die Vortäuschung an Ort und Stelle zu lassen, wo alle deine Oberflächen waren. Das war eine Standard-Occlumency-Barriere. So zu tun, als ob man ein Stein wäre, war schwer zu lernen, aber danach einfach zu tun. Die Oberfläche eines Geistes war viel flacher als sein Inneres, so dass man es mit genug Übung als Hintergrundgewohnheit beibehalten konnte.
 
 Oder wenn du ein _perfekter Occlumens_ wärst, könntest du allen Sonden _vorauseilen_, indem du Fragen so schnell beantwortest, wie sie gestellt werden, so dass die Legilimens durch deine Oberfläche eindringen und einen Geist sehen würden, der nicht von dem zu unterscheiden ist, der du vorgibst zu sein.
 
-Selbst die besten Legilimens konnten auf diese Weise getäuscht werden. Wenn ein perfekter Okklument behauptete, dass er seine Okklumentikbarrieren fallen ließ, gab es keine Möglichkeit zu wissen, ob er log. Schlimmer noch, du könntest nicht wissen, dass du es mit einem perfekten Occlumens zu tun hast. Sie waren selten, aber die Tatsache, dass sie existierten, bedeutete, dass man Legilimenz nicht _jedem_ vertrauen konnte. _
+Selbst die besten Legilimens konnten auf diese Weise getäuscht werden. Wenn ein perfekter Okklument behauptete, dass er seine Okklumentikbarrieren fallen ließ, gab es keine Möglichkeit zu wissen, ob er log. Schlimmer noch, du könntest nicht wissen, dass du es mit einem perfekten Occlumens zu tun hast. Sie waren selten, aber die Tatsache, dass sie existierten, bedeutete, dass man mit Legilimenz nicht _jedem_ vertrauen konnte.
 
 Es war ein trauriger Kommentar dazu, wie wenig die Menschen einander verstanden, wie wenig jeder Zauberer die Tiefen verstand, die unter der Oberfläche des Geistes lagen, dass man die besten menschlichen Telepathen täuschen konnte, indem man vorgab, jemand anderes zu sein.
 
-Aber dann haben sich die Menschen überhaupt nur verstanden, indem sie sich verstellt haben. Du hast keine Vorhersagen über Menschen gemacht, indem du die hundert Billionen Synapsen in ihrem Gehirn als separate Objekte modelliert hast. Wenn du den besten sozialen Manipulator der Welt bittest, dir eine künstliche Intelligenz von Grund auf zu bauen, wird er dich nur dumm anschauen. Du hast Menschen vorhergesagt, indem du _deinem_ Gehirn gesagt hast, dass es sich wie ihres verhalten soll. Du _versetzt dich in ihre Lage_ Wenn du wissen wolltest, was eine wütende Person tun würde, hast du den Wut-Schaltkreis deines eigenen Gehirns aktiviert, und was auch immer dieser Schaltkreis ausgab, das war deine Vorhersage. Wie sah die neuronale Verschaltung für Wut eigentlich im Inneren aus? Wer wusste das schon? Der beste soziale Manipulator auf der Erde wusste vielleicht nicht, was Neuronen _sind_, und der beste Legilimens vielleicht auch nicht.
+Aber dann haben sich die Menschen überhaupt nur verstanden, indem sie sich verstellt haben. Du hast keine Vorhersagen über Menschen gemacht, indem du die hundert Billionen Synapsen in ihrem Gehirn als separate Objekte modelliert hast. Wenn du den besten sozialen Manipulator der Welt bittest, dir eine künstliche Intelligenz von Grund auf zu bauen, wird er dich nur dumm anschauen. Du hast Menschen vorhergesagt, indem du _deinem_ Gehirn gesagt hast, dass es sich wie ihres verhalten soll. Du _versetzt dich in ihre Lage_. Wenn du wissen wolltest, was eine wütende Person tun würde, hast du den Wut-Schaltkreis deines eigenen Gehirns aktiviert, und was auch immer dieser Schaltkreis ausgab, das war deine Vorhersage. Wie sah die neuronale Verschaltung für Wut eigentlich im Inneren aus? Wer wusste das schon? Der beste soziale Manipulator auf der Erde wusste vielleicht nicht, was Neuronen _sind_, und der beste Legilimens vielleicht auch nicht.
 
 Alles, was ein Legilimens _verstehen_ konnte, konnte ein Occlumens _vorgeben_ zu sein. Es war in beiden Fällen derselbe Trick - wahrscheinlich wurde er von denselben neuronalen Schaltkreisen umgesetzt, ein einziger Satz von Kontrollschaltkreisen für die Rekonfiguration deines eigenen Gehirns, um als Modell von jemand anderem zu agieren.
 
@@ -96,7 +96,7 @@ Seine dunkle Seite, so hatte sich herausgestellt, war sehr, _sehr_ gut darin, so
 
 Harry dachte an seinen Standardauslöser, als er das erste Mal ganz zu seiner dunklen Seite übergegangen war...
 
-Severus hielt inne und sah ziemlich zufrieden mit sich selbst aus. "Und das wird sein... 5 Punkte? Nein, lass uns aus Ravenclaw zehn Punkte für Backchat machen. "_
+_Severus hielt inne und sah ziemlich zufrieden mit sich selbst aus. "Und das wird sein... 5 Punkte? Nein, lass uns aus Ravenclaw zehn Punkte für Wiederspruch machen."_
 
 Harrys Lächeln wurde kühler und er betrachtete den schwarzgewandeten Mann, der glaubte, Harrys Gedanken lesen zu können.
 
@@ -104,19 +104,19 @@ Und dann verwandelte sich Harry in jemand ganz anderen, jemand, der dem Anlass a
 
 ... in einem weißen Raum, fensterlos, gesichtslos, vor einem Schreibtisch sitzend, einem ausdruckslosen Mann in förmlicher Robe aus solidem Schwarz gegenüber.
 
-Kimball Kinnison betrachtete den schwarzgewandeten Mann, der glaubte, die Gedanken eines Lensman der zweiten Stufe der Galaktischen Patrouille zu lesen.
+Kimball Kinnison betrachtete den schwarzgewandeten Mann, der glaubte, die Gedanken eines Lehnsman der zweiten Stufe der Galaktischen Patrouille zu lesen.
 
-Zu sagen, dass Kimball Kinnison vom Ergebnis überzeugt war, wäre eine Untertreibung. Er war von Mentor von Arisia ausgebildet worden, dem mächtigsten Geist, der in diesem oder jedem anderen Universum bekannt ist, und der einfache Zauberer, der ihm gegenüber saß, würde genau das sehen, was der Graue Lensman ihn sehen lassen wollte...
+Zu sagen, dass Kimball Kinnison vom Ergebnis überzeugt war, wäre eine Untertreibung. Er war von Mentor von Arisia ausgebildet worden, dem mächtigsten Geist, der in diesem oder jedem anderen Universum bekannt ist, und der einfache Zauberer, der ihm gegenüber saß, würde genau das sehen, was der Graue Lehnsman ihn sehen lassen wollte...
 
 ... den Geist des Jungen, als den er gerade verkleidet war, ein unschuldiges Kind namens Harry Potter.
 
 "Ich bin bereit", sagte Kimball Kinnison in einem nervösen Ton, der für einen elfjährigen Jungen genau richtig war.
 
-"_Legilimens,_"sagte der schwarzgewandete Zauberer.
+"_Legilimens_", sagte der schwarzgewandete Zauberer.
 
 Es gab eine Pause.
 
-Der schwarzgewandete Zauberer blinzelte, als hätte er etwas so Schockierendes gesehen, dass es sogar _seine_ Augenlider in Bewegung setzte. Seine Stimme war nicht ganz tonlos, als er sagte: "Der Junge-der-lebte hat eine _mysteriöse dunkle Seite?_ "
+Der schwarzgewandete Zauberer blinzelte, als hätte er etwas so Schockierendes gesehen, dass es sogar _seine_ Augenlider in Bewegung setzte. Seine Stimme war nicht ganz tonlos, als er sagte: "Der Junge-der-lebt hat eine _mysteriöse dunkle Seite?_"
 
 Die Hitze kroch langsam in Harrys Wangen hoch.
 
@@ -124,15 +124,15 @@ Die Hitze kroch langsam in Harrys Wangen hoch.
 
 Harry schüttelte den Kopf und errötete nun heftig.
 
-"Dann pass das nächste Mal besser auf. Das Ziel ist es nicht, am ersten Unterrichtstag ein perfektes Bild zu erstellen. Das Ziel ist es, zu lernen, wo deine Oberflächen sind. Bereite dich vor. "
+"Dann pass das nächste Mal besser auf. Das Ziel ist es nicht, am ersten Unterrichtstag ein perfektes Bild zu erstellen. Das Ziel ist es, zu lernen, wo deine Oberflächen sind. Bereite dich vor."
 
 Harry versuchte wieder so zu tun, als wäre er Kimball Kinnison, versuchte aufmerksamer zu sein, aber seine Gedanken waren ein wenig zerstreut und er war sich plötzlich all der Dinge bewusst, an die er nicht denken sollte...
 
 Oh, das war echt zum Kotzen.
 
-Harry biss die Zähne zusammen. Zumindest der Ausbilder würde danach Obliviate sein.
+Harry biss die Zähne zusammen. Zumindest der Ausbilder würde danach sein Gedächtnis gelöscht bekommen.
 
-"_Legilimens. _"
+"_Legilimens_."
 
 Es gab eine Pause -.
 
@@ -146,23 +146,23 @@ Es war ihr vierter Tag, an einem Sonntagabend. Wenn du so viel bezahlst, bekomms
 
 "Hallo, Mr. Bester", sagte Harry müde. "Lass uns den anfänglichen Schock erst einmal aus dem Weg räumen, ja?"
 
-"Du hast es geschafft, mich zu überraschen?", sagte der Mann und klang nun leicht interessiert. "Na dann. "Er richtete seinen Zauberstab und starrte in Harrys Augen. "_Legilimens. _"
+"Du hast es geschafft, mich zu überraschen?", sagte der Mann und klang nun leicht interessiert. "Na dann." Er richtete seinen Zauberstab aus und starrte in Harrys Augen. "_Legilimens_."
 
-Es gab eine Pause und dann zuckte der schwarzgewandete Zauberer zusammen, als ob ihn jemand mit einem Viehtreiber berührt hätte.
+Es gab eine Pause und dann zuckte der schwarzgewandete Zauberer zusammen, als ob ihn jemand mit einem Viehpeitsche geschlagen hätte.
 
-"Der Dunkle Lord ist _lebendig?_", würgte er. Seine Augen waren plötzlich wild. "_Dumbledore macht sich unsichtbar und schleicht sich in die Schlafsäle der Mädchen?_ "
+"Der Dunkle Lord _lebt_?", würgte er. Seine Augen waren plötzlich wild. "_Dumbledore macht sich unsichtbar und schleicht sich in die Schlafsäle der Mädchen?_"
 
 Harry seufzte und schaute auf seine Uhr. In etwa drei weiteren Sekunden...
 
-"Also", sagte der Mann. Er hatte sich nicht ganz von seiner Tonlosigkeit erholt. "Du glaubst wirklich, dass du die geheimen Regeln der Magie entdecken und allmächtig werden wirst. "
+"Also", sagte der Mann. Er hatte sich nicht ganz von seiner Tonlosigkeit erholt. "Du glaubst wirklich, dass du die geheimen Regeln der Magie entdecken und allmächtig werden wirst."
 
-"Das stimmt", sagte Harry gleichmütig und schaute immer noch auf seine Uhr. "Ich bin _das_ überheblich. "
+"Das stimmt", sagte Harry gleichmütig und schaute immer noch auf seine Uhr. "Ich bin _überheblich_."
 
-"Ich frage mich. Es scheint, dass der Sprechende Hut denkt, dass du der nächste Dunkle Lord sein wirst. "
+"Ich frage mich. Es scheint, als ob der Sprechende Hut denkt, dass du der nächste Dunkle Lord sein wirst."
 
 "Und _du_ weißt, dass ich mich ziemlich anstrenge _nicht_ zu sein, und du hast gesehen, dass wir schon eine lange Diskussion darüber hatten, ob du bereit bist, mir Okklumentik beizubringen, und am Ende hast du dich entschieden, es zu tun, also können wir das einfach hinter uns bringen?"
 
-"In Ordnung", sagte der Mann genau sechs Sekunden später, genau wie beim letzten Mal. "Mach dich bereit. "Er hielt inne und sagte dann mit etwas wehmütiger Stimme: "Ich wünschte, ich könnte mich an den Trick mit dem Gold und Silber erinnern. "
+"In Ordnung", sagte der Mann genau sechs Sekunden später, genau wie beim letzten Mal. "Mach dich bereit.  Er hielt inne und sagte dann mit etwas wehmütiger Stimme: "Ich wünschte, ich könnte mich an den Trick mit dem Gold und Silber erinnern."
 
 Harry fand es sehr beunruhigend, wie reproduzierbar menschliche Gedanken waren, wenn man Menschen auf die gleichen Ausgangsbedingungen zurücksetzte und sie den gleichen Reizen aussetzte. Es war das Zerstreuen von Illusionen, die ein guter Reduktionist gar nicht erst haben sollte.
 
@@ -178,9 +178,9 @@ Es schien, dass gestern Abend nach dem Abendessen ein Mädchen dreißig Minuten 
 
 Harry hatte dieses aufregende Sportereignis wegen seiner Okklumentik-Stunde verpasst, und außerdem hatte er ein Leben.
 
-Er hatte dann alle Gespräche im Ravenclaw-Schlafsaal gemieden, waren doch Ruhezauber und magische Rüssel wunderbar. Er hatte am Gryffindor-Tisch gefrühstückt.
+Er hatte dann alle Gespräche im Ravenclaw-Schlafsaal gemieden, waren doch Ruhezauber und magische Koffer wunderbar. Er hatte am Gryffindor-Tisch gefrühstückt.
 
-Aber Harry konnte sich nicht vor Kräuterkunde drücken und die Ravenclaws hatten vor dem Unterricht darüber geredet und nach dem Unterricht und _während des Unterrichts_, bis Harry von dem Baby Furcot aufgeschaut hatte, dessen Windel er gerade wechselte, und laut verkündet hatte, dass einige von ihnen versuchten, etwas über _Pflanzen_ zu lernen und Snitches auf nichts wuchsen, also könnten sie alle _bitte_ die Klappe über Quidditch halten. Alle anderen Anwesenden hatten ihm geschockte Blicke zugeworfen, außer Hermine, die aussah, als wolle sie applaudieren, und Professor Sprout, der ihm einen Punkt für Ravenclaw zuerkannt hatte.
+Aber Harry konnte sich nicht vor Kräuterkunde drücken und die Ravenclaws hatten vor dem Unterricht darüber geredet und nach dem Unterricht und _während des Unterrichts_, bis Harry von dem Baby Furcot aufgeschaut hatte, dessen Windel er gerade wechselte, und laut verkündet hatte, dass einige von ihnen versuchten, etwas über _Pflanzen_ zu lernen und Schnatze auf nichts wuchsen, also könnten sie alle _bitte_ die Klappe über Quidditch halten. Alle anderen Anwesenden hatten ihm geschockte Blicke zugeworfen, außer Hermine, die aussah, als wolle sie applaudieren, und Professor Sprout, die ihm einen Punkt für Ravenclaw zuerkannt hatte.
 
 _Ein_ Punkt für Ravenclaw.
 
@@ -188,43 +188,43 @@ _Ein_ Punkt.
 
 Die sieben Idioten auf ihren Idiotenbesen, die ihr Idiotenspiel spielten, hatten _einhundertundneunzig Punkte_ für Ravenclaw verdient.
 
-Es schien, dass Quidditch-Punkte _direkt zur Hauspunktzahl hinzugezählt wurden. _
+Es schien, dass Quidditch-Punkte _direkt zur Hauspunktzahl hinzugezählt wurden_.
 
 Mit anderen Worten, einen goldenen Moskito zu fangen war 150 Hauspunkte wert.
 
 Harry konnte sich nicht einmal _vorstellen_, was er tun müsste, um hundertfünfzig Hauspunkte zu verdienen.
 
-Abgesehen davon, du weißt schon, _hundertfünfzig Hufflepuffs zu retten,_ oder auf _fünfzehn Ideen zu kommen, die so gut sind wie Schutzhüllen an Zeitmaschinen anzubringen,_ oder _eintausendfünfhundert kreative Wege zu erfinden, um Leute zu töten,_ oder Hermine Granger für _das ganze Jahr_ zu sein.
+Abgesehen davon, du weißt schon, _hundertfünfzig Hufflepuffs zu retten_, oder auf _fünfzehn Ideen zu kommen, die so gut sind wie Schutzhüllen an Zeitmaschinen anzubringen_, oder _eintausendfünfhundert kreative Wege zu erfinden, um Leute zu töten_, oder Hermine Granger für _das ganze Jahr_ zu sein.
 
 "Wir sollten sie töten", sagte Harry zu Hermine, die mit ebenso beleidigter Miene neben ihm herging.
 
-"Wer?"sagte Hermine. "Das Quidditch-Team?"
+"Wen?" sagte Hermine. "Das Quidditch-Team?"
 
-"Ich dachte an alle, die in irgendeiner Weise mit Quidditch zu tun haben, egal wo, aber das Ravenclaw-Team wäre ein Anfang, ja. "
+"Ich dachte an alle, die in irgendeiner Weise mit Quidditch zu tun haben, egal wo, aber das Ravenclaw-Team wäre ein Anfang, ja."
 
-Hermiones Lippen waren missbilligend geschürzt. "Du _weißt_ doch, dass es falsch ist, Menschen zu töten, Harry?"
+Hermiones Lippen waren missbilligend geschürzt. "Du _weißt_ schon, dass es falsch ist, Menschen zu töten, Harry?"
 
 "Ja", sagte Harry.
 
 "Okay, ich wollte nur sichergehen", sagte Hermine. "Lass uns zuerst den Sucher holen. Ich habe einige Krimis von Agatha Christie gelesen, weißt du, wie wir sie in einen Zug bekommen können?"
 
-"Zwei Studenten planen einen Mord", sagte eine trockene Stimme. "Wie schockierend. "
+"Zwei Studenten planen einen Mord", sagte eine trockene Stimme. "Wie schockierend."
 
 Um eine nahe gelegene Ecke schlenderte ein Mann in leicht gefleckten Gewändern, sein fettiges Haar fiel lang und ungepflegt über seine Schultern. Tödliche Gefahr schien von ihm auszugehen und füllte den Flur mit unsachgemäß gemischten Tränken und versehentlichen Stürzen und Menschen, die im Bett an etwas starben, was die Auroren als natürliche Ursache einstufen würden.
 
 Ohne überhaupt darüber nachzudenken, trat Harry vor Hermine.
 
-Ein Einatmen ertönte hinter ihm und einen Moment später ging Hermine an ihm vorbei und trat vor _him. "Lauf, Harry!", sagte sie. "Jungen sollten sich nicht in Gefahr begeben müssen. "
+Ein Einatmen ertönte hinter ihm und einen Moment später ging Hermine an ihm vorbei und trat vor _ihn. "Lauf, Harry!", sagte sie. "Jungen sollten sich nicht in Gefahr begeben müssen."
 
-Severus Snape lächelte vergnügt. "Amüsant. Ich bitte um einen Moment deiner Zeit, Potter, wenn du dich von deinem Flirt mit Miss Granger losreißen kannst. "
+Severus Snape lächelte vergnügt. "Amüsant. Ich bitte um einen Moment deiner Zeit, Potter, wenn du dich von deinem Flirt mit Miss Granger losreißen kannst."
 
 Plötzlich gab es einen sehr besorgten Blick auf Hermine's Gesicht. Sie drehte sich zu Harry um und öffnete den Mund, dann hielt sie inne und sah verzweifelt aus.
 
-"Oh, keine Sorge, Miss Granger", sagte Severus' seidige Stimme. "Ich verspreche, deinen Verehrer ungeschminkt zurückzugeben. "Sein Lächeln verschwand. "Jetzt werden Potter und ich ein privates Gespräch führen, nur für uns allein. Ich hoffe, es ist klar, dass du nicht eingeladen bist, aber nur für den Fall, betrachte das als einen Befehl eines Hogwarts Professors. Ich bin mir sicher, dass ein braves kleines Mädchen wie du nicht ungehorsam sein wird. "
+"Oh, keine Sorge, Miss Granger", sagte Severus' seidige Stimme. "Ich verspreche, deinen Verehrer ungeschminkt zurückzugeben." Sein Lächeln verschwand. "Jetzt werden Potter und ich ein privates Gespräch führen, nur für uns allein. Ich hoffe, es ist klar, dass du nicht eingeladen bist, aber nur für den Fall, betrachte das als einen Befehl eines Hogwarts Professors. Ich bin mir sicher, dass ein braves kleines Mädchen wie du nicht ungehorsam sein wird."
 
 Und Severus drehte sich um und ging zurück um die Ecke. "Kommst du, Potter?", fragte seine Stimme.
 
-"Ähm", sagte Harry zu Hermine. "Kann ich nicht einfach losgehen und ihm folgen und _dich_ überlegen lassen, was ich sagen soll, damit du nicht total beunruhigt und beleidigt bist?"
+"Ähm", sagte Harry zu Hermine. "Kann ich nicht einfach losgehen und ihm folgen und _dich_ überlegen lassen, was ich zu Dir sagen soll, damit du nicht total beunruhigt und beleidigt bist?"
 
 "Nein", sagte Hermine, ihre Stimme zitterte.
 

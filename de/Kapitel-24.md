@@ -282,17 +282,17 @@ Und das würde Dracos Rache nicht aufhalten oder gar verlangsamen.
 
 "Weil ich nicht genug von der Wissenschaft verstehe", sagte Draco und achtete darauf, dass seine Stimme neutral blieb.
 
-Harry schüttelte daraufhin den Kopf. "Das Problem ist nicht, dass du keine Ahnung von bestimmten wissenschaftlichen Dingen wie Desoxyribonukleinsäure hast. _Das_ würde dich nicht davon abhalten, mir ebenbürtig zu sein. Das Problem ist, dass du nicht in den Methoden der Rationalität ausgebildet bist, dem _tieferen_ geheimen Wissen, wie all diese Entdeckungen überhaupt gemacht wurden. Ich werde _versuchen_, sie dir beizubringen, aber sie sind viel schwieriger zu lernen. Denk daran, was wir gestern getan haben, Draco. Ja, du hast einen Teil der Arbeit gemacht. Aber ich war der Einzige, der die Kontrolle hatte. Du hast einige der Fragen beantwortet. Ich habe sie alle gefragt. Du hast geholfen zu schieben. Ich habe die Lenkung selbst gemacht. Und ohne die Methoden der Rationalität, Draco, kannst du die Verschwörung unmöglich dorthin lenken, wo sie hin muss. "
+Harry schüttelte daraufhin den Kopf. "Das Problem ist nicht, dass du keine Ahnung von bestimmten wissenschaftlichen Dingen wie Desoxyribonukleinsäure hast. _Das_ würde dich nicht davon abhalten, mir ebenbürtig zu sein. Das Problem ist, dass du nicht in den Methoden der Rationalität ausgebildet bist, dem _tieferen_ geheimen Wissen, wie all diese Entdeckungen überhaupt gemacht wurden. Ich werde _versuchen_, sie dir beizubringen, aber sie sind viel schwieriger zu lernen. Denk daran, was wir gestern getan haben, Draco. Ja, du hast einen Teil der Arbeit gemacht. Aber ich war der, der die Kontrolle hatte. Du hast einige der Fragen beantwortet. Aber ich habe alle Fragen gestellt. Du hast geholfen zu recherchieren. Ich habe gelenkt. Und ohne die Methoden der Rationalität, Draco, kannst du die Verschwörung unmöglich dorthin lenken, wo sie hin muss."
 
 "Ich verstehe", sagte Draco und seine Stimme klang enttäuscht.
 
-Harrys Stimme versuchte, sich noch mehr zu beruhigen. "Ich werde versuchen, dein Fachwissen zu respektieren, Draco, wenn es um Dinge wie Menschen geht. Aber du musst auch mein Fachwissen respektieren, und es gibt keine Möglichkeit, dass du mir ebenbürtig bist, wenn es darum geht, die Verschwörung zu steuern. Du bist erst seit _einem Tag_ Wissenschaftler, du kennst _ein_ Geheimnis über Desoxyribonukleinsäure und du bist in _keiner_ der Methoden der Rationalität ausgebildet. "
+Harrys Stimme versuchte, sich noch mehr zu beruhigen. "Ich werde versuchen, dein Fachwissen zu respektieren, Draco, wenn es um Dinge wie Menschen geht. Aber du musst auch mein Fachwissen respektieren, und es gibt keine Möglichkeit, dass du mir ebenbürtig bist, wenn es darum geht, die Verschwörung zu steuern. Du bist erst seit _einem Tag_ Wissenschaftler, du kennst _ein_ Geheimnis über Desoxyribonukleinsäure und du bist in _keiner_ der Methoden der Rationalität ausgebildet."
 
 "Ich verstehe", sagte Draco.
 
 Und das tat er.
 
-_People stuff,_ hatte Harry gesagt. Die Kontrolle über die Conspiracy zu erlangen, wäre wahrscheinlich nicht einmal schwierig. Und danach würde er Harry Potter töten, nur um sicher zu gehen -.
+_Menschen Zeug_, hatte Harry gesagt. Die Kontrolle über die Verschwörung zu erlangen, wäre wahrscheinlich nicht einmal schwierig. Und danach würde er Harry Potter töten, nur um sicher zu gehen -
 
 In Draco stieg die Erinnerung daran auf, wie krank er sich gestern Abend innerlich gefühlt hatte, weil er wusste, dass Harry schrie.
 
@@ -300,9 +300,9 @@ Draco dachte noch ein paar böse Worte.
 
 Gut. Er _würde_ Harry nicht töten. Harry war von Muggeln aufgezogen worden, es war nicht seine Schuld, dass er geisteskrank war.
 
-Stattdessen würde Harry weiterleben, nur damit Draco ihm sagen konnte, dass das alles nur zu Harrys Wohl gewesen sei, er solle doch dankbar sein -.
+Stattdessen würde Harry weiterleben, nur damit Draco ihm sagen konnte, dass das alles nur zu Harrys Wohl gewesen sei, er solle doch dankbar sein -
 
-Und mit einem plötzlichen Zucken der überraschten Freude erkannte Draco, dass es tatsächlich _zu_ Harrys eigenem Wohl war. Wenn Harry versuchen würde, seinen Plan auszuführen, Dumbledore und Vater für dumm zu verkaufen, würde er _sterben. _
+Und mit einem plötzlichen Zucken der überraschten Freude erkannte Draco, dass es tatsächlich zu Harrys eigenem Wohl _war_. Wenn Harry versuchen würde, seinen Plan auszuführen, Dumbledore und Vater für dumm zu verkaufen, würde er _sterben_.
 
 Das machte es _perfekt_.
 
@@ -318,15 +318,15 @@ Die perfekte Rache.
 
 Es sei denn...
 
-_Tue einfach so, als ob du ein Wissenschaftler wärst,_ hatte Harry ihm gesagt.
+_Tue einfach so, als ob du ein Wissenschaftler wärst_, hatte Harry ihm gesagt.
 
-Draco fand keine Worte, um zu beschreiben, was genau in Harrys Kopf vorging. -.
+Draco fand keine Worte, um zu beschreiben, was genau in Harrys Kopf vorging. -
 
-(da Draco den Begriff _Rekursionstiefe_ noch nie gehört hatte).
+(da Draco den Begriff _Rekursionstiefe_ noch nie gehört hatte.)
 
-\- aber er konnte erahnen, welche Art von Handlungen damit verbunden waren.
+...aber er konnte erahnen, welche Art von Handlungen damit verbunden waren.
 
-... Es sei denn, all das war genau das, was Harry _wollte_, dass Draco als Teil eines noch _größeren_ Plans tat, in den Draco _gerade hineinspielte_, indem er versuchte, diesen zu vereiteln, Harry könnte sogar _wissen_, dass sein Plan undurchführbar war, er könnte keinen Zweck haben, _außer_ Draco zu locken, ihn zu vereiteln -.
+...es sei denn, all das war genau das, was Harry _wollte_, dass Draco als Teil eines noch _größeren_ Plans tat, in den Draco _gerade hineinspielte_, indem er versuchte, diesen Plan zu vereiteln. Harry könnte sogar _wissen_, dass sein Plan undurchführbar war, er könnte keinen Zweck haben, _außer_ Draco zu locken, ihn zu vereiteln -
 
 Nein. Auf diesem Weg lag _Wahnsinn_. Es _musste_ eine Grenze geben. Der Dunkle Lord selbst war nicht _so_ verdreht gewesen. So etwas passierte nicht im wirklichen Leben, sondern nur in Vaters albernen Gute-Nacht-Geschichten über dumme Wasserspeier, die jedes Mal, wenn sie versuchten, den Helden aufzuhalten, dessen Pläne vorantrieben.
 
@@ -334,11 +334,11 @@ Nein. Auf diesem Weg lag _Wahnsinn_. Es _musste_ eine Grenze geben. Der Dunkle L
 
 Und neben Draco ging Harry mit einem Lächeln im Gesicht entlang und dachte über die evolutionären Ursprünge der menschlichen Intelligenz nach.
 
-Am Anfang, als die Menschen noch nicht ganz verstanden hatten, wie die Evolution funktioniert, hatten sie verrückte Ideen wie _die menschliche Intelligenz entwickelte sich, damit wir bessere Werkzeuge erfinden konnten. _
+Am Anfang, als die Menschen noch nicht ganz verstanden hatten, wie die Evolution funktioniert, hatten sie verrückte Ideen das die menschliche Intelligenz sich entwickelte, damit wir bessere Werkzeuge erfinden konnten.
 
 Der Grund, warum das verrückt war, war, dass nur eine Person im Stamm ein Werkzeug erfinden musste und dann alle anderen es benutzen würden und es sich auf andere Stämme ausbreiten würde und noch hundert Jahre später von ihren Nachkommen benutzt werden würde. Das war großartig aus der Perspektive des wissenschaftlichen Fortschritts, aber in evolutionärer Hinsicht bedeutete es, dass die Person, die etwas erfand, keinen großen Fitnessvorteil hatte, nicht so viele _mehr_ Kinder hatte als alle anderen. Nur _relative_ Fitnessvorteile könnten die relative Häufigkeit eines Gens in der Population erhöhen und eine einsame Mutation so weit treiben, dass sie universell ist und jeder sie hat. Und brillante Erfindungen waren einfach nicht häufig genug, um die Art von beständigem Selektionsdruck zu erzeugen, der nötig war, um eine Mutation zu fördern. Es war eine natürliche Vermutung, wenn man sich die Menschen mit ihren Gewehren und Panzern und Atomwaffen ansah und sie mit Schimpansen verglich, dass die Intelligenz da war, um die Technologie zu machen. Eine natürliche Vermutung, aber falsch.
 
-Bevor die Menschen verstanden haben, wie die Evolution funktioniert, hatten sie verrückte Ideen wie _das Klima änderte sich, und die Stämme mussten auswandern, und die Menschen mussten klüger werden, um all die neuen Probleme zu lösen. _
+Bevor die Menschen verstanden haben, wie die Evolution funktioniert, hatten sie verrückte Ideen wie _das Klima änderte sich, und die Stämme mussten auswandern, und die Menschen mussten klüger werden, um all die neuen Probleme zu lösen._
 
 Aber der Mensch hatte ein viermal so großes Gehirn wie ein Schimpanse. 20% der Stoffwechselenergie eines Menschen gehen in die Ernährung des Gehirns. Die Menschen waren _lächerlich_ schlauer als jede andere Spezies. So etwas ist nicht passiert, weil die Umwelt den Schwierigkeitsgrad ihrer Probleme ein wenig erhöht hat. Dann würden die Organismen einfach ein bisschen schlauer werden, um sie zu lösen. Um zu diesem gigantischen, übergroßen Gehirn zu gelangen, muss es eine Art von _ausreißerischem_ evolutionärem Prozess gegeben haben, etwas, das ohne Grenzen drückt und schiebt.
 
@@ -358,10 +358,10 @@ Und neben Harry lief Draco her, der sein Lächeln unterdrückte, als er über se
 
 Eines Tages, vielleicht in Jahren, aber eines Tages, würde Harry Potter lernen, was es heißt, einen Malfoy zu unterschätzen.
 
-Draco war an einem einzigen Tag als Wissenschaftler erwacht. Harry hatte gesagt, dass das monatelang nicht passieren sollte.
+Draco war an einem einzigen Tag als Wissenschaftler erwacht. Harry hatte gesagt, dass das monatelang nicht hätte passieren sollte.
 
-Aber natürlich, wenn du ein Malfoy wärst, wärst du ein mächtigerer Wissenschaftler als jeder, der es nicht ist.
+Aber natürlich, wenn du ein Malfoy warst, wurdest du ein mächtigerer Wissenschaftler als jeder andere.
 
-Draco würde also alle Methoden der Rationalität von Harry Potter lernen, und dann, wenn die Zeit reif war -.
+Draco würde also alle Methoden der Rationalität von Harry Potter lernen, und dann, wenn die Zeit reif war -
 
 → [Kapitel 25](Kapitel-25.md)
