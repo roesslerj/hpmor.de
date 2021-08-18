@@ -234,19 +234,19 @@ Harry neigte den Kopf. "Tut mir leid", sagte er leise, "wirklich", und er ging d
 
 * * *
 
-"Also", sagte Harry. Es gab keine anderen Geräusche mehr, außer zwei Paar Beine, das lange und das kurze, die über einen zufälligen Steinkorridor stapften. Der Meister der Zaubertränke schritt zügig, aber nicht zu schnell, als dass Harry hätte mithalten können, und soweit Harry das Konzept der Richtungsabhängigkeit auf Hogwarts anwenden konnte, bewegten sie sich von den frequentierten Bereichen weg. "Worum geht es hier?"
+"Also", sagte Harry. Es gab keine anderen Geräusche mehr, außer zwei Paar Beine, das lange und das kurze, die über einen zufälligen Steinkorridor stapften. Der Meister der Zaubertränke schritt zügig, aber nicht zu schnell, sodass Harry mithalten konnte, und soweit Harry das Konzept der Richtungsabhängigkeit auf Hogwarts anwenden konnte, bewegten sie sich von den frequentierten Bereichen weg. "Worum geht es?"
 
 "Ich nehme nicht an, dass du erklären kannst", sagte Severus trocken, "warum ihr beide den Mord an Cho Chang geplant habt?"
 
-"Ich nehme nicht an, dass _du_ in deiner Eigenschaft als Beamter des Hogwarts-Schulsystems erklären könntest, warum das Fangen einer goldenen Mücke als akademische Leistung gilt, die hundertfünfzig Hauspunkte wert ist?", sagte Harry trocken.
+"Ich nehme nicht an, dass _Sie_ in Ihrer Eigenschaft als Beamter des Hogwarts-Schulsystems erklären können, warum das Fangen einer goldenen Mücke als akademische Leistung gilt, die hundertfünfzig Hauspunkte wert ist?", sagte Harry trocken.
 
-Ein Lächeln ging über Severus' Lippen. "Du liebe Zeit, und ich dachte, du wärst so scharfsinnig. Bist du wirklich so unfähig, deine Mitschüler zu verstehen, Potter, oder magst du sie zu sehr, um es zu versuchen? Wenn Quidditch-Punkte nicht für den Hauspokal zählen würden, dann würde sich keiner von ihnen um Hauspunkte kümmern. Es wäre lediglich ein obskurer Wettbewerb für Schüler wie dich und Miss Granger. "
+Ein Lächeln ging über Severus' Lippen. "Du liebe Zeit, und ich dachte, du wärst so scharfsinnig. Bist du wirklich so unfähig, deine Mitschüler zu verstehen, Potter, oder magst du sie nicht genug, um es zu versuchen? Wenn Quidditch-Punkte nicht für den Hauspokal zählen würden, dann würde sich keiner von ihnen um Hauspunkte kümmern. Es wäre lediglich ein obskurer Wettbewerb für Schüler wie dich und Miss Granger."
 
 Es war eine schockierend gute Antwort.
 
 Und dieser Schock brachte Harrys Geist vollends zum Erwachen.
 
-Im Nachhinein hätte es nicht überraschen dürfen, dass Severus seine Schüler verstand, sehr gut sogar.
+Im Nachhinein hätte es ihn nicht überraschen dürfen, dass Severus seine Schüler verstand, sehr gut sogar.
 
 Er hatte ihre Gedanken gelesen.
 
@@ -270,15 +270,15 @@ Harry bemerkte, dass er verwirrt war.
 
 Und seine Bedrohungseinschätzung des _Anführers des Hauses Slytherin_ schoss astronomisch in die Höhe.
 
-Dumbledore schien zu denken, dass Severus ihm gehörte, und es gab nichts, was dem widersprach; der Zaubertränkemeister war "furchterregend, aber nicht ausfallend"gewesen, wie versprochen. Also, so hatte Harry vorhin überlegt, war dies eine Angelegenheit der Gemeinschaft. Wenn Severus etwas Böses vorgehabt hätte, wäre er sicher nicht gekommen, um Harry vor Hermine, einer Zeugin, zu holen, wenn er einfach hätte warten können, bis Harry allein war...
+Dumbledore schien zu denken, dass Severus ihm gehörte, und es gab nichts, was dem widersprach; der Zaubertränkemeister war "furchterregend, aber nicht ausfallend" gewesen, wie versprochen. Also, so hatte Harry vorhin überlegt, war dies eine Angelegenheit der Gemeinschaft. Wenn Severus etwas Böses vorgehabt hätte, wäre er sicher nicht gekommen, um Harry vor Hermine, einer Zeugin, zu holen, wenn er einfach hätte warten können, bis Harry allein war...
 
-Harry biss sich leise auf die Lippe.
+Harry biss sich leise auf die Lippen.
 
-"Ich kannte einmal einen Jungen, der Quidditch wirklich verehrte", sagte Severus Snape. "Er war ein absoluter Schwachkopf. Genau wie du und ich es erwarten würden, wir zwei. "
+"Ich kannte einmal einen Jungen, der Quidditch wirklich verehrte", sagte Severus Snape. "Er war ein absoluter Schwachkopf. Genau wie du und ich es erwarten würden, wir zwei."
 
-"Was _ist_ das?"sagte Harry langsam.
+"Was _ist_ das?" sagte Harry langsam.
 
-"Geduld, Potter. "
+"Geduld, Potter."
 
 Severus drehte den Kopf und glitt dann mit der Haltung eines Attentäters in eine nahe gelegene Öffnung in den Korridorwänden, von der ein kleinerer und engerer Gang abging.
 
@@ -286,31 +286,31 @@ Harry folgte ihm und fragte sich, ob es klüger wäre, einfach wegzulaufen.
 
 Sie bogen ab und machten eine weitere Kurve und kamen in eine Sackgasse, eine einfache leere Wand. Wäre Hogwarts tatsächlich gebaut worden, anstatt beschworen oder herbeigezaubert oder geboren oder was auch immer, hätte Harry ein paar scharfe Worte für den Architekten übrig gehabt, weil er Leute dafür bezahlt hat, Flure zu bauen, die nirgendwo hinführen.
 
-"_Quietus,_"sagte Severus, und noch ein paar andere Dinge.
+"_Quietus_", sagte Severus, und noch ein paar andere Dinge.
 
 Harry lehnte sich zurück, verschränkte die Arme vor der Brust und beobachtete Severus' Gesicht.
 
-"Siehst du mir in die Augen, Potter?", fragte Severus Snape. "Deine Occlumency-Lektionen können nicht weit genug fortgeschritten sein, damit du Legilimency blockieren kannst. Aber dann sind sie vielleicht schon so weit fortgeschritten, dass du es erkennen kannst. Da ich es nicht anders wissen kann, werde ich keinen Versuch wagen. "Der Mann lächelte dünn. "Und das Gleiche wird auch für Dumbledore gelten, denke ich. Das ist der Grund, warum wir _jetzt_ dieses kleine Gespräch führen. "
+"Siehst du mir in die Augen, Potter?", fragte Severus Snape. "Deine Occlumency-Lektionen können nicht weit genug fortgeschritten sein, damit du Legilimency blockieren kannst. Aber dann sind sie vielleicht schon so weit fortgeschritten, dass du es erkennen kannst. Da ich es nicht anders wissen kann, werde ich keinen Versuch wagen." Der Mann lächelte dünn. "Und das Gleiche wird auch für Dumbledore gelten, denke ich. Das ist der Grund, warum wir _jetzt_ dieses kleine Gespräch führen."
 
 Harrys Augen weiteten sich unwillkürlich.
 
-"Für den Anfang", sagte Severus mit funkelnden Augen, "möchte ich, dass du versprichst, mit _jemandem_ nicht über unsere Gespräche zu sprechen. Soweit es die Schule betrifft, besprechen wir deine Zaubertrank-Hausaufgaben. Ob sie das glauben oder nicht, ist unwichtig. Soweit es Dumbledore und McGonagall betrifft, verletze ich Draco Malfoys Vertrauen in mich, und keiner von uns hält es für angebracht, weiter über die Einzelheiten zu sprechen. "
+"Für den Anfang", sagte Severus mit funkelnden Augen, "möchte ich, dass du versprichst, mit _niemandem_ über unsere Gespräche zu sprechen. Soweit es die Schule betrifft, besprechen wir deine Zaubertrank-Hausaufgaben. Ob sie das glauben oder nicht, ist unwichtig. Soweit es Dumbledore und McGonagall betrifft, verletze ich Draco Malfoys Vertrauen in mich, und keiner von uns hält es für angebracht, weiter über die Einzelheiten zu sprechen."
 
-Harrys Gehirn versuchte, die Verzweigungen und Implikationen zu berechnen und hatte keinen Platz mehr zum Tauschen.
+Harrys Gehirn versuchte, die Verzweigungen und Implikationen zu berechnen und hatte keinen Platz mehr zum Swapen.
 
 "Und?", sagte der Meister der Zaubertränke.
 
-"In Ordnung", sagte Harry langsam. Es war schwer zu erkennen, wie es einschränkender sein konnte, ein Gespräch zu haben und es niemandem erzählen zu können, als es nicht zu haben, in dem Fall, dass man auch niemandem den Inhalt erzählen konnte. "Ich verspreche es. "
+"In Ordnung", sagte Harry langsam. Es war schwer zu erkennen, wie es einschränkender sein konnte, ein Gespräch zu haben und es niemandem erzählen zu können, als es nicht zu haben, in dem Fall, dass man auch niemandem den Inhalt erzählen konnte. "Ich verspreche es."
 
 Severus beobachtete Harry aufmerksam. "Du hast einmal im Büro des Schulleiters gesagt, dass du kein Mobbing oder Missbrauch dulden würdest. Und so frage ich mich, Harry Potter. Wie sehr ähnelst du deinem Vater?"
 
-"Wenn wir nicht gerade über Michael Verres-Evans reden", sagte Harry, "ist die Antwort, dass ich sehr wenig über James Potter weiß. "
+"Wenn wir nicht gerade über Michael Verres-Evans reden", sagte Harry, "ist die Antwort, dass ich sehr wenig über James Potter weiß."
 
-Severus nickte, wie zu sich selbst. "Es gibt einen Slytherin im fünften Jahr. Ein Junge namens Lesath Lestrange. Er wird von den Gryffindors gemobbt. Das bin ich... eingeschränkt, in meiner Fähigkeit, mit solchen Situationen umzugehen. _Du_ könntest ihm vielleicht helfen. Wenn du es dir wünschst. Ich bitte dich nicht um einen Gefallen und werde dir auch keinen schulden. Es ist einfach eine Gelegenheit zu tun, was du willst. "
+Severus nickte, wie zu sich selbst. "Es gibt einen Slytherin im fünften Jahr. Ein Junge namens Lesath Lestrange. Er wird von den Gryffindors gemobbt. Dabei bin ich... eingeschränkt, in meiner Fähigkeit, mit solchen Situationen umzugehen. _Du_ könntest ihm vielleicht helfen. Wenn du es dir wünschst. Ich bitte dich nicht um einen Gefallen und werde dir auch keinen schulden. Es ist einfach eine Gelegenheit zu tun, was du willst."
 
 Harry starrte Severus nachdenklich an.
 
-"Du fragst dich, ob es eine Falle ist?", sagte Severus und ein schwaches Lächeln kam über seine Lippen. "Das ist es nicht. Es _ist_ ein Test. Nenn es Neugierde meinerseits. Aber Lesaths Probleme sind real, genauso wie meine eigenen Schwierigkeiten, einzugreifen. "
+"Du fragst dich, ob es eine Falle ist?", sagte Severus und ein schwaches Lächeln kam über seine Lippen. "Das ist es nicht. Es _ist_ ein Test. Nenn es Neugierde meinerseits. Aber Lesaths Probleme sind real, genauso wie meine eigenen Schwierigkeiten, einzugreifen."
 
 Das war das Problem, dass andere Leute wussten, dass du ein guter Kerl bist. Selbst wenn du wusstest, dass sie es wissen, konntest du den Köder nicht ignorieren.
 
@@ -320,21 +320,21 @@ Und wenn sein Vater die Schüler auch vor Tyrannen beschützt hätte... Es spiel
 
 Severus' Gesicht verlor das schwache Lächeln. "Du denkst, es gibt _Gründe_, Potter?"
 
-"Vielleicht nicht", sagte Harry leise. "Aber mir kam der Gedanke, dass er irgendein unwichtiges Schlammblutmädchen die Treppe hinuntergestoßen haben könnte. "
+"Vielleicht nicht", sagte Harry leise. "Aber mir kam der Gedanke, dass er irgendein unwichtiges Schlammblutmädchen die Treppe hinuntergestoßen haben könnte."
 
 "Lesath Lestrange", sagte Severus, seine Stimme jetzt kalt, "ist der Sohn von Bellatrix Black, der fanatischsten und bösesten Dienerin des Dunklen Lords. Lesath ist der anerkannte Bastard von Rabastan Lestrange. Kurz nach dem Tod des Dunklen Lords wurden Bellatrix und Rabastan sowie Rabastans Bruder Rodolphus gefangen genommen, während sie Alice und Frank Longbottom folterten. Alle drei sind lebenslang in Askaban. Die Longbottoms wurden durch wiederholten Cruciatus in den Wahnsinn getrieben und bleiben in St. Mungo's unheilbares Mündel. Ist irgendetwas davon ein guter Grund, ihn zu schikanieren, Potter?"
 
-"Es ist überhaupt kein Grund", sagte Harry, immer noch leise. "Und Lesath selbst hat kein Unrecht getan, von dem du weißt?"
+"Es ist überhaupt kein Grund", sagte Harry, immer noch leise. "Und Lesath selbst hat kein Unrecht getan, von dem Sie wissen?"
 
-Das schwache Lächeln ging wieder über Severus' Lippen. "Er ist nicht mehr ein Heiliger als jeder andere. Aber er hat keine Schlammblutmädchen die Treppe hinuntergestoßen, nicht dass ich je davon gehört hätte. "
+Das schwache Lächeln ging wieder über Severus' Lippen. "Er ist nicht mehr ein Heiliger als jeder andere. Aber er hat keine Schlammblutmädchen die Treppe hinuntergestoßen, nicht dass ich je davon gehört hätte."
 
 "Oder in seinem Kopf gesehen", sagte Harry.
 
-Severus' Gesichtsausdruck war kühl. "Ich bin nicht in seine Privatsphäre eingedrungen, Potter. Ich schaute eher innerhalb der Gryffindors. Er ist einfach ein bequemes Ziel für ihre kleinen Befriedigungen. "
+Severus' Gesichtsausdruck war kühl. "Ich bin nicht in seine Privatsphäre eingedrungen, Potter. Ich schaute eher innerhalb der Gryffindors. Er ist einfach ein bequemes Ziel für ihre kleinen Befriedigungen."
 
 Ein kalter Hauch von Ärger lief Harry über den Rücken und er musste sich daran erinnern, dass Severus vielleicht keine vertrauenswürdige Informationsquelle war.
 
-"Und du denkst", sagte Harry, "dass eine Intervention von Harry Potter, dem Jungen-der-lebte, sich als wirksam erweisen könnte. "
+"Und Sie denken", sagte Harry, "dass eine Intervention von Harry Potter, dem Jungen-der-lebt, sich als wirksam erweisen könnte."
 
 "In der Tat", sagte Severus Snape und erzählte Harry, wann und wo die Gryffindors ihr nächstes kleines Spielchen planten.
 
@@ -342,37 +342,37 @@ Ein kalter Hauch von Ärger lief Harry über den Rücken und er musste sich dara
 
 Es gibt einen Hauptflur, der in der Mitte des zweiten Stockwerks von Hogwarts auf der Nord-Süd-Achse verläuft. Nahe der Mitte dieses Flurs gibt es eine Öffnung in einen kurzen Korridor, der ein Dutzend Schritte zurückgeht, bevor er im rechten Winkel abbiegt und eine L-Form bildet, und dann noch ein Dutzend Schritte weitergeht, bevor er an einem hellen, breiten Fenster endet, das aus drei Stockwerken Höhe auf den leichten Nieselregen blickt, der über das Ostgelände von Hogwarts fällt. Wenn du am Fenster stehst, kannst du nichts vom Hauptflur hören und niemand im Flur würde hören, was am Fenster vor sich geht. Wenn du denkst, dass daran etwas merkwürdig ist, dann warst du noch nicht lange in Hogwarts.
 
-Vier Jungen in roten Gewändern lachen und ein Junge in grünen Gewändern schreit und klammert sich verzweifelt mit den Händen an den Rand des geöffneten Fensters, während die vier Jungen so tun, als wollten sie ihn hinausstoßen. Das ist natürlich nur ein Scherz und außerdem würde ein Sturz aus dieser Höhe einen Zauberer nicht töten. Alles guter Spaß. Wenn du denkst, dass irgendetwas an dieser Sache seltsam ist -.
+Vier Jungen in roten Gewändern lachen und ein Junge in grünen Gewändern schreit und klammert sich verzweifelt mit den Händen an den Rand des geöffneten Fensters, während die vier Jungen so tun, als wollten sie ihn hinausstoßen. Das ist natürlich nur ein Scherz und außerdem würde ein Sturz aus dieser Höhe einen Zauberer nicht töten. Alles guter Spaß. Wenn du denkst, dass irgendetwas an dieser Sache seltsam ist -
 
-"_Was machst du da?_", sagt eine sechste Jungenstimme.
+"_Was macht Ihr da?_", sagt eine sechste Jungenstimme.
 
 Die vier Jungen in den roten Roben drehen sich mit einem plötzlichen Ruck herum, und der Junge in den grünen Roben stößt sich verzweifelt vom Fenster weg und fällt mit tränenüberströmtem Gesicht zu Boden.
 
-"Oh", sagt der hübscheste der Jungs in rotgeschmückten Roben und klingt erleichtert, "du bist es. _ Hey, Lessy, weißt du, wer das ist?"
+"Oh", sagt der hübscheste der Jungs in rotgeschmückten Roben und klingt erleichtert, "du bist es. _Hey, Lessy, weißt du, wer das ist?_"
 
-Es kommt keine Antwort von dem Jungen auf dem Boden, der versucht, sein Schniefen unter Kontrolle zu bekommen, und der Junge in den rotgeschmückten Roben zieht sein Bein für einen Tritt zurück -.
+Es kommt keine Antwort von dem Jungen auf dem Boden, der versucht, sein Schniefen unter Kontrolle zu bekommen, und der Junge in den rotgeschmückten Roben zieht sein Bein für einen Tritt zurück -
 
 "_Hör auf!_", ruft der sechste Junge.
 
 Der Junge in den rotgeschmückten Roben wackelt, als er den Tritt abbricht. "Ähm", sagt er, "weißt _du_, wer das ist?"
 
-Die Atmung des sechsten Jungen klingt seltsam. "Lesath Lestrange", sagt er, sein Atem kommt in kurzen Zügen, "und _er_ hat meinen Eltern nichts getan, er war fünf Jahre alt. "
+Die Atmung des sechsten Jungen klingt seltsam. "Lesath Lestrange", sagt er, sein Atem kommt in kurzen Zügen, "und _er_ hat meinen Eltern nichts getan, er war fünf Jahre alt."
 
 * * *
 
 Neville Longbottom starrte auf die vier riesigen Fünftklässler vor ihm und versuchte mit aller Kraft, sein Zittern zu kontrollieren.
 
-Er hätte Harry Potter einfach nein sagen sollen.
+Er hätte einfach nein zu Harry Potter sagen sollen.
 
-"Warum verteidigst _du_ ihn?", sagte der Hübsche langsam und klang bei den ersten Andeutungen von Beleidigung verwirrt. "Er ist ein _Slytherin. Und eine _Lestrange. _"
+"Warum verteidigst _du_ ihn?", sagte der Hübsche langsam und klang bei den ersten Andeutungen von Beleidigung verwirrt. "Er ist ein _Slytherin_. Und eine _Lestrange_."
 
-"Er ist ein Junge, der seine Eltern verloren hat", sagte Neville Longbottom. "Ich weiß, wie das ist. "Er wusste nicht, woher die Worte gekommen waren. Es klang zu cool, wie etwas, das Harry Potter sagen würde.
+"Er ist ein Junge, der seine Eltern verloren hat", sagte Neville Longbottom. "Ich weiß, wie das ist." Er wusste nicht, woher die Worte gekommen waren. Es klang zu cool, wie etwas, das Harry Potter sagen würde.
 
 Das Zittern ging aber weiter.
 
-"_Wer_ glaubst du denn, dass du _das_ bist?", sagte der Hübsche und begann, wütend zu klingen.
+"_Wer_ glaubst du denn, dass _du_ bist?", sagte der Hübsche und begann, wütend zu klingen.
 
-Ich bin Neville, der letzte Spross des edlen und uralten Hauses Longbottom -_
+_Ich bin Neville, der letzte Spross des edlen und uralten Hauses Longbottom._
 
 Neville konnte es nicht aussprechen.
 
@@ -382,31 +382,31 @@ Er hatte es gewusst, er hatte es einfach gewusst. Harry Potter hatte sich also d
 
 Der Hübsche machte einen Schritt nach vorne, und die drei anderen folgten.
 
-"So ist das also bei dir", sagte Neville und war erstaunt, wie fest seine Stimme war. "Für dich ist es egal, ob es Lesath Lestrange oder Neville Longbottom ist. "
+"So ist das also bei dir", sagte Neville und war erstaunt, wie fest seine Stimme war. "Für dich ist es egal, ob es Lesath Lestrange oder Neville Longbottom ist."
 
 Lesath Lestrange stieß ein plötzliches Keuchen aus, von wo aus er auf dem Boden lag.
 
-"Böse ist böse", knurrte derselbe Junge, der zuvor gesprochen hatte, "und wenn du mit dem Bösen befreundet bist, bist du auch böse. "
+"Böse ist böse", knurrte derselbe Junge, der zuvor gesprochen hatte, "und wenn du mit dem Bösen befreundet bist, bist du auch böse."
 
 Die vier machten einen weiteren Schritt nach vorne.
 
 Lesath erhob sich schwankend auf seine Füße. Sein Gesicht war grau und er machte ein paar Schritte nach vorne, lehnte sich gegen die Wand und sagte nichts. Seine Augen waren auf die Kurve im Gang fixiert, den Weg nach draußen.
 
-"Freunde", sagte Neville. Jetzt ging seine Stimme ein wenig in die Höhe. "Ja, ich habe Freunde. Einer von ihnen ist der Junge-der-lebte. "
+"Freunde", sagte Neville. Jetzt ging seine Stimme ein wenig in die Höhe. "Ja, ich habe Freunde. Einer von ihnen ist der Junge-der-lebt."
 
-Ein paar der Gryffindors sahen plötzlich besorgt aus. Der Hübsche hat nicht gezuckt. "Harry Potter ist nicht hier", sagte er mit harter Stimme, "und wenn er es wäre, glaube ich nicht, dass es ihm gefallen würde, wenn ein Longbottom eine Lestrange verteidigt. "
+Ein paar der Gryffindors sahen plötzlich besorgt aus. Der Hübsche hat nicht gezuckt. "Harry Potter ist nicht hier", sagte er mit harter Stimme, "und wenn er es wäre, glaube ich nicht, dass es ihm gefallen würde, wenn ein Longbottom einen Lestrange verteidigt."
 
 Und die Gryffindors machten einen weiteren langen Schritt nach vorne. Hinter ihnen schlich Lesath an der Wand entlang und wartete auf seine Chance.
 
 Neville schluckte und hob seine rechte Hand mit zusammengepresstem Daumen und Zeigefinger.
 
-Er schloss die Augen, denn Harry Potter hatte ihm versprochen, nicht zu gucken.
+Er schloss die Augen, denn er hatte Harry Potter versprochen, nicht zu kucken.
 
-Wenn das nicht klappen würde, würde er nie wieder jemandem trauen.
+Wenn das nicht klappen würde, würde er nie wieder irgendjemandem trauen.
 
-Seine Stimme kam erstaunlich klar heraus, wenn man bedenkt.
+Seine Stimme kam erstaunlich klar heraus, wenn man die Umstände bedenkt.
 
-"Harry James Potter-Evans-Verres. Harry James Potter-Evans-Verres. Harry James Potter-Evans-Verres. Durch die Schuld, die du mir schuldest und die Kraft deines wahren Namens rufe ich dich, ich öffne den Weg für dich, ich rufe dich auf, dich vor mir zu offenbaren. "
+"Harry James Potter-Evans-Verres. Harry James Potter-Evans-Verres. Harry James Potter-Evans-Verres. Durch die Schuld, die du mir schuldest und die Kraft deines wahren Namens rufe ich dich, ich öffne den Weg für dich, ich rufe dich auf, dich vor mir zu offenbaren."
 
 Neville schnippte mit den Fingern.
 
@@ -418,9 +418,9 @@ Die vier Gryffindors starrten ihn an.
 
 Der Hübsche fing an zu kichern, und das brachte die anderen drei auf die Palme.
 
-"Sollte Harry Potter um die Ecke kommen oder so?", fragte der Hübsche. "Ach. Sieht so aus, als wärst du versetzt worden. "
+"Sollte Harry Potter jetzt um die Ecke kommen oder so?", fragte der Hübsche. "Ach. Sieht so aus, als wärst du versetzt worden."
 
-Der Gutaussehende machte einen bedrohlichen Schritt auf Neville zu.
+Der Hübsche machte einen bedrohlichen Schritt auf Neville zu.
 
 Die anderen drei folgten im Gleichschritt.
 
@@ -428,7 +428,7 @@ Die anderen drei folgten im Gleichschritt.
 
 Wenn es sich immer so gut anfühlte, Leute schreien zu sehen, konnte Neville irgendwie verstehen, warum Leute zu Tyrannen wurden.
 
-Harry Potter pirschte sich vor und stellte sich zwischen Lesath Lestrange und die anderen. Er ließ seinen eisigen Blick über die Jungen in den rotgeschmückten Roben schweifen und dann ruhten seine Augen auf dem gutaussehenden, dem Anführer. "Mr. Carl Sloper", sagte Harry Potter. "Ich glaube, ich habe die Situation vollständig verstanden. Ob Lesath Lestrange jemals selbst ein einziges Übel begangen hat, anstatt von den falschen Eltern geboren zu werden, ist _dir_ nicht bekannt. Wenn ich mich hierin irre, Mr. Sloper, schlage ich vor, dass Sie mich sofort informieren. "
+Harry Potter pirschte sich vor und stellte sich zwischen Lesath Lestrange und die anderen. Er ließ seinen eisigen Blick über die Jungen in den rotgeschmückten Roben schweifen und dann ruhten seine Augen auf dem gutaussehenden, dem Anführer. "Mr. Carl Sloper", sagte Harry Potter. "Ich glaube, ich habe die Situation vollständig verstanden. Ob Lesath Lestrange jemals selbst ein einziges Übel begangen hat, anstatt von den falschen Eltern geboren zu werden, ist _dir_ nicht bekannt. Wenn ich mich hierbei irre, Mr. Sloper, schlage ich vor, dass Sie mich sofort informieren."
 
 Neville sah die Angst und Ehrfurcht in den Gesichtern der anderen Jungen. Er hat es selbst gespürt. Harry hatte _behauptet_, es wäre alles nur ein Trick, aber wie konnte das sein?
 
@@ -438,13 +438,13 @@ Neville sah die Angst und Ehrfurcht in den Gesichtern der anderen Jungen. Er hat
 
 Diesmal zuckten alle drei der anderen Gryffindors zusammen.
 
-"Also", sagte Harry Potter. "Du hast gesehen, dass Neville nicht wollte, dass du im Namen der Longbottoms einen unschuldigen Jungen quälst. Das hat dich nicht bewegt. Wenn ich dir sage, dass der Junge-der-lebte _auch_ denkt, dass du im Unrecht bist, dass das, was du heute getan hast, ein schrecklicher Fehler war, macht das einen Unterschied?"
+"Also", sagte Harry Potter. "Du hast gesehen, dass Neville nicht wollte, dass du im Namen der Longbottoms einen unschuldigen Jungen quälst. Das hat dich nicht bewegt. Wenn ich dir sage, dass der Junge-der-lebt _auch_ denkt, dass du im Unrecht bist, dass das, was du heute getan hast, ein schrecklicher Fehler war, macht das einen Unterschied?"
 
 Der Rädelsführer machte einen Schritt auf Harry zu.
 
-Die anderen sind ihm _nicht_ gefolgt.
+Die anderen folgten ihm _nicht_.
 
-"Carl", sagte einer von ihnen und schluckte. "Vielleicht sollten wir gehen. "
+"Carl", sagte einer von ihnen und schluckte. "Vielleicht sollten wir gehen."
 
 "Man sagt, du wirst der nächste Dunkle Lord", sagte der Rädelsführer und starrte Harry an.
 
