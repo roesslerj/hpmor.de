@@ -416,7 +416,7 @@ Lesath Lestrange starrte ihn an.
 
 Die vier Gryffindors starrten ihn an.
 
-Der Hübsche fing an zu kichern, und das brachte die anderen drei auf die Palme.
+Der Hübsche fing an zu kichern, und dann fingen die anderen drei auch an.
 
 "Sollte Harry Potter jetzt um die Ecke kommen oder so?", fragte der Hübsche. "Ach. Sieht so aus, als wärst du versetzt worden."
 
@@ -434,7 +434,7 @@ Neville sah die Angst und Ehrfurcht in den Gesichtern der anderen Jungen. Er hat
 
 "Aber er ist ein _Lestrange_", sagte der Rädelsführer.
 
-"Er ist ein Junge, der _seine Eltern_ verloren hat", sagte Harry Potter und seine Stimme wurde noch kälter.
+"Er ist ein Junge, der _seine Eltern verloren hat_", sagte Harry Potter und seine Stimme wurde noch kälter.
 
 Diesmal zuckten alle drei der anderen Gryffindors zusammen.
 
@@ -448,21 +448,21 @@ Die anderen folgten ihm _nicht_.
 
 "Man sagt, du wirst der nächste Dunkle Lord", sagte der Rädelsführer und starrte Harry an.
 
-Ein Grinsen ging über Harry Potters Gesicht. "Sie sagen auch, dass ich heimlich mit Ginevra Weasley verlobt bin und es eine Prophezeiung gibt, dass wir Frankreich erobern werden. "Das Lächeln verblasste. "Da Sie das Thema unbedingt erzwingen wollen, Mr. Carl Sloper, lassen Sie mich die Dinge klarstellen. _Lass Lesath in Ruhe. _ Ich werde es wissen, wenn du es nicht tust. "
+Ein Grinsen ging über Harry Potters Gesicht. "Sie sagen auch, dass ich heimlich mit Ginevra Weasley verlobt bin und es eine Prophezeiung gibt, dass wir Frankreich erobern werden." Das Lächeln verblasste. "Da Sie das Thema unbedingt erzwingen wollen, Mr. Carl Sloper, lassen Sie mich die Dinge klarstellen. _Lass Lesath in Ruhe_. Ich werde es wissen, wenn du es nicht tust."
 
-"Lessy hat dich also angeschnauzt", sagte der Rädelsführer kalt.
+"Lessy hat dich also angeheuert", sagte der Rädelsführer kalt.
 
 "Sicher", sagte Harry Potter trocken, "und er hat mir auch erzählt, was du heute, nachdem du den Zauberkunstunterricht verlassen hast, an einem abgeschiedenen Ort, wo dich niemand sehen konnte, mit einem gewissen Hufflepuff-Mädchen gemacht hast, das eine weiße Schleife im Haar trug -"
 
 Die Kinnlade des Rädelsführers fiel vor Schreck herunter.
 
-"Eep", sagte einer der anderen Gryffindors mit hoher Stimme, drehte sich auf den Fersen und rannte um die Ecke. Seine Schritte prasselten schnell weg und verklangen.
+"Eep", sagte einer der anderen Gryffindors mit hoher Stimme, drehte sich auf den Fersen um und rannte um die Ecke. Seine Schritte prasselten schnell weg und verklangen.
 
 Und dann waren es sechs.
 
-"Ah", sagte Harry Potter, "da geht ein leicht intelligenter junger Mann. Der Rest von euch könnte sich ein Beispiel an Bertram Kirke nehmen, bevor ihr in, sagen wir mal, Schwierigkeiten geratet. "
+"Ah", sagte Harry Potter, "da geht ein leicht intelligenter junger Mann. Der Rest von euch könnte sich ein Beispiel an Bertram Kirke nehmen, bevor ihr in, sagen wir mal, Schwierigkeiten geratet."
 
-"Drohst du damit, uns zu verhöhnen?", sagte der gutaussehende Gryffindor, wobei seine Stimme versuchte, wütend zu sein, und eher schwankte. "Schlimme Dinge passieren mit Schnarchnasen. "
+"Drohst du damit, uns zu verhöhnen?", sagte der gutaussehende Gryffindor, wobei seine Stimme versuchte wütend zu sein, und eher schwankte. "Schlimme Dinge passieren mit Schnarchnasen."
 
 Die anderen beiden Gryffindors bewegten sich langsam zurück.
 
@@ -472,11 +472,11 @@ Sogar der Rädelsführer zuckte bei diesem Gedanken zusammen.
 
 Harry Potter hob seine Hand, die Finger spreizend, und alle drei Gryffindors sprangen zurück, und einer von ihnen platzte heraus: "Nicht - !"
 
-"Siehst du", sagte Harry Potter, "das ist der Punkt, an dem ich mit den Fingern schnippe und du Teil einer urkomischen Geschichte wirst, die heute Abend beim Abendessen mit viel nervösem Gelächter erzählt werden wird. Aber die Sache ist die, dass Leute, denen ich vertraue, mir immer wieder sagen, dass ich das nicht tun soll. Professor McGonagall hat mir gesagt, dass ich alles auf die leichte Schulter nehme und Professor Quirrell sagt, dass ich lernen muss, zu verlieren. Also erinnerst du dich an die Geschichte, in der ich mich von ein paar älteren Slytherins verprügeln ließ? Das könnten wir machen. Du könntest mich eine Zeit lang schikanieren und ich könnte dich lassen. Nur erinnerst du dich an den Teil am Ende, in dem ich meinen vielen, vielen Freunden in dieser Schule sage, dass sie nichts dagegen tun sollen? Dieses Mal überspringen wir diesen Teil. Also mach weiter. Schikaniere mich. "
+"Siehst du", sagte Harry Potter, "das ist der Punkt, an dem ich mit den Fingern schnippe und du Teil einer urkomischen Geschichte wirst, die heute Abend beim Abendessen mit viel nervösem Gelächter erzählt werden wird. Aber die Sache ist die, dass Leute, denen ich vertraue, mir immer wieder sagen, dass ich das nicht tun soll. Professor McGonagall hat mir gesagt, dass ich alles auf die leichte Schulter nehme und Professor Quirrell sagt, dass ich lernen muss, zu verlieren. Also erinnerst du dich an die Geschichte, in der ich mich von ein paar älteren Slytherins verprügeln ließ? Das könnten wir machen. Du könntest mich eine Zeit lang schikanieren und ich könnte dich lassen. Nur erinnerst du dich an den Teil am Ende, in dem ich meinen vielen, vielen Freunden in dieser Schule sage, dass sie nichts dagegen tun sollen? Dieses Mal überspringen wir diesen Teil. Also mach weiter. Schikaniere mich."
 
 Harry Potter trat vor, die Arme einladend weit geöffnet.
 
-Die drei Gryffindors brachen ab und rannten los. Neville musste schnell ausweichen, um nicht überfahren zu werden.
+Die drei Gryffindors drehten sich um und rannten panisch los. Neville musste schnell ausweichen, um nicht überrant zu werden.
 
 Es herrschte Stille, als ihre Schritte verklangen, und danach noch mehr Stille.
 
@@ -484,13 +484,13 @@ Und dann waren es drei.
 
 Harry Potter holte tief Luft und atmete dann aus. "Uff", sagte er. "Wie geht es dir, Neville?"
 
-Nevilles Stimme kam in einem hohen Quietschton heraus. "Okay, _das_ war wirklich cool. "
+Nevilles Stimme kam in einem hohen Quietschton heraus. "Okay, _das_ war wirklich cool."
 
-Ein Grinsen huschte über Harry Potters Gesicht. "_Du_ warst auch ziemlich cool, weißt du. "
+Ein Grinsen huschte über Harry Potters Gesicht. "_Du_ warst auch ziemlich cool, weißt du."
 
 Neville wusste, dass Harry Potter das nur sagte, um ihm ein gutes Gefühl zu geben, und es löste trotzdem ein warmes Glühen in seiner Brust aus.
 
-Harry drehte sich zu Lesath Lestrange um -.
+Harry drehte sich zu Lesath Lestrange um.
 
 "Geht es dir gut, Lestrange?", fragte Neville, bevor Harry den Mund öffnen konnte.
 
@@ -498,29 +498,29 @@ Das war etwas, von dem du nicht erwartet hast, dass du es jemals sagen würdest.
 
 Lesath Lestrange drehte sich langsam um und starrte Neville an. Sein Gesicht war angespannt, er weinte nicht mehr, die Tränen glitzerten, als sie trockneten.
 
-"Du glaubst, du weißt, wie es ist?", sagte Lesath, seine Stimme hoch und zitternd. "_Du glaubst, du weißt es?Meine Eltern sind in Askaban, ich versuche nicht daran zu denken und sie erinnern mich immer daran, sie finden es _großartig_, dass Mutter dort in der Kälte und der Dunkelheit ist, mit den Dementoren, die ihr das Leben aussaugen, ich wünschte, ich wäre wie Harry Potter, wenigstens tun seine Eltern nicht weh, Ich wünschte, ich wäre wie du, wenigstens kannst du deine Eltern manchmal sehen, wenigstens weißt du, dass sie dich geliebt haben, wenn Mutter mich jemals geliebt hat, dann haben die Dementoren diesen Gedanken bereits aufgefressen -"
+"Du glaubst, du weißt, wie es ist?", sagte Lesath, seine Stimme hoch und zitternd. "_Du glaubst, du weißt es?_ Meine Eltern sind in Askaban, ich versuche nicht daran zu denken und sie erinnern mich immer daran, sie finden es _großartig_, dass Mutter dort in der Kälte und der Dunkelheit ist, mit den Dementoren, die ihr das Leben aussaugen, ich wünschte, ich wäre wie Harry Potter, wenigstens leiden seine Eltern nicht mehr. Ich wünschte, ich wäre wie du, wenigstens kannst du deine Eltern manchmal sehen. Wenigstens weißt du, dass sie dich geliebt haben. Wenn Mutter mich jemals geliebt hat, dann haben die Dementoren diesen Gedanken bereits aufgefressen -"
 
 Nevilles Augen waren groß vor Schreck. Damit hatte er nicht gerechnet.
 
 Lesath drehte sich zu Harry Potter um, dessen Augen voller Entsetzen waren.
 
-Lesath warf sich vor Harry Potter auf den Boden, berührte seine Stirn mit dem Boden und flüsterte: "Hilf mir, Herr. "
+Lesath warf sich vor Harry Potter auf den Boden, berührte den Boden mit seiner Stirn und flüsterte: "Hilf mir, Herr."
 
 Es herrschte eine furchtbare Stille. Neville fiel nichts ein und dem nackten Schock auf Harrys Gesicht nach zu urteilen, fiel ihm auch nichts ein.
 
-"Man sagt, du kannst alles tun, bitte, bitte mein Herr, holt meine Eltern aus Askaban, ich werde für immer dein treuer Diener sein, mein Leben wird dir gehören und mein Tod auch, nur bitte -"
+"Man sagt, du kannst alles tun. Bitte, bitte mein Herr, holt meine Eltern aus Askaban. Ich werde für immer dein treuer Diener sein, mein Leben wird dir gehören und mein Tod auch, nur bitte -"
 
-"Lesath", sagte Harry, seine Stimme brach, "Lesath, ich kann nicht, ich kann so etwas wirklich nicht tun, das sind alles nur dumme Tricks. "
+"Lesath", sagte Harry, seine Stimme brach, "Lesath, ich kann nicht, ich kann so etwas wirklich nicht tun, das sind alles nur dumme Tricks."
 
-"Es ist _nicht!_", sagte Lesath, seine Stimme hoch und verzweifelt. "Ich _habe_ es gesehen, die Geschichten sind wahr, du _kannst!_ "
+"Das stimmt _nicht!_", sagte Lesath, seine Stimme hoch und verzweifelt. "Ich habe es _gesehen_, die Geschichten sind wahr, du _kannst!_"
 
 Harry schluckte. "Lesath, ich habe die ganze Sache mit Neville eingefädelt, wir haben das alles im Voraus geplant, frag ihn!"
 
 Das hatten sie, obwohl Harry nicht gesagt hatte, _wie_ er irgendetwas davon tun würde...
 
-Als Lesath vom Boden aufblickte, war sein Gesicht grässlich und seine Stimme kam in einem Schrei heraus, der in Nevilles Ohren schmerzte. "_Du Sohn eines Schlammblüters! Du könntest sie rausholen, du tust es nur nicht! Ich bin auf die Knie gegangen und habe dich angefleht und du willst immer noch nicht helfen! Ich hätte es wissen müssen, du bist der Junge, der gelebt hat, du denkst, sie gehört dorthin!_ "
+Als Lesath vom Boden aufblickte, war sein Gesicht grässlich und seine Stimme kam in einem Schrei heraus, der in Nevilles Ohren schmerzte. "_Du Sohn eines Schlammblüters! Du könntest sie rausholen, du tust es nur nicht! Ich bin auf die Knie gegangen und habe dich angefleht und du willst immer noch nicht helfen! Ich hätte es wissen müssen, du bist der Junge-der-lebt, du denkst, sie gehört dorthin!_"
 
-"Ich _kann nicht!_"sagte Harry, seine Stimme so verzweifelt wie die von Lesath. "Es geht nicht darum, was ich will, ich habe nicht die _Macht!_"
+"Ich _kann nicht!_" sagte Harry, seine Stimme so verzweifelt wie die von Lesath. "Es geht nicht darum, was ich will, ich habe nicht die _Macht!_"
 
 Lesath stand auf und spuckte vor Harry auf den Boden, dann drehte er sich um und ging weg. Als er um die Ecke war, beschleunigte sich das Geräusch seiner Füße und als sie verklangen, glaubte Neville ein einzelnes Schluchzen zu hören.
 
@@ -530,23 +530,23 @@ Neville sah Harry an.
 
 Harry sah Neville an.
 
-"Wow", sagte Neville leise. "Er schien nicht sehr dankbar zu sein, dass er gerettet wurde. "
+"Wow", sagte Neville leise. "Er schien nicht sehr dankbar zu sein, dass er gerettet wurde."
 
-"Er dachte, ich könnte ihm helfen", sagte Harry mit heiserer Stimme. "Er hatte zum ersten Mal seit Jahren wieder Hoffnung. "
+"Er dachte, ich könnte ihm helfen", sagte Harry mit heiserer Stimme. "Er hatte zum ersten Mal seit Jahren wieder Hoffnung."
 
-Neville schluckte und sagte es dann. "Es tut mir leid. "
+Neville schluckte und sagte es dann. "Es tut mir leid."
 
 "Was?", sagte Harry und klang völlig verwirrt.
 
 "Ich war dir nicht dankbar, als du mir geholfen hast -"
 
-"Jede einzelne Sache, die du vorher gesagt hast, war völlig richtig", sagte der Junge-der-lebte.
+"Jede einzelne Sache, die du vorher gesagt hast, war völlig richtig", sagte der Junge-der-lebt.
 
-"Nein", sagte Neville, "das war es nicht. "
+"Nein", sagte Neville, "das war es nicht."
 
 Sie schenkten sich gleichzeitig ein kurzes, trauriges Lächeln, jeder herablassend zu dem anderen.
 
-"Ich weiß, dass das nicht echt war", sagte Neville, "ich weiß, ich hätte nichts tun können, wenn du nicht hier gewesen wärst, aber danke, dass ich so tun durfte. "
+"Ich weiß, dass das nicht echt war", sagte Neville, "ich weiß, ich hätte nichts tun können, wenn du nicht hier gewesen wärst, aber danke, dass ich so tun durfte."
 
 "Mach mal halblang", sagte Harry.
 
@@ -566,23 +566,23 @@ Ein paar Sekunden vergingen.
 
 "Musst du buchstäblich _alles_ tun, was man dich fragt?"
 
-Der Junge-der-lebte drehte sich um und sah Neville wieder an. "Nein. Fühlst du dich schuldig, es nicht zu tun? Ja. "
+Der Junge-der-lebt drehte sich um und sah Neville wieder an. "Nein. Fühle ich mich schuldig, es nicht zu tun? Ja."
 
 Neville hatte Schwierigkeiten, Worte zu finden. "Nach dem Tod des Dunklen Lords war Bellatrix Black buchstäblich die böseste Person auf der ganzen Welt und das war _bevor_ sie nach Askaban ging. Sie hat meine Mutter und meinen Vater in den Wahnsinn gefoltert, weil sie herausfinden wollte, was mit dem Dunklen Lord passiert ist -"
 
 "Ich weiß", sagte Harry leise. "Das verstehe ich, aber -"
 
-"Nein! Du _nicht_! Sie hatte einen _Grund_ dafür und meine Eltern waren beide Auroren! Das ist nicht einmal _nahe_ an das Schlimmste, was sie je getan hat!"Nevilles Stimme zitterte.
+"Nein! Tust Du _nicht_! Sie hatte einen _Grund_ dafür und meine Eltern waren beide Auroren! Das ist nicht einmal _beinahe_ an das Schlimmste, was sie je getan hat!" Nevilles Stimme zitterte.
 
-"Trotzdem", sagte der Junge-der-lebte, seine Augen starrten in die Ferne, an einen anderen Ort, den sich Neville nicht vorstellen konnte. "Es könnte eine unglaublich clevere Lösung geben, die es möglich macht, alle zu retten und sie alle glücklich bis ans Ende ihrer Tage leben zu lassen, und wenn ich nur schlau genug wäre, hätte ich schon längst daran gedacht -"
+"Trotzdem", sagte der Junge-der-lebt, seine Augen starrten in die Ferne, an einen anderen Ort, den sich Neville nicht vorstellen konnte. "Es könnte eine unglaublich clevere Lösung geben, die es möglich macht, alle zu retten und sie alle glücklich bis ans Ende ihrer Tage leben zu lassen, und wenn ich nur schlau genug wäre, hätte ich schon längst daran gedacht -"
 
-"Du hast Probleme", sagte Neville. "Du denkst, dass du das sein sollst, was Lesath Lestrange denkt, dass du es bist. "
+"Du hast Probleme", sagte Neville. "Du denkst, dass du das sein sollst, was Lesath Lestrange denkt, dass du es bist."
 
-"Ja", sagte der Junge-der-lebte, "das trifft es ziemlich genau. Jedes Mal, wenn jemand im Gebet schreit und ich nicht antworten kann, fühle ich mich schuldig, weil ich nicht Gott bin. "
+"Ja", sagte der Junge-der-lebt, "das trifft es ziemlich genau. Jedes Mal, wenn jemand im Gebet schreit und ich nicht antworten kann, fühle ich mich schuldig, weil ich nicht Gott bin."
 
-Neville hat das nicht ganz verstanden, aber... "Das hört sich nicht gut an. "
+Neville hatte das nicht ganz verstanden, aber... "Das hört sich nicht gut an."
 
-Harry seufzte. "Ich verstehe, dass ich ein Problem habe, und ich weiß, was ich tun muss, um es zu lösen, alles klar? Ich arbeite daran. "
+Harry seufzte. "Ich verstehe, dass ich ein Problem habe, und ich weiß, was ich tun muss, um es zu lösen, alles klar? Ich arbeite daran."
 
 * * *
 
@@ -598,7 +598,7 @@ Und dann war da noch einer.
 
 "Ähem", sagte Severus Snapes Stimme von direkt hinter ihm.
 
-Harry stieß einen kleinen Schrei aus und hasste sich augenblicklich.
+Harry stieß einen kleinen Schrei aus und hasste sich augenblicklich dafür.
 
 Langsam drehte sich Harry um.
 
@@ -608,19 +608,19 @@ Der große schmierige Mann in den gefleckten Roben lehnte an der Wand in der gle
 
 Oh, verdammter Mist.
 
-"Und vielleicht bin ich schon zu lange in Dumbledores Gesellschaft", sagte Severus, "aber ich komme nicht umhin, mich zu fragen, ob das _der_ Umhang der Unsichtbarkeit ist. "
+"Und vielleicht bin ich schon zu lange in Dumbledores Gesellschaft", sagte Severus, "aber ich komme nicht umhin, mich zu fragen, ob das _der_ Umhang der Unsichtbarkeit ist."
 
-Harry verwandelte sich sofort in jemanden, der noch nie etwas vom Tarnumhang gehört hatte und der _genau_ so schlau war, wie Harry dachte, dass Severus Harry für ihn hielt.
+Harry verwandelte sich sofort in jemanden, der noch nie etwas vom Tarnumhang gehört hatte und der _genau_ so schlau war, wie Harry dachte, dass Severus ihn hielt.
 
 "Oh, möglicherweise", sagte Harry. "Ich vertraue darauf, dass du dir über die Auswirkungen im Klaren bist, wenn es so ist?"
 
-Severus' Stimme war herablassend. "Du hast keine Ahnung, wovon ich rede, oder, Potter? Ein ziemlich ungeschickter Versuch zu fischen. "
+Severus' Stimme war herablassend. "Du hast keine Ahnung, wovon ich rede, oder, Potter? Ein ziemlich ungeschickter Versuch zu fischen."
 
-(Professor Quirrell hatte während ihres Mittagessens bemerkt, dass Harry seinen Gemütszustand wirklich besser verbergen müsse, als ein ausdrucksloses Gesicht aufzusetzen, wenn jemand ein gefährliches Thema besprach, und hatte über einstufige Täuschungen, zweistufige Täuschungen und so weiter erklärt. Entweder war Severus also tatsächlich ein Ein-Level-Spieler, was Severus selbst zu einem Zwei-Level-Spieler machte, und Harrys Drei-Level-Zug war erfolgreich gewesen; oder Severus war ein Vier-Level-Spieler und wollte, dass Harry _denkt_, die Täuschung sei erfolgreich gewesen. Harry hatte Professor Quirrell lächelnd gefragt, auf welcher Stufe _er_ spielte, und Professor Quirrell hatte, ebenfalls lächelnd, geantwortet: _Eine Stufe höher als du_ ).
+(Professor Quirrell hatte während ihres Mittagessens bemerkt, dass Harry seinen Gemütszustand wirklich besser verbergen müsse, als ein ausdrucksloses Gesicht aufzusetzen, wenn jemand ein gefährliches Thema besprach. Er hatte über einstufige Täuschungen, zweistufige Täuschungen und so weiter gesprochen. Entweder war Severus also tatsächlich ein Ein-Level-Spieler, was Severus selbst zu einem Zwei-Level-Spieler machte, und Harrys Drei-Level-Zug war erfolgreich gewesen; oder Severus war ein Vier-Level-Spieler und wollte, dass Harry _dachte_, die Täuschung sei erfolgreich gewesen. Harry hatte Professor Quirrell lächelnd gefragt, auf welcher Stufe _er_ spielte, und Professor Quirrell hatte, ebenfalls lächelnd, geantwortet: _Eine Stufe höher als du_).
 
-"Du hast also die ganze Zeit zugesehen", sagte Harry. "Desillusionierung", glaube ich, nennt man das. "
+"Du hast also die ganze Zeit zugesehen", sagte Harry. "Desillusionierung", glaube ich, nennt man das."
 
-Ein dünnes Lächeln. "Es wäre dumm von mir gewesen, auch nur das geringste Risiko einzugehen, dass du zu Schaden kommst. "
+Ein dünnes Lächeln. "Es wäre dumm von mir gewesen, auch nur das geringste Risiko einzugehen, dass du zu Schaden kommst."
 
 "Und du wolltest die Ergebnisse deines Tests aus erster Hand sehen", sagte Harry. "Also. Bin ich wie mein Vater?"
 
@@ -630,25 +630,25 @@ Severus hielt kurz inne.
 
 Er starrte Harry an.
 
-"Lestrange nannte dich einen Sohn eines Schlammbluts", sagte Severus langsam. "Es schien dich nicht sehr zu stören. "
+"Lestrange nannte dich einen Sohn eines Schlammbluts", sagte Severus langsam. "Es schien dich nicht sehr zu stören."
 
-Harry runzelte die Augenbrauen. "Nicht unter diesen Umständen, nein. "
+Harry runzelte die Augenbrauen. "Nicht unter diesen Umständen, nein."
 
-"Du hast ihm gerade geholfen", sagte Severus. Seine Augen waren auf Harry gerichtet. "Und er hat es dir ins Gesicht zurückgeworfen. Das ist doch sicher nichts, was du einfach so verzeihen würdest?"
+"Du hast ihm gerade geholfen", sagte Severus. Seine Augen waren auf Harry gerichtet. "Und er hat es Dich ins Gesicht beleidigt. Das ist doch sicher nichts, was du einfach so verzeihen würdest?"
 
-"Er hatte gerade eine ziemlich erschütternde Erfahrung hinter sich", sagte Harry. "Und ich glaube auch nicht, dass die Rettung durch die Erstklässler seinem Stolz sehr geholfen hat. "
+"Er hatte gerade eine ziemlich erschütternde Erfahrung hinter sich", sagte Harry. "Und ich glaube auch nicht, dass die Rettung durch die Erstklässler seinem Stolz sehr geholfen hat."
 
-"Ich nehme an, es war leicht genug zu verzeihen", sagte Severus und seine Stimme war seltsam, "da Lestrange dir nichts bedeutet. Nur ein seltsamer Slytherin. Wenn es ein Freund gewesen wäre, hättest du dich vielleicht viel mehr durch das, was er gesagt hat, verletzt gefühlt. "
+"Ich nehme an, es war leicht genug zu verzeihen", sagte Severus und seine Stimme war seltsam, "da Lestrange dir nichts bedeutet. Nur ein seltsamer Slytherin. Wenn es ein Freund gewesen wäre, hättest du dich vielleicht viel mehr durch das, was er gesagt hat, verletzt gefühlt."
 
-"Wenn er ein Freund wäre", sagte Harry, "umso mehr Grund, ihm zu verzeihen. "
+"Wenn er ein Freund wäre", sagte Harry, "umso mehr Grund, ihm zu verzeihen."
 
 Es herrschte eine lange Stille. Harry spürte, und er hätte nicht sagen können, warum oder woher, dass sich die Luft mit einer furchtbaren Spannung füllte, wie Wasser, das steigt und steigt und steigt.
 
 Dann lächelte Severus, sah plötzlich wieder entspannt aus und die ganze Anspannung verschwand.
 
-"Du bist ein sehr nachsichtiger Mensch", sagte Severus und lächelte immer noch. "Ich nehme an, dein Stiefvater, Michael Verres-Evans, war derjenige, der es dir beigebracht hat. "
+"Du bist ein sehr nachsichtiger Mensch", sagte Severus und lächelte immer noch. "Ich nehme an, dein Stiefvater, Michael Verres-Evans, war derjenige, der es dir beigebracht hat."
 
-"Eher Papas Science-Fiction- und Fantasy-Sammlung", sagte Harry. "Sozusagen mein fünftes Elternteil, wirklich. Ich habe das Leben all der Charaktere in all meinen Büchern gelebt, und all ihre mächtigen Weisheiten donnern in meinem Kopf. Irgendwo da drin war jemand wie Lesath, vermute ich, obwohl ich nicht sagen könnte, wer. Es war nicht schwer, mich in seine Lage zu versetzen. Und es waren auch meine Bücher, die mir sagten, was zu tun ist. Die guten Jungs verzeihen. "
+"Eher Papas Science-Fiction- und Fantasy-Sammlung", sagte Harry. "Sozusagen mein fünftes Elternteil, wirklich. Ich habe das Leben all der Charaktere in all meinen Büchern gelebt, und all ihre mächtigen Weisheiten donnern in meinem Kopf. Irgendwo da drin war jemand wie Lesath, vermute ich, obwohl ich nicht sagen könnte, wer. Es war nicht schwer, mich in seine Lage zu versetzen. Und es waren auch meine Bücher, die mir sagten, was zu tun ist. Die guten Jungs verzeihen."
 
 Severus gab ein leichtes, amüsiertes Lachen von sich. "Ich fürchte, ich wüsste nicht viel darüber, was gute Menschen tun."
 
