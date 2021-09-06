@@ -48,7 +48,7 @@ Sofort verwandelte sich die kleine getigerte Katze wieder in eine Frau im Gewand
 
 Harry atmete in kurzen Stößen. Seine Stimme kam erstickt heraus. "Das können Sie nicht!"
 
-"Es ist nur eine Verklärung", sagte Professor McGonagall. "Eine Animagus-Transformation, um genau zu sein."
+"Es ist nur eine Transformation", sagte Professor McGonagall. "Eine Animagus-Transformation, um genau zu sein."
 
 "Sie haben Sich in eine Katze verwandelt! Eine _KLEINE_ Katze! Sie haben gegen den Energieerhaltungssatz verstoßen! Das ist nicht nur eine willkürliche Regel, es folgt aus der Darstellung des Hamiltonoperators in der Quantenphysik! Ohne Energieerhaltung kommt es zu Inkonsistenzen und Informationsübertragung mit Überlichtgeschwindigkeit! Und Katzen sind _KOMPLIZIERT!_ Ein menschlicher Verstand kann sich nicht einfach die ganze Anatomie einer Katze vorstellen und, und die ganze Katzenbiochemie, und was ist mit der _Neurologie?_ Wie können Sie mit einem katzengroßen Gehirn überhaupt _denken_?"
 

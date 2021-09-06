@@ -355,7 +355,7 @@ Harry kannte keine Spreng-, Schneid- oder Zertrümmerungszauber und Sprengstoff 
 
 Aber das war kein Hindernis für einen _kreativen Denker_.
 
-Harry legte seinen Zauberstab an eines der Messingscharniere der Tür und konzentrierte sich auf die Form der Baumwolle als reine Abstraktion, abgesehen von jeglicher materieller Baumwolle, und auch auf das reine Material, abgesehen von dem Muster, das es zu einem Messingscharnier machte, und brachte die beiden Konzepte zusammen, indem er der Substanz die Form aufzwang. Eine Stunde Transfigurationstraining jeden Tag für einen Monat hatte Harry an den Punkt gebracht, an dem er einen Gegenstand von fünf Kubikzentimetern in knapp einer Minute verformen konnte.
+Harry legte seinen Zauberstab an eines der Messingscharniere der Tür und konzentrierte sich auf die Form der Baumwolle als reine Abstraktion, abgesehen von jeglicher materieller Baumwolle, und auch auf das reine Material, abgesehen von dem Muster, das es zu einem Messingscharnier machte, und brachte die beiden Konzepte zusammen, indem er der Substanz die Form aufzwang. Eine Stunde Transformationstraining jeden Tag für einen Monat hatte Harry an den Punkt gebracht, an dem er einen Gegenstand von fünf Kubikzentimetern in knapp einer Minute verformen konnte.
 
 Nach zwei Minuten hatte sich das Scharnier überhaupt nicht verändert.
 

@@ -1,6 +1,6 @@
 # Kapitel 32: Zwischenspiel: Persönliches Finanzmanagement.
 
-"Aber Mr. Direktor", argumentierte Harry, wobei etwas von seiner Verzweiflung in seine Stimme sickerte, "mein gesamtes Vermögen in einem undiversifizierten Tresor voller Goldmünzen zu lassen - das ist verrückt, Mr. Direktor! Das ist wie, ich weiß nicht, Experimente zur Verklärung durchzuführen, ohne eine anerkannte Autorität zu konsultieren! So etwas macht man einfach nicht mit Geld!"
+"Aber Mr. Direktor", argumentierte Harry, wobei etwas von seiner Verzweiflung in seine Stimme sickerte, "mein gesamtes Vermögen in einem undiversifizierten Tresor voller Goldmünzen zu lassen - das ist verrückt, Mr. Direktor! Das ist wie, ich weiß nicht, Experimente zur Transformation durchzuführen, ohne eine anerkannte Autorität zu konsultieren! So etwas macht man einfach nicht mit Geld!"
 
 Aus dem gezeichneten Gesicht des alten Zauberers - unter einem festlichen Feiertagshut wie eine katastrophale Autokollision zwischen Autos aus grünem und rotem Stoff - blickte ein ernster, trauriger Blick auf Harry.
 

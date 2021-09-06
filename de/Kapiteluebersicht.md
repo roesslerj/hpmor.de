@@ -16,7 +16,7 @@ Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier ein
 - [Kapitel 12](Kapitel-12.md): Professor Quirrell stellt sich vor.
 - [Kapitel 13](Kapitel-13.md): Harry spielt ein sehr merkwürdiges Spiel.
 - [Kapitel 14](Kapitel-14.md): Harry erhält einen Zeitumdreher.
-- [Kapitel 15](Kapitel-15.md): Harry Potter hat seine erste Stunde in Transfiguration.
+- [Kapitel 15](Kapitel-15.md): Harry Potter hat seine erste Stunde in Transformation.
 - [Kapitel 16](Kapitel-16.md): Professor Quirrell findet heraus, wer der gefährlichste Schüler in Hogwarts ist.
 - [Kapitel 17](Kapitel-17.md): Harry Potter hat seine erste Flugstunde und lernt Dumbledore persönlich kennen.
 - [Kapitel 18](Kapitel-18.md): Harry Potter legt sich mit Professor Snape an.

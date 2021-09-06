@@ -282,15 +282,15 @@ Die aufgeregte Stimme kam von einem Gemälde an der Wand, das nicht weit entfern
 
 "Ja! Ich will es!" Harry war sich bewusst, dass er seinen Sarkasmus wahrscheinlich unter Kontrolle halten sollte, aber er konnte sich einfach nicht zurückhalten.
 
-"Die Dunkelheit befindet sich zwischen den grünen Lernräumen und McGonagalls Transfigurationsklasse! Das ist der Hinweis! Und beeilt euch, ihr seid langsamer als ein Sack voller Schnecken! Minus 10 Punkte für deine Langsamkeit! Jetzt hast du 61 Punkte! Das war der Rest der Nachricht!".
+"Die Dunkelheit befindet sich zwischen den grünen Lernräumen und McGonagalls Transformationsklasse! Das ist der Hinweis! Und beeilt euch, ihr seid langsamer als ein Sack voller Schnecken! Minus 10 Punkte für deine Langsamkeit! Jetzt hast du 61 Punkte! Das war der Rest der Nachricht!".
 
 "Danke", sagte Harry. Er ist hier wirklich hinter das Spiel gekommen. "Ähm... Ich nehme nicht an, dass Sie wissen, woher die Nachricht _ursprünglich_ kam, oder?".
 
 "Es wurde von einer hohlen Stimme gesprochen, die aus einem Spalt in der Luft selbst hervorbrach, einem Spalt, der sich in einen feurigen Abgrund öffnete! Das ist es, was sie mir gesagt haben!".
 
-Harry war sich zu diesem Zeitpunkt nicht mehr sicher, ob er skeptisch sein sollte oder ob er die Sache einfach so hinnehmen sollte. "Und wie finde ich die Grenze zwischen den grünen Lernräumen und der Transfigurationsklasse?".
+Harry war sich zu diesem Zeitpunkt nicht mehr sicher, ob er skeptisch sein sollte oder ob er die Sache einfach so hinnehmen sollte. "Und wie finde ich die Grenze zwischen den grünen Lernräumen und der Transformationsklasse?".
 
-"Drehen Sie sich einfach um und gehen Sie nach links, rechts, unten, unten, rechts, links, rechts, oben und wieder links, dann sind Sie beim grünen Lernraum und wenn Sie hineingehen und auf der gegenüberliegenden Seite gerade herausgehen, sind Sie auf einem großen, kurvigen Korridor, der zu einer Kreuzung führt und auf der rechten Seite dieser Kreuzung ist ein langer, gerader Gang, der zum Klassenzimmer für Transfiguration führt!" Die Gestalt des Mannes mittleren Alters hielt inne. "Zumindest war es so, als _ich_ in Hogwarts war. Dies _ist_ ein Montag in einem ungeraden Jahr, nicht wahr?".
+"Drehen Sie sich einfach um und gehen Sie nach links, rechts, unten, unten, rechts, links, rechts, oben und wieder links, dann sind Sie beim grünen Lernraum und wenn Sie hineingehen und auf der gegenüberliegenden Seite gerade herausgehen, sind Sie auf einem großen, kurvigen Korridor, der zu einer Kreuzung führt und auf der rechten Seite dieser Kreuzung ist ein langer, gerader Gang, der zum Klassenzimmer für Transformation führt!" Die Gestalt des Mannes mittleren Alters hielt inne. "Zumindest war es so, als _ich_ in Hogwarts war. Dies _ist_ ein Montag in einem ungeraden Jahr, nicht wahr?".
 
 "Bleistift und Millimeterpapier", sagte Harry zu seiner Tasche. "Äh, streichen Sie das, Papier und Druckbleistift. " Er sah auf. "Könnten Sie das wiederholen?".
 
@@ -578,7 +578,7 @@ Harry starrte die letzte Zeile eine Weile an und zuckte dann mit den Schultern. 
 
 Okay, ehrlich gesagt, hatte Harry absolut keine Ahnung, wie er sich fühlen würde, wenn Professor McGonagall der Game Controller wäre. Sein Verstand war einfach völlig leer. Es war, buchstäblich, unvorstellbar.
 
-Ein paar Porträts später - es war kein langer Weg, Professor McGonagalls Büro war nicht weit von ihrem Klassenzimmer für Transfiguration entfernt, zumindest nicht montags in ungeraden Jahren - stand Harry vor der Tür zu ihrem Büro.
+Ein paar Porträts später - es war kein langer Weg, Professor McGonagalls Büro war nicht weit von ihrem Klassenzimmer für Transformation entfernt, zumindest nicht montags in ungeraden Jahren - stand Harry vor der Tür zu ihrem Büro.
 
 Er hat geklopft.
 

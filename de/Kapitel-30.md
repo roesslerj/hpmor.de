@@ -385,7 +385,7 @@ Harry vermutete, dass er von irgendjemandem einen Vortrag darüber bekommen wür
 
 Dann machte es in Harrys Kopf Klick und er schaute auf den Stahlring am kleinen Finger seiner linken Hand hinunter und fluchte fast laut, als er sah, dass der winzige Diamant fehlte und ein Marshmallow in der Nähe der Stelle, wo er gefallen war, auf dem Boden lag.
 
-Er hatte diese Verklärung siebzehn Tage lang durchgehalten und würde nun von vorne beginnen müssen.
+Er hatte diese Transformation siebzehn Tage lang durchgehalten und würde nun von vorne beginnen müssen.
 
 Es hätte schlimmer kommen können. Er hätte dies vierzehn Tage später tun können, _nach_ dem Professor McGonagall ihm die Erlaubnis gegeben hatte, den Felsen seines Vaters zu verwandeln. Das war eine sehr gute Lektion, um auf die einfache Art zu lernen.
 

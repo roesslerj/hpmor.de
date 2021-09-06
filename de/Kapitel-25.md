@@ -40,7 +40,7 @@ Wie auch immer deine Gene dich zu einem Zauberer gemacht haben, es war nicht, we
 
 Das war der andere Grund, warum Harry das Mendelsche Muster vermutet hatte. Wenn magische Gene nicht kompliziert wären, warum sollte es dann mehr als eines geben?
 
-Und doch schien die Magie selbst ziemlich kompliziert. Ein Türverriegelungszauber würde verhindern, dass sich die Tür öffnet _und_ dich daran hindern, die Scharniere zu verklären _und_ dem _Finite Incantatem_ und _Alohomora_ widerstehen. Viele Elemente, die alle in die gleiche Richtung zeigen: Man könnte das Zielorientierung nennen, oder einfacher ausgedrückt: Zielstrebigkeit.
+Und doch schien die Magie selbst ziemlich kompliziert. Ein Türverriegelungszauber würde verhindern, dass sich die Tür öffnet _und_ dich daran hindern, die Scharniere zu verwandeln _und_ dem _Finite Incantatem_ und _Alohomora_ widerstehen. Viele Elemente, die alle in die gleiche Richtung zeigen: Man könnte das Zielorientierung nennen, oder einfacher ausgedrückt: Zielstrebigkeit.
 
 Es gab nur zwei bekannte Ursachen für zielgerichtete Komplexität. Natürliche Auslese, die Dinge wie Schmetterlinge hervorgebracht hat. Und intelligente Technik, die Dinge wie Autos hervorgebracht hat.
 
@@ -82,7 +82,7 @@ Warum brauchte es mehr Anstrengung, um den Alohomora-Zauber zu wirken, wenn es d
 
 Wer war so dumm gewesen, einen Zauber für _Avada Kedavra_ einzubauen, der nur mit Hass gewirkt werden konnte?
 
-Warum erforderte die wortlose Verklärung, dass du eine vollständige mentale Trennung zwischen dem Konzept der Form und dem Konzept des Materials vornimmst?
+Warum erforderte die wortlose Transformation, dass du eine vollständige mentale Trennung zwischen dem Konzept der Form und dem Konzept des Materials vornimmst?
 
 Harry könnte mit diesem Problem noch nicht fertig sein, wenn er seinen Abschluss in Hogwarts macht. Er könnte immer noch an diesem Problem arbeiten, wenn er _dreißig Jahre alt ist. Hermine hatte Recht gehabt, das hatte Harry _nicht_ vorher aus dem Bauch heraus erkannt. Er hatte gerade eine inspirierende Rede über Entschlossenheit gehalten.
 

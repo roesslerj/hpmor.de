@@ -648,7 +648,7 @@ _Special Order Two: Wenn ein Sunny Traitor nicht wirklich auf dich zu schießen 
 
 _Special Order 3: Merlin sagt, dass du nicht auf Blaise Zabini oder einen der Patil-Zwillinge schießen sollst. _
 
-Mit einem breiten Grinsen streifte Parvati Patil den verklärten Aufnäher von den Insignien ihrer Uniform ab und ließ ihn im Wasser davon schwimmen.
+Mit einem breiten Grinsen streifte Parvati Patil den verwandelten Aufnäher von den Insignien ihrer Uniform ab und ließ ihn im Wasser davon schwimmen.
 
 "Gryffindors for Chaos", sagte sie und reichte Zabini seinen Zauberstab zurück.
 

@@ -46,33 +46,33 @@ _Es ist mir egal, ob es unlauterer Wettbewerb ist. Ich weiß genau, was ich mit 
 
 * * *.
 
-"Transfiguration gehört zu den komplexesten und gefährlichsten Zaubern, die du in Hogwarts lernen wirst", sagte Professor McGonagall. Es gab keine Spur von Leichtsinn auf dem Gesicht der strengen alten Hexe. "Wer in meiner Klasse herumalbert, geht und kommt nicht wieder. Du wurdest gewarnt."
+"Transformation gehört zu den komplexesten und gefährlichsten Zaubern, die du in Hogwarts lernen wirst", sagte Professor McGonagall. Es gab keine Spur von Leichtsinn auf dem Gesicht der strengen alten Hexe. "Wer in meiner Klasse herumalbert, geht und kommt nicht wieder. Du wurdest gewarnt."
 
 Ihr Zauberstab kam herunter und tippte auf ihren Schreibtisch, der sich sanft in ein Schwein umformte. Ein paar Muggelgeborene Schüler stießen einen kleinen Aufschrei aus. Das Schwein schaute sich um und schnaubte, schien verwirrt zu sein und wurde dann wieder zum Schreibtisch.
 
-Die Verklärungsprofessorin schaute sich im Klassenzimmer um, und dann blieb ihr Blick an einem Schüler hängen.
+Die Transformationsprofessorin schaute sich im Klassenzimmer um, und dann blieb ihr Blick an einem Schüler hängen.
 
-"Herr. Potter", sagte Professor McGonagall. "Du hast deine Schulbücher erst vor ein paar Tagen erhalten. Hast du schon angefangen, dein Verklärungslehrbuch zu lesen?".
+"Herr. Potter", sagte Professor McGonagall. "Du hast deine Schulbücher erst vor ein paar Tagen erhalten. Hast du schon angefangen, dein Transformationslehrbuch zu lesen?".
 
 "Nein, tut mir leid, Professor", sagte Harry.
 
-"Sie brauchen sich nicht zu entschuldigen, Herr. Potter, wenn du verpflichtet gewesen wärst, vorauszulesen, hätte man dir gesagt, dass du das tun sollst. " McGonagalls Finger klopften auf den Schreibtisch vor ihr. "Herr. Potter, möchtest du raten, ob dies ein Schreibtisch ist, den ich in ein Schwein verklärt habe, oder ob er als Schwein begann und ich die Verklärung kurz entfernt habe? Wenn du das erste Kapitel deines Lehrbuchs gelesen hättest, wüsstest du es."
+"Sie brauchen sich nicht zu entschuldigen, Herr. Potter, wenn du verpflichtet gewesen wärst, vorauszulesen, hätte man dir gesagt, dass du das tun sollst. " McGonagalls Finger klopften auf den Schreibtisch vor ihr. "Herr. Potter, möchtest du raten, ob dies ein Schreibtisch ist, den ich in ein Schwein verwandelt habe, oder ob er als Schwein begann und ich die Transformation kurz entfernt habe? Wenn du das erste Kapitel deines Lehrbuchs gelesen hättest, wüsstest du es."
 
 Harrys Augenbrauen zogen sich leicht zusammen. "Ich denke, es wäre einfacher, mit einem Schwein anzufangen, denn wenn es als Schreibtisch anfängt, weiß es vielleicht nicht, wie man aufsteht."
 
-Professor McGonagall schüttelte den Kopf. "Kein Vorwurf an Sie, Herr. Potter, aber die richtige Antwort ist, dass man in Verklärung _nicht_ raten muss. Falsche Antworten werden mit extremer Strenge bewertet, Fragen, die nicht beantwortet werden, werden mit großer Nachsicht bewertet. Du musst lernen zu wissen, was du nicht weißt. Wenn ich dir eine Frage stelle, egal wie offensichtlich oder elementar, und du antwortest "Ich bin mir nicht sicher", werde ich es dir nicht übel nehmen und jeder, der lacht, wird Hauspunkte verlieren. Kannst du mir sagen, warum diese Regel existiert, Herr. Potter?".
+Professor McGonagall schüttelte den Kopf. "Kein Vorwurf an Sie, Herr. Potter, aber die richtige Antwort ist, dass man in Transformation _nicht_ raten muss. Falsche Antworten werden mit extremer Strenge bewertet, Fragen, die nicht beantwortet werden, werden mit großer Nachsicht bewertet. Du musst lernen zu wissen, was du nicht weißt. Wenn ich dir eine Frage stelle, egal wie offensichtlich oder elementar, und du antwortest "Ich bin mir nicht sicher", werde ich es dir nicht übel nehmen und jeder, der lacht, wird Hauspunkte verlieren. Kannst du mir sagen, warum diese Regel existiert, Herr. Potter?".
 
-Denn ein einziger Fehler in der Verklärung kann unglaublich gefährlich sein. _ "Nein."
+Denn ein einziger Fehler in der Transformation kann unglaublich gefährlich sein. _ "Nein."
 
-"Korrekt. Verklärung ist gefährlicher als Erscheinung, die erst im sechsten Jahr gelehrt wird. Leider muss Transfiguration schon in jungen Jahren erlernt und geübt werden, um deine Fähigkeiten im Erwachsenenalter zu maximieren. Das ist also ein gefährliches Thema und du solltest ziemlich Angst davor haben, irgendwelche Fehler zu machen, denn keiner meiner Schüler hat sich jemals dauerhaft verletzt und ich werde _extrem verärgert sein_, wenn du die erste Klasse bist, die meinen Rekord _verschmutzt_."
+"Korrekt. Transformation ist gefährlicher als Erscheinung, die erst im sechsten Jahr gelehrt wird. Leider muss Transformation schon in jungen Jahren erlernt und geübt werden, um deine Fähigkeiten im Erwachsenenalter zu maximieren. Das ist also ein gefährliches Thema und du solltest ziemlich Angst davor haben, irgendwelche Fehler zu machen, denn keiner meiner Schüler hat sich jemals dauerhaft verletzt und ich werde _extrem verärgert sein_, wenn du die erste Klasse bist, die meinen Rekord _verschmutzt_."
 
 Mehrere Schüler schluckten.
 
-Professor McGonagall stand auf und ging hinüber zur Wand hinter ihrem Schreibtisch, an der eine polierte Holztafel stand. "Es gibt viele Gründe, warum Verklärung gefährlich ist, aber ein Grund steht über all dem Rest. " Sie holte einen kurzen Federkiel mit einem dicken Ende hervor und skizzierte damit Buchstaben in Rot, die sie dann mit demselben Stift in Blau unterstrich:.
+Professor McGonagall stand auf und ging hinüber zur Wand hinter ihrem Schreibtisch, an der eine polierte Holztafel stand. "Es gibt viele Gründe, warum Transformation gefährlich ist, aber ein Grund steht über all dem Rest. " Sie holte einen kurzen Federkiel mit einem dicken Ende hervor und skizzierte damit Buchstaben in Rot, die sie dann mit demselben Stift in Blau unterstrich:.
 
-VERKLÄRUNG IST NICHT DAUERHAFT!.
+Transformation IST NICHT DAUERHAFT!.
 
-"Transfiguration ist nicht dauerhaft!", sagte Professor McGonagall. "Verklärung ist nicht von Dauer! Verklärung ist nicht von Dauer! Herr. Potter, nimm an, dass ein Schüler einen Holzklotz in eine Tasse Wasser verwandelt hat, und du hast ihn getrunken. Was stellst du dir vor, was mit dir passieren könnte, wenn die Verklärung nachlässt?" Es gab eine Pause. "Entschuldigung, das hätte ich nicht von Ihnen verlangen sollen, Herr. Potter, ich habe vergessen, dass du mit einer ungewöhnlich pessimistischen Fantasie gesegnet bist."
+"Transformation ist nicht dauerhaft!", sagte Professor McGonagall. "Transformation ist nicht von Dauer! Transformation ist nicht von Dauer! Herr. Potter, nimm an, dass ein Schüler einen Holzklotz in eine Tasse Wasser verwandelt hat, und du hast ihn getrunken. Was stellst du dir vor, was mit dir passieren könnte, wenn die Transformation nachlässt?" Es gab eine Pause. "Entschuldigung, das hätte ich nicht von Ihnen verlangen sollen, Herr. Potter, ich habe vergessen, dass du mit einer ungewöhnlich pessimistischen Fantasie gesegnet bist."
 
 "Mir geht es gut", sagte Harry und schluckte schwer. "Also die erste Antwort ist, dass ich es nicht _weiß_", nickte der Professor zustimmend, "aber ich _vorstelle_ mir, dass es so sein könnte... Holz in meinem Magen und in meinem Blutkreislauf, und wenn irgendetwas von diesem Wasser in das Gewebe meines Körpers aufgenommen worden wäre - wäre es Holzbrei oder festes Holz oder... " Harrys Verständnis für Magie ließ ihn im Stich. Er konnte nicht verstehen, wie sich Holz überhaupt in Wasser verwandeln konnte, also konnte er auch nicht verstehen, was passieren würde, nachdem die Wassermoleküle durch gewöhnliche thermische Bewegungen durcheinandergewirbelt wurden und die Magie nachließ und sich die Verwandlung umkehrte.
 
@@ -82,11 +82,11 @@ Auch ohne Ton im bewegten Bild konnte man erkennen, dass die Frau mit schrecklic
 
 "Der Verbrecher, der ursprünglich Gold in Wein verwandelte und ihn dieser Frau zu trinken gab, 'zur Begleichung der Schuld', wie er es ausdrückte, erhielt eine Strafe von zehn Jahren in Askaban. Bitte blättere auf Seite 6. Das ist ein Dementor. Sie sind die Wächter von Askaban. Sie saugen deine Magie aus, dein Leben und jeden glücklichen Gedanken, den du versuchst zu haben. Das Bild auf Seite 7 zeigt den Verbrecher zehn Jahre später, bei seiner Entlassung. Du wirst feststellen, dass er tot ist - ja, Herr. Potter?".
 
-"Professor", sagte Harry, "wenn das Schlimmste in einem solchen Fall passiert, gibt es eine Möglichkeit, die Verklärung _aufrechtzuerhalten_?".
+"Professor", sagte Harry, "wenn das Schlimmste in einem solchen Fall passiert, gibt es eine Möglichkeit, die Transformation _aufrechtzuerhalten_?".
 
-"Nein", sagte Professor McGonagall mit Nachdruck. "Eine Transfiguration aufrechtzuerhalten ist ein konstanter Drain für deine Magie, der mit der Größe der Zielform skaliert. Und du müsstest das Ziel alle paar Stunden neu kontaktieren, was in einem Fall wie diesem unmöglich ist. Katastrophen wie diese sind _unwiederbringlich!_ ".
+"Nein", sagte Professor McGonagall mit Nachdruck. "Eine Transformation aufrechtzuerhalten ist ein konstanter Drain für deine Magie, der mit der Größe der Zielform skaliert. Und du müsstest das Ziel alle paar Stunden neu kontaktieren, was in einem Fall wie diesem unmöglich ist. Katastrophen wie diese sind _unwiederbringlich!_ ".
 
-Professor McGonagall lehnte sich nach vorne, ihr Gesicht sehr hart. "Du wirst unter keinen Umständen etwas in eine Flüssigkeit oder ein Gas verklären. Kein Wasser, keine Luft. Nichts wie Wasser, nichts wie Luft. Auch wenn es nicht zum Trinken gedacht ist. Flüssigkeit _verdunstet, _ kleine Teile davon gelangen in die Luft. Du wirst nichts verklären, was verbrannt werden soll. Es wird Rauch erzeugen und jemand könnte diesen Rauch einatmen! Du wirst niemals etwas verklären, das auf irgendeine Art und Weise in den Körper eines Menschen gelangen könnte. Kein Essen. Nichts, was nach Essen _ausschaut_. Nicht einmal als lustiger kleiner Streich, bei dem du meinst, ihnen von deinem Schlammkuchen zu erzählen, bevor sie ihn tatsächlich essen. Du wirst es nie tun. Punkt. In diesem Klassenzimmer oder außerhalb davon oder _überall. Wird das von _jedem einzelnen Schüler gut verstanden?_ ".
+Professor McGonagall lehnte sich nach vorne, ihr Gesicht sehr hart. "Du wirst unter keinen Umständen etwas in eine Flüssigkeit oder ein Gas verwandeln. Kein Wasser, keine Luft. Nichts wie Wasser, nichts wie Luft. Auch wenn es nicht zum Trinken gedacht ist. Flüssigkeit _verdunstet, _ kleine Teile davon gelangen in die Luft. Du wirst nichts verwandeln, was verbrannt werden soll. Es wird Rauch erzeugen und jemand könnte diesen Rauch einatmen! Du wirst niemals etwas verwandeln, das auf irgendeine Art und Weise in den Körper eines Menschen gelangen könnte. Kein Essen. Nichts, was nach Essen _aussieht_. Nicht einmal als lustiger kleiner Streich, bei dem du meinst, ihnen von deinem Schlammkuchen zu erzählen, bevor sie ihn tatsächlich essen. Du wirst es nie tun. Punkt. In diesem Klassenzimmer oder außerhalb davon oder _überall. Wird das von _jedem einzelnen Schüler gut verstanden?_ ".
 
 "Ja", sagten Harry, Hermine und ein paar andere. Die anderen schienen sprachlos zu sein.
 
@@ -94,31 +94,31 @@ Professor McGonagall lehnte sich nach vorne, ihr Gesicht sehr hart. "Du wirst un
 
 "Ja", sagten sie oder murmelten oder flüsterten.
 
-"Wenn du eine dieser Regeln brichst, wirst du während deines Aufenthalts in Hogwarts nicht weiter Transfiguration lernen. Wiederhole es mit mir. Ich werde niemals etwas in eine Flüssigkeit oder ein Gas verwandeln."
+"Wenn du eine dieser Regeln brichst, wirst du während deines Aufenthalts in Hogwarts nicht weiter Transformation lernen. Wiederhole es mit mir. Ich werde niemals etwas in eine Flüssigkeit oder ein Gas verwandeln."
 
-"Ich werde niemals etwas in eine Flüssigkeit oder ein Gas verklären", sagten die Schüler in einem zackigen Refrain.
+"Ich werde niemals etwas in eine Flüssigkeit oder ein Gas verwandeln", sagten die Schüler in einem zackigen Refrain.
 
 "Nochmal! Lauter! Ich werde niemals etwas in eine Flüssigkeit oder ein Gas verwandeln."
 
 "Ich werde niemals etwas in eine Flüssigkeit oder ein Gas verwandeln."
 
-"Ich werde niemals irgendetwas verklären, das wie Essen aussieht oder irgendetwas anderes, das in einen menschlichen Körper geht."
+"Ich werde niemals irgendetwas verwandeln, das wie Essen aussieht oder irgendetwas anderes, das in einen menschlichen Körper geht."
 
-"Ich werde niemals etwas verklären, das verbrannt werden soll, weil es Rauch erzeugen könnte."
+"Ich werde niemals etwas verwandeln, das verbrannt werden soll, weil es Rauch erzeugen könnte."
 
-"Du wirst niemals etwas verklären, das wie Geld aussieht, auch nicht Muggelgeld", sagte Professor McGonagall. "Die Goblins haben Möglichkeiten herauszufinden, wer es getan hat. Nach anerkanntem Recht befindet sich die Goblin-Nation in einem permanenten _Kriegszustand_ mit allen magischen Fälschern. Sie werden keine Auroren schicken. Sie werden eine Armee schicken."
+"Du wirst niemals etwas verwandeln, das wie Geld aussieht, auch nicht Muggelgeld", sagte Professor McGonagall. "Die Goblins haben Möglichkeiten herauszufinden, wer es getan hat. Nach anerkanntem Recht befindet sich die Goblin-Nation in einem permanenten _Kriegszustand_ mit allen magischen Fälschern. Sie werden keine Auroren schicken. Sie werden eine Armee schicken."
 
-"Ich werde niemals etwas verklären, das wie Geld aussieht", wiederholten die Schüler.
+"Ich werde niemals etwas verwandeln, das wie Geld aussieht", wiederholten die Schüler.
 
-"Und _vor allem_", sagte Professor McGonagall, "wirst du kein lebendes Subjekt verklären, _besonders nicht dich selbst. Es wird dich sehr krank machen und möglicherweise tot, abhängig davon, wie du dich verformst und wie lange du die Veränderung aufrechterhältst. " Professor McGonagall hielt inne. "Herr. Potter hält gerade seine Hand hoch, weil er eine Animagus-Verwandlung gesehen hat - genauer gesagt, einen Menschen, der sich in eine Katze verwandelt und wieder zurück. Aber eine Animagus-Transformation ist keine _freie_ Verklärung."
+"Und _vor allem_", sagte Professor McGonagall, "wirst du kein lebendes Subjekt verwandeln, _besonders nicht dich selbst. Es wird dich sehr krank machen und möglicherweise tot, abhängig davon, wie du dich verformst und wie lange du die Veränderung aufrechterhältst. " Professor McGonagall hielt inne. "Herr. Potter hält gerade seine Hand hoch, weil er eine Animagus-Verwandlung gesehen hat - genauer gesagt, einen Menschen, der sich in eine Katze verwandelt und wieder zurück. Aber eine Animagus-Transformation ist keine _freie_ Transformation."
 
-Professor McGonagall holte einen kleinen Holzklotz aus ihrer Tasche. Mit einem Schlag ihres Zauberstabs wurde sie zu einer Glaskugel. Dann sagte sie "_Crystferrium!_" und die Glaskugel wurde zu einer Stahlkugel. Sie klopfte ein letztes Mal mit ihrem Zauberstab darauf und die Stahlkugel wurde wieder zu einem Stück Holz. "_Crystferrium_ verwandelt einen Gegenstand aus massivem Glas in ein ähnlich geformtes Ziel aus massivem Stahl. Es kann weder das Gegenteil tun, noch kann es einen Schreibtisch in ein Schwein verwandeln. Die allgemeinste Form der Transfiguration - die freie Transfiguration, die du hier lernen wirst - ist in der Lage, jeden Gegenstand in jedes Ziel zu verwandeln, zumindest was die physische Form betrifft. Aus diesem Grund muss die freie Verklärung wortlos erfolgen. Die Verwendung von Charms würde verschiedene Wörter für jede unterschiedliche Transformation zwischen Subjekt und Ziel erfordern."
+Professor McGonagall holte einen kleinen Holzklotz aus ihrer Tasche. Mit einem Schlag ihres Zauberstabs wurde sie zu einer Glaskugel. Dann sagte sie "_Crystferrium!_" und die Glaskugel wurde zu einer Stahlkugel. Sie klopfte ein letztes Mal mit ihrem Zauberstab darauf und die Stahlkugel wurde wieder zu einem Stück Holz. "_Crystferrium_ verwandelt einen Gegenstand aus massivem Glas in ein ähnlich geformtes Ziel aus massivem Stahl. Es kann weder das Gegenteil tun, noch kann es einen Schreibtisch in ein Schwein verwandeln. Die allgemeinste Form der Transformation - die freie Transformation, die du hier lernen wirst - ist in der Lage, jeden Gegenstand in jedes Ziel zu verwandeln, zumindest was die physische Form betrifft. Aus diesem Grund muss die freie Transformation wortlos erfolgen. Die Verwendung von Charms würde verschiedene Wörter für jede unterschiedliche Transformation zwischen Subjekt und Ziel erfordern."
 
-Professor McGonagall warf ihren Schülern einen scharfen Blick zu. "_Einige_ Lehrer beginnen mit Verklärungszaubern und gehen danach zu freier Verklärung über. Ja, das wäre am Anfang viel einfacher. Aber es kann dich in eine schlechte Form bringen, die deine Fähigkeiten später beeinträchtigt. Hier lernst du die freie Transfiguration von Anfang an, die erfordert, dass du den Zauber wortlos sprichst, indem du die Subjektform, die Zielform und die Transformation in deinem eigenen Geist hältst."
+Professor McGonagall warf ihren Schülern einen scharfen Blick zu. "_Einige_ Lehrer beginnen mit Transformationszaubern und gehen danach zu freier Transformation über. Ja, das wäre am Anfang viel einfacher. Aber es kann dich in eine schlechte Form bringen, die deine Fähigkeiten später beeinträchtigt. Hier lernst du die freie Transformation von Anfang an, die erfordert, dass du den Zauber wortlos sprichst, indem du die Subjektform, die Zielform und die Transformation in deinem eigenen Geist hältst."
 
-"Und als Antwort auf Mr. Potters Frage", fuhr Professor McGonagall fort, "es ist _freie_ Verklärung, die du niemals an einem lebenden Subjekt vornehmen darfst. Es gibt Charms und Tränke, die lebende Subjekte auf _begrenzte_ Art und Weise sicher und reversibel transformieren können. Ein Animagus mit einer fehlenden Gliedmaße wird zum Beispiel nach der Verwandlung immer noch ohne diese Gliedmaße sein. Freie Verklärung ist _nicht_ sicher. Dein Körper wird sich verändern, während er verklärt wird - das Atmen zum Beispiel führt zu einem ständigen Verlust von Stoffen des Körpers an die umgebende Luft. Wenn die Verklärung nachlässt und dein Körper versucht, in seine _ursprüngliche_ Form zurückzukehren, wird er nicht ganz in der Lage sein, dies zu tun. Wenn du deinen Zauberstab an deinen Körper drückst und dir vorstellst, dass du goldenes Haar hast, werden deine Haare danach ausfallen. Wenn du dich als jemand mit reinerer Haut vorstellst, wirst du einen langen Aufenthalt in St. Mungos. Und wenn du dich in eine erwachsene körperliche Form verwandelst, dann wirst du, wenn die Verklärung nachlässt, sterben."
+"Und als Antwort auf Mr. Potters Frage", fuhr Professor McGonagall fort, "es ist _freie_ Transformation, die du niemals an einem lebenden Subjekt vornehmen darfst. Es gibt Charms und Tränke, die lebende Subjekte auf _begrenzte_ Art und Weise sicher und reversibel transformieren können. Ein Animagus mit einer fehlenden Gliedmaße wird zum Beispiel nach der Verwandlung immer noch ohne diese Gliedmaße sein. Freie Transformation ist _nicht_ sicher. Dein Körper wird sich verändern, während er verwandelt wird - das Atmen zum Beispiel führt zu einem ständigen Verlust von Stoffen des Körpers an die umgebende Luft. Wenn die Transformation nachlässt und dein Körper versucht, in seine _ursprüngliche_ Form zurückzukehren, wird er nicht ganz in der Lage sein, dies zu tun. Wenn du deinen Zauberstab an deinen Körper drückst und dir vorstellst, dass du goldenes Haar hast, werden deine Haare danach ausfallen. Wenn du dich als jemand mit reinerer Haut vorstellst, wirst du einen langen Aufenthalt in St. Mungos. Und wenn du dich in eine erwachsene körperliche Form verwandelst, dann wirst du, wenn die Transformation nachlässt, sterben."
 
-Das erklärte, warum er solche Dinge wie dicke Jungen oder weniger hübsche Mädchen gesehen hatte. Oder alte Menschen, was das angeht. Das würde nicht passieren, wenn du dich einfach jeden Morgen verklären könntest... Harry hob seine Hand und versuchte, Professor McGonagall mit seinen Augen zu signalisieren.
+Das erklärte, warum er solche Dinge wie dicke Jungen oder weniger hübsche Mädchen gesehen hatte. Oder alte Menschen, was das angeht. Das würde nicht passieren, wenn du dich einfach jeden Morgen verwandeln könntest... Harry hob seine Hand und versuchte, Professor McGonagall mit seinen Augen zu signalisieren.
 
 "_Ja_, Herr. Potter?".
 
@@ -134,13 +134,13 @@ Professor McGonagall schüttelte den Kopf. "Herr. Töpfer, auch unbelebte Objekt
 
 "Sprich mir jetzt nach", sagte Professor McGonagall. "Ich werde niemals versuchen, ein lebendes Subjekt zu verformen, vor allem nicht mich selbst, es sei denn, ich werde ausdrücklich mit einem speziellen Zauber oder Zaubertrank dazu angewiesen."
 
-"Wenn ich mir nicht sicher bin, ob eine Transfiguration sicher ist, werde ich sie nicht ausprobieren, bis ich Professor McGonagall oder Professor Flitwick oder Professor Snape oder den Schulleiter gefragt habe, die die einzigen anerkannten Autoritäten für Transfiguration in Hogwarts sind. Einen anderen Schüler zu fragen ist _nicht_ akzeptabel, auch wenn dieser sagt, dass er sich daran erinnert, die gleiche Frage gestellt zu haben."
+"Wenn ich mir nicht sicher bin, ob eine Transformation sicher ist, werde ich sie nicht ausprobieren, bis ich Professor McGonagall oder Professor Flitwick oder Professor Snape oder den Schulleiter gefragt habe, die die einzigen anerkannten Autoritäten für Transformation in Hogwarts sind. Einen anderen Schüler zu fragen ist _nicht_ akzeptabel, auch wenn dieser sagt, dass er sich daran erinnert, die gleiche Frage gestellt zu haben."
 
-"Selbst wenn der derzeitige Verteidigungsprofessor in Hogwarts mir sagt, dass eine Transfiguration sicher ist, und selbst wenn ich sehe, wie der Verteidigungsprofessor es macht und nichts Schlimmes zu passieren scheint, werde ich es nicht selbst versuchen."
+"Selbst wenn der derzeitige Verteidigungsprofessor in Hogwarts mir sagt, dass eine Transformation sicher ist, und selbst wenn ich sehe, wie der Verteidigungsprofessor es macht und nichts Schlimmes zu passieren scheint, werde ich es nicht selbst versuchen."
 
-"Ich habe das absolute Recht, mich zu weigern, eine Verklärung durchzuführen, bei der ich auch nur das kleinste bisschen nervös bin. Da nicht einmal der Schulleiter von Hogwarts mir befehlen kann, etwas anderes zu tun, werde ich sicherlich keinen solchen Befehl des Verteidigungsprofessors akzeptieren, selbst wenn der Verteidigungsprofessor damit droht, mir hundert Hauspunkte abzuziehen und mich des Hauses verweisen zu lassen."
+"Ich habe das absolute Recht, mich zu weigern, eine Transformation durchzuführen, bei der ich auch nur das kleinste bisschen nervös bin. Da nicht einmal der Schulleiter von Hogwarts mir befehlen kann, etwas anderes zu tun, werde ich sicherlich keinen solchen Befehl des Verteidigungsprofessors akzeptieren, selbst wenn der Verteidigungsprofessor damit droht, mir hundert Hauspunkte abzuziehen und mich des Hauses verweisen zu lassen."
 
-"Wenn ich eine dieser Regeln breche, werde ich während meiner Zeit in Hogwarts nicht weiter Transfiguration studieren."
+"Wenn ich eine dieser Regeln breche, werde ich während meiner Zeit in Hogwarts nicht weiter Transformation studieren."
 
 "Wir werden diese Regeln den ersten Monat lang zu Beginn jeder Klasse wiederholen", sagte Professor McGonagall. "Und jetzt werden wir mit Streichhölzern als Subjekt und Nadeln als Ziel beginnen... Legt eure Zauberstäbe weg, danke. Mit "beginnen" meinte ich, dass ihr anfangen werdet, Notizen zu machen."
 
@@ -152,7 +152,7 @@ Professor McGonagall vergab ihr einen weiteren Punkt für Ravenclaw.
 
 * * *.
 
-Nachdem die Transfigurationsklasse entlassen wurde, kam Hermine zu Harrys Schreibtisch, während Harry seine Bücher in seine Tasche einräumte.
+Nachdem die Transformationsklasse entlassen wurde, kam Hermine zu Harrys Schreibtisch, während Harry seine Bücher in seine Tasche einräumte.
 
 "Weißt du", sagte Hermine mit einem unschuldigen Gesichtsausdruck, "ich habe heute zwei Punkte für Ravenclaw verdient."
 
@@ -200,7 +200,7 @@ Harry und Hermine drehten sich im unausgesprochenen gegenseitigen Einverständni
 
 "Na, danke. Und lass mich sagen, so brillant wie du jetzt schon bist, kann ich nicht anders, als mich zu fragen, wie du sein wirst, wenn du erst einmal ein elementares Training in Rationalität hast."
 
-"Ist es wirklich so nützlich? Es scheint dir nicht bei Zauberei oder Verklärung zu helfen."
+"Ist es wirklich so nützlich? Es scheint dir nicht bei Zauberei oder Transformation zu helfen."
 
 Es gab eine kleine Pause.
 
