@@ -196,7 +196,7 @@ Rons Gesicht verzog sich zu einem finsteren Ausdruck. "Wenn du Quidditch nicht m
 
 "Sie werden das Spiel nicht ändern, nur weil _du_ es sagst!"
 
-"Ich _bin_ der Junge-der-lebte, weißt du. Die Leute werden mir zuhören. Und vielleicht, wenn ich sie dazu überreden kann, das Spiel in Hogwarts zu ändern, wird sich die Innovation verbreiten."
+"Ich _bin_ der Junge-der-lebt, weißt du. Die Leute werden mir zuhören. Und vielleicht, wenn ich sie dazu überreden kann, das Spiel in Hogwarts zu ändern, wird sich die Innovation verbreiten."
 
 Ein Blick des absoluten Entsetzens breitete sich auf Rons Gesicht aus. "Aber, aber wenn du den Schnatz loswirst, wie soll dann jemand wissen, wann das Spiel endet?"
 
@@ -486,11 +486,11 @@ Ein kalter Schauer überkam Harry, ein Schauer, der mit der Anweisung kam, seine
 
 Harry hustete erneut, um sich zu räuspern. "Draco, bitte _bitte_ versteh das nicht falsch, mein Wort gilt, aber wie du gesagt hast, ich könnte in Slytherin sein und ich möchte wirklich zu Informationszwecken fragen, also was würde _theoretisch gesehen_ passieren, wenn ich aussagen würde, dass ich gehört habe, dass du es geplant hast?"
 
-"Wenn ich jemand anderes als ein Malfoy wäre, hätte ich ein Problem", antwortete Draco süffisant. "Da ich _ein_ Malfoy bin... Vater hat die Stimmen. Und danach würde er dich zerquetschen... Nun, ich schätze, das ist nicht leicht, da du der Junge-der-lebte bist, aber Vater ist ziemlich gut in solchen Dingen. "Draco runzelte die Stirn. "'Sides, _you_ talked about murdering her, why were you not worried about _me_ testifying after she turns up dead?"
+"Wenn ich jemand anderes als ein Malfoy wäre, hätte ich ein Problem", antwortete Draco süffisant. "Da ich _ein_ Malfoy bin... Vater hat die Stimmen. Und danach würde er dich zerquetschen... Nun, ich schätze, das ist nicht leicht, da du der Junge-der-lebt bist, aber Vater ist ziemlich gut in solchen Dingen. "Draco runzelte die Stirn. "'Sides, _you_ talked about murdering her, why were you not worried about _me_ testifying after she turns up dead?"
 
 Wie, oh wie konnte mein Tag nur so schief gehen? Harrys Mund bewegte sich bereits schneller als er denken konnte. "Da dachte ich, dass sie _älter ist!_ Ich weiß nicht, wie es _hier_ funktioniert, aber in Muggelbritannien würden sich die Gerichte viel mehr darüber aufregen, wenn jemand ein Kind tötet -"
 
-"Das macht Sinn", sagte Draco, der immer noch ein wenig misstrauisch dreinschaute. "Aber trotzdem ist es immer schlauer, wenn es gar nicht zu den Auroren geht. Wenn wir darauf achten, nur Dinge zu tun, die mit Heilzaubern repariert werden können, können wir sie danach einfach Obliviate machen und das Ganze nächste Woche wiederholen. "Dann kicherte der blondhaarige Junge, ein jugendlich hoher Ton. "Obwohl, stell dir vor, sie würde sagen, dass sie von Draco Malfoy _und_ dem Jungen-der-lebte gemacht wurde, nicht einmal _Dumbledore_ würde ihr glauben."
+"Das macht Sinn", sagte Draco, der immer noch ein wenig misstrauisch dreinschaute. "Aber trotzdem ist es immer schlauer, wenn es gar nicht zu den Auroren geht. Wenn wir darauf achten, nur Dinge zu tun, die mit Heilzaubern repariert werden können, können wir sie danach einfach Obliviate machen und das Ganze nächste Woche wiederholen. "Dann kicherte der blondhaarige Junge, ein jugendlich hoher Ton. "Obwohl, stell dir vor, sie würde sagen, dass sie von Draco Malfoy _und_ dem Jungen-der-lebt gemacht wurde, nicht einmal _Dumbledore_ würde ihr glauben."
 
 Ich werde dein armseliges kleines magisches Überbleibsel des dunklen Zeitalters in Stücke zerreißen, die kleiner sind als die Atome, aus denen es besteht. "_Eigentlich, können wir damit noch warten? Nachdem ich herausgefunden hatte, dass die Schlagzeile von einem Mädchen kam, das ein Jahr jünger war als ich, hatte ich einen anderen Gedanken für meine Rache."
 

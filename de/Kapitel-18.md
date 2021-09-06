@@ -666,7 +666,7 @@ Minerva schwieg für einige Momente. Sie war zauberte.
 
 Als sie fertig war und aufblickte, wusste sie, dass ihr Gesicht streng war. Vielleicht war es das Falsche, das zu tun. Und dann wiederum war es vielleicht das Richtige, das zu tun. Sie hatte ein eigensinniges Kind vor sich, und das bedeutete nicht, dass das Universum kaputt war.
 
-"_Fair_, Mr. Potter?", schnauzte sie. "Ich musste an _zwei aufeinanderfolgenden_ Tagen _zwei Berichte_ über die öffentliche Nutzung eines Zeitumkehrers beim Ministerium einreichen! Seien Sie _extrem_ dankbar, dass Sie den Zeitumkehrer behalten durften, sogar in seiner eingeschränkter Form! Der Schulleiter hat einen Floo-Anruf gemacht, um sich persönlich an das Ministerium zu wenden und wenn du nicht der Junge-der-lebte wärst, hätte selbst das nicht ausgereicht!"
+"_Fair_, Mr. Potter?", schnauzte sie. "Ich musste an _zwei aufeinanderfolgenden_ Tagen _zwei Berichte_ über die öffentliche Nutzung eines Zeitumkehrers beim Ministerium einreichen! Seien Sie _extrem_ dankbar, dass Sie den Zeitumkehrer behalten durften, sogar in seiner eingeschränkter Form! Der Schulleiter hat einen Floo-Anruf gemacht, um sich persönlich an das Ministerium zu wenden und wenn du nicht der Junge-der-lebt wärst, hätte selbst das nicht ausgereicht!"
 
 Harry schluckte.
 

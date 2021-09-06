@@ -36,7 +36,7 @@ Draco blinzelte und dann tauschten er und Granger schnelle Blicke - _darf ich?_ 
 
 "General Granger und ich möchten beide sagen", sagte Draco mit seiner förmlichsten Stimme, wohl wissend, dass sie verstärkt und gehört wurde, "dass wir die Hilfe von Verrätern nicht länger akzeptieren werden. Und wenn wir in irgendeiner Schlacht feststellen, dass Potter Verräter aus einer unserer Armeen aufgenommen hat, werden wir unsere Kräfte vereinen, um ihn zu vernichten."
 
-Und Draco schoss einen bösartigen Blick auf den Jungen-der-lebte. _Nimm das, General Chaos!_
+Und Draco schoss einen bösartigen Blick auf den Jungen-der-lebt. _Nimm das, General Chaos!_
 
 "Ich stimme General Malfoy vollkommen zu", sagte Granger, die neben ihm stand, mit ihrer hohen, klaren und starken Stimme. "Keiner von uns wird Verräter einsetzen, und wenn General Potter es tut, werden wir ihn vom Schlachtfeld fegen."
 
@@ -158,7 +158,7 @@ Es gab eine verwirrte Pause von den Zuschauern.
 
 "Ich werde Hauspunkte nicht ungerecht vergeben", sagte Professor Quirrell. Er tippte auf eine Wange und sah nachdenklich aus. "Das macht deinen Wunsch schwierig genug, um interessant zu sein. Möchten Sie etwas dazu sagen, warum, Mr. Malfoy?"
 
-Draco wandte sich von dem Verteidigungsprofessor ab und blickte auf die Menge vor dem Hintergrund von Platin und Smaragden. Nicht alle in Slytherin hatten der Drachenarmee zugejubelt, es gab Anti-Malfoy-Fraktionen, die ihre Unzufriedenheit zum Ausdruck gebracht hatten, indem sie den Jungen-der-lebte unterstützten, oder sogar Granger; und diese Fraktionen würden durch das, was Zabini getan hatte, sehr ermutigt werden. Er musste sie daran erinnern, dass Slytherin für Malfoy stand und Malfoy für Slytherin -.
+Draco wandte sich von dem Verteidigungsprofessor ab und blickte auf die Menge vor dem Hintergrund von Platin und Smaragden. Nicht alle in Slytherin hatten der Drachenarmee zugejubelt, es gab Anti-Malfoy-Fraktionen, die ihre Unzufriedenheit zum Ausdruck gebracht hatten, indem sie den Jungen-der-lebt unterstützten, oder sogar Granger; und diese Fraktionen würden durch das, was Zabini getan hatte, sehr ermutigt werden. Er musste sie daran erinnern, dass Slytherin für Malfoy stand und Malfoy für Slytherin -.
 
 "Nein", sagte Draco. "Sie sind Slytherins, sie werden es verstehen."
 
@@ -202,7 +202,7 @@ Harry holte tief Luft. "Habe ich nicht", sagte er, "aber ich habe schon an eine 
 
 "Mr. Potter", sagte der Verteidigungsprofessor, seine Stimme plötzlich schneidend, "die Lektion der Geschichte ist, dass Sie einfach falsch liegen. Die Generation deiner Eltern hat zu wenig getan, um sich zu vereinen, nicht zu viel! Dieses ganze Land wäre fast gefallen, Mr. Potter, obwohl du nicht dabei warst, um es zu sehen. Ich schlage vor, dass du deine Mitschüler in Ravenclaw fragst, wie viele von ihnen Angehörige durch den Dunklen Lord verloren haben. Oder wenn Sie klüger sind, fragen Sie _nicht_! Haben Sie einen Wunsch, Mr. Potter?"
 
-"Wenn es euch nichts ausmacht", sagte die milde Stimme von Albus Dumbledore, "würde ich gerne hören, was der Junge-der-lebte zu sagen hat. Er hat mehr Erfahrung darin, Kriege zu stoppen als wir beide."
+"Wenn es euch nichts ausmacht", sagte die milde Stimme von Albus Dumbledore, "würde ich gerne hören, was der Junge-der-lebt zu sagen hat. Er hat mehr Erfahrung darin, Kriege zu stoppen als wir beide."
 
 Ein paar Leute haben gelacht, aber nicht viele.
 

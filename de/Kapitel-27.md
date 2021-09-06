@@ -648,11 +648,11 @@ Dann lächelte Severus, sah plötzlich wieder entspannt aus und die ganze Anspan
 
 "Du bist ein sehr nachsichtiger Mensch", sagte Severus und lächelte immer noch. "Ich nehme an, dein Stiefvater, Michael Verres-Evans, war derjenige, der es dir beigebracht hat."
 
-"Eher Papas Science-Fiction- und Fantasy-Sammlung", sagte Harry. "Sozusagen mein fünftes Elternteil, wirklich. Ich habe das Leben all der Charaktere in all meinen Büchern gelebt, und all ihre mächtigen Weisheiten donnern in meinem Kopf. Irgendwo da drin war jemand wie Lesath, vermute ich, obwohl ich nicht sagen könnte, wer. Es war nicht schwer, mich in seine Lage zu versetzen. Und es waren auch meine Bücher, die mir sagten, was zu tun ist. Die guten Jungs verzeihen."
+"Eher Papas Science-Fiction- und Fantasy-Sammlung", sagte Harry. "Sozusagen mein fünftes Elternteil. Ich habe das Leben all der Charaktere in all meinen Büchern gelebt, und all ihre mächtigen Weisheiten donnern in meinem Kopf. Irgendwo da drin war jemand wie Lesath, vermute ich, obwohl ich nicht sagen könnte, wer. Es war nicht schwer, mich in seine Lage zu versetzen. Und es waren auch meine Bücher, die mir sagten, was zu tun ist. Die guten Jungs verzeihen."
 
-Severus gab ein leichtes, amüsiertes Lachen von sich. "Ich fürchte, ich wüsste nicht viel darüber, was gute Menschen tun."
+Severus gab ein leichtes, amüsiertes Lachen von sich. "Ich fürchte, ich weiß nicht viel darüber, was gute Menschen tun."
 
-Harry sah ihn an. Das war eigentlich ganz schön traurig. "Ich leihe dir ein paar Romane mit guten Menschen darin, wenn du willst. "
+Harry sah ihn an. Das war eigentlich ganz schön traurig. "Ich leihe dir ein paar Romane mit guten Menschen darin, wenn du willst."
 
 "Ich würde dich gerne in einer Sache um Rat fragen", sagte Severus mit lässiger Stimme. "Ich weiß von einem anderen Slytherin aus dem fünften Jahr, der von Gryffindors gemobbt wurde. Er umwirbt ein wunderschönes Muggel-Mädchen, das ihn beim Mobbing erwischt und versucht, ihn zu retten. Und er nannte sie ein Schlammblut und das war das Ende für sie. Er hat sich entschuldigt, viele Male, aber sie hat ihm nie verziehen. Hast du eine Idee, was er hätte sagen oder tun können, um von ihr die Vergebung zu erhalten, die du Lestrange gegeben hast?"
 
@@ -662,17 +662,17 @@ Es gab eine Pause.
 
 "Oh, aber sie _konnte_ verzeihen", sagte Severus mit Amüsement in seiner Stimme. "Aber danach ist sie abgehauen und wurde die Freundin des Tyrannen. Sag mir, warum sollte sie dem Tyrannen verzeihen und nicht dem Getyrannten?"
 
-Harry zuckte mit den Schultern. "Vermutlich, weil der Tyrann jemandem _anderen_ sehr wehgetan hatte, und der Getyrannte hatte _sie_ nur ein wenig verletzt, und für sie fühlte sich das irgendwie noch viel unverzeihlicher an. Oder, um es nicht zu sehr zuzuspitzen, war der Tyrann gutaussehend? Oder, was das betrifft, reich?"
+Harry zuckte mit den Schultern. "Vermutlich, weil der Tyrann jemandem _anderen_ sehr wehgetan hatte, und der gemobbte hatte _sie_ nur ein wenig verletzt, und für sie fühlte sich das irgendwie noch viel unverzeihlicher an. Oder, um es nicht zu sehr zuzuspitzen, war der Tyrann gutaussehend? Oder, was das betrifft, reich?"
 
 Es gab eine weitere Pause.
 
 "Ja zu beidem", sagte Severus.
 
-"Und da hast du es", sagte Harry. "Nicht, dass ich jemals selbst durch die Highschool gegangen wäre, aber meine Bücher geben mir zu verstehen, dass es eine bestimmte Art von Teenagermädchen gibt, die über eine einzige Beleidigung empört sein wird, wenn der Junge einfach oder arm ist, die aber irgendwie Platz in ihrem Herzen finden kann, um einem reichen und gutaussehenden Jungen sein Mobbing zu verzeihen. Sie war mit anderen Worten oberflächlich. Sag demjenigen, der es war, dass sie seiner nicht würdig war und er darüber hinwegkommen und weiterziehen muss und das nächste Mal Mädchen daten soll, die tiefgründig statt hübsch sind. "
+"Und da hast du es", sagte Harry. "Nicht, dass ich jemals selbst durch die Highschool gegangen wäre, aber meine Bücher geben mir zu verstehen, dass es eine bestimmte Art von Teenagermädchen gibt, die über eine einzige Beleidigung empört sein wird, wenn der Junge einfach oder arm ist, die aber irgendwie Platz in ihrem Herzen finden kann, um einem reichen und gutaussehenden Jungen sein Mobbing zu verzeihen. Mit anderen Worten: Sie war oberflächlich. Sag demjenigen, der es war, dass sie seiner nicht würdig war und er darüber hinwegkommen und weiterziehen muss und das nächste Mal Mädchen daten soll, die tiefgründig statt hübsch sind."
 
 Severus starrte Harry schweigend an, seine Augen funkelten. Das Lächeln war verblasst, und obwohl Severus' Gesicht zuckte, kehrte es nicht zurück.
 
-Harry wurde langsam ein wenig nervös. "Ähm, nicht, dass ich selbst Erfahrung auf dem Gebiet hätte, natürlich, aber ich denke, das ist es, was ein weiser Berater aus meinen Büchern sagen würde. "
+Harry wurde langsam ein wenig nervös. "Ähm, natürlich habe ich selbst keine Erfahrung auf dem Gebiet, aber ich denke, das ist es, was ein weiser Berater aus meinen Büchern sagen würde."
 
 Es herrschte mehr Stille und mehr Glitzern.
 
@@ -680,29 +680,29 @@ Es war wahrscheinlich ein guter Zeitpunkt, das Thema zu wechseln.
 
 "Also", sagte Harry. "Habe ich deinen Test bestanden, was auch immer es war?"
 
-"Ich denke", sagte Severus, "dass es keine weiteren Gespräche zwischen uns geben sollte, Potter, und du wärst äußerst weise, nie über dieses zu sprechen. "
+"Ich denke", sagte Severus, "dass es keine weiteren Gespräche zwischen uns geben sollte, Potter, und du wärst äußerst weise, nie über dieses zu sprechen."
 
 Harry blinzelte. "Würdest du mir bitte sagen, was ich falsch gemacht habe?"
 
-"Du hast mich beleidigt", sagte Severus. "Und ich traue deiner Gerissenheit nicht mehr. "
+"Du hast mich beleidigt", sagte Severus. "Und ich traue deiner Gerissenheit nicht mehr."
 
 Harry starrte Severus an, ziemlich verblüfft.
 
-"Aber du hast mir einen gut gemeinten Rat gegeben", sagte Severus Snape, "und so werde ich dir im Gegenzug einen wahren Rat geben. "Seine Stimme war fast vollkommen gleichmäßig. Wie eine Schnur, die trotz des massiven Gewichts, das in ihrer Mitte hängt, durch eine Million Tonnen Spannung, die an beiden Enden zieht, fast perfekt horizontal gespannt ist. "Du wärst heute fast gestorben, Potter. In Zukunft solltest du deine Weisheit nur dann mit jemandem teilen, wenn du genau weißt, worüber ihr beide redet. "
+"Aber du hast mir einen gut gemeinten Rat gegeben", sagte Severus Snape, "und so werde ich dir im Gegenzug einen wahren Rat geben." Seine Stimme war fast vollkommen gleichmäßig. Wie eine Schnur, die trotz des massiven Gewichts, das in ihrer Mitte hängt, durch eine Million Tonnen Spannung, die an beiden Enden zieht, fast perfekt horizontal gespannt ist. "Du wärst heute fast gestorben, Potter. In Zukunft solltest du deine Weisheit nur dann mit jemandem teilen, wenn du genau weißt, worüber ihr beide redet."
 
 Harrys Verstand stellte endlich die Verbindung her.
 
-"_Du_ warst das -"
+"_Sie_ waren das -"
 
-Harrys Mund schnappte zu, als der Teil "fast gestorben"zwei Sekunden zu spät eintraf.
+Harrys Mund schnappte zu, als der Teil "fast gestorben" zwei Sekunden zu spät eintraf.
 
-"Ja", sagte Severus, "das war ich. "
+"Ja", sagte Severus, "das war ich."
 
 Und die schreckliche Spannung flutete zurück in den Raum wie Wasser, das am Grund des Ozeans unter Druck steht.
 
 Harry konnte nicht atmen.
 
-_Lose. Jetzt. _
+_Verliere. Jetzt._
 
 "Ich wusste es nicht", flüsterte Harry. "Ich bin..."
 
@@ -710,21 +710,21 @@ _Lose. Jetzt. _
 
 Harry stand schweigend da, sein Verstand suchte krampfhaft nach Möglichkeiten. Severus stand zwischen ihm und dem Fenster, was wirklich schade war, denn ein Sturz aus dieser Höhe würde einen Zauberer nicht töten.
 
-"Deine Bücher haben dich verraten, Potter", sagte Severus, immer noch mit dieser Stimme, die von einer Million Tonnen Zugkraft angespannt war. "Sie haben dir die eine Sache nicht gesagt, die du wissen musst. Du kannst nicht aus Geschichten lernen, wie es ist, den zu verlieren, den du liebst. Das ist etwas, das man nie verstehen kann, ohne es selbst zu spüren. "
+"Deine Bücher haben dich verraten, Potter", sagte Severus, immer noch mit dieser Stimme, die von einer Million Tonnen Zugkraft angespannt war. "Sie haben dir die eine Sache nicht gesagt, die du wissen musst. Du kannst nicht aus Geschichten lernen, wie es ist, den zu verlieren, den du liebst. Das ist etwas, das man nie verstehen kann, ohne es selbst zu spüren."
 
-"Mein Vater", flüsterte Harry. Es war seine beste Vermutung, das Einzige, was ihn retten könnte. "Mein Vater hat versucht, dich vor den Tyrannen zu schützen. "
+"Mein Vater", flüsterte Harry. Es war seine beste Vermutung, das Einzige, was ihn retten könnte. "Mein Vater hat versucht, dich vor den Tyrannen zu schützen."
 
 Ein grässliches Lächeln zog sich über Severus' Gesicht und der Mann bewegte sich auf Harry zu.
 
 Und an ihm vorbei.
 
-"Auf Wiedersehen, Potter", sagte Severus und blickte auf dem Weg nach draußen nicht zurück. "Wir werden uns von heute an wenig zu sagen haben. "
+"Auf Wiedersehen, Potter", sagte Severus und blickte auf dem Weg nach draußen nicht zurück. "Wir werden uns von heute an wenig zu sagen haben."
 
 Und an der Ecke hielt der Mann an und sprach, ohne sich umzudrehen, ein letztes Mal.
 
-"Dein Vater war der Tyrann", sagte Severus Snape, "und was deine Mutter in ihm sah, habe ich bis heute nicht verstanden. "
+"Dein Vater war der Tyrann", sagte Severus Snape, "und was deine Mutter in ihm sah, habe ich bis heute nicht verstanden."
 
-Er ist gegangen.
+Er ging.
 
 Harry drehte sich um und ging auf das Fenster zu. Seine zitternden Hände gingen auf den Vorsprung.
 
@@ -742,13 +742,13 @@ Vielleicht waren sie später erwachsen geworden. Gute Menschen wie Professor McG
 
 Natürlich war das ein schwacher Trost, wenn man elf Jahre alt war und dabei war, ein Teenager zu werden und sich fragte, was für ein Teenager man werden würde.
 
-So sehr schrecklich.
+So schrecklich.
 
-So sehr traurig.
+So traurig.
 
 Was für ein schreckliches Leben Harry führte.
 
-Wenn er erfährt, dass seine genetischen Eltern nicht perfekt waren, sollte er eine Weile damit verbringen, Trübsal zu blasen und sich selbst zu bemitleiden.
+Wenn man erfährt, dass seine genetischen Eltern nicht perfekt waren, sollte man eine Weile damit verbringen, Trübsal zu blasen und sich selbst zu bemitleiden.
 
 Vielleicht könnte er sich bei Lesath Lestrange beschweren.
 
@@ -762,13 +762,13 @@ Für einen Moment stellte sich Harry seine eigene Mama und seinen Papa in Askaba
 
 War es richtig, das jemandem anzutun, selbst der zweitbösesten Person der Welt?
 
-_Nein,_ sagte die Weisheit von Harrys Büchern, _nicht wenn es einen anderen Weg gibt, irgendeinen anderen Weg überhaupt. _
+_Nein_, sagte die Weisheit von Harrys Büchern, _nicht wenn es einen anderen Weg gibt, irgendeinen anderen Weg._
 
-Und wenn das Justizsystem der Zauberer nicht so perfekt war wie ihre Gefängnisse - und das klang alles in allem eher unwahrscheinlich - dann befand sich irgendwo in Askaban eine Person, die völlig unschuldig war, und wahrscheinlich mehr als eine.
+Und wenn das Justizsystem der Zauberer nicht so perfekt war wie ihre Gefängnisse - und das klang alles in allem eher wahrscheinlich - dann befand sich irgendwo in Askaban eine Person, die völlig unschuldig war, und wahrscheinlich mehr als eine.
 
 In Harrys Kehle brannte es und in seinen Augen sammelte sich Feuchtigkeit. Er wollte alle Gefangenen von Askaban in Sicherheit teleportieren und Feuer vom Himmel rufen, um diesen schrecklichen Ort in Grund und Boden zu sprengen. Aber er konnte es nicht, weil er nicht Gott war.
 
-Und Harry erinnerte sich daran, was Professor Quirrell unter dem Sternenlicht gesagt hatte: _Manchmal, wenn diese fehlerhafte Welt ungewöhnlich hassenswert erscheint, frage ich mich, ob es vielleicht einen anderen Ort gibt, weit weg, wo ich hätte sein sollen... Aber die Sterne sind so sehr, sehr weit weg... Und ich frage mich, wovon ich träumen würde, wenn ich lange, lange Zeit schlafen würde. _
+Und Harry erinnerte sich daran, was Professor Quirrell unter dem Sternenlicht gesagt hatte: _Manchmal, wenn diese fehlerhafte Welt ungewöhnlich hassenswert erscheint, frage ich mich, ob es vielleicht einen anderen Ort gibt, weit weg, wo ich hätte sein sollen... Aber die Sterne sind so sehr, sehr weit weg... Und ich frage mich, wovon ich träumen würde, wenn ich lange, lange Zeit schlafen würde._
 
 Gerade jetzt schien diese fehlerhafte Welt ungewöhnlich hasserfüllt zu sein.
 

@@ -34,7 +34,7 @@ Und dann war ihr ein Gedanke gekommen, der alle ihre Ängste wegwischte.
 
 Sie und Harry haben sich auf eine Romanze eingelassen! Na klar! Jeder wusste, was es bedeutet, wenn ein Junge und ein Mädchen anfangen, sich ständig zu streiten. Sie haben sich gegenseitig _umworben_! Daran war nichts Schlechtes _das_ ...
 
-Es konnte nicht sein, dass sie es einfach _genoss_, den berühmtesten Schüler der Schule zu besiegen, jemanden, der _in_ Büchern erwähnt wurde und _wie_ Bücher sprach, den Jungen, der irgendwie den Dunklen Lord besiegt hatte und sogar _Professor Snape_ wie einen traurigen kleinen Käfer zerquetscht hatte, der Junge, der, wie Professor Quirrell es ausdrücken würde, dominant war, über alle anderen im ersten Jahr in Ravenclaw, _außer_ Hermine Granger, die den Jungen-der-lebte in all seinen Fächern, außer Besenreiten, völlig _bezwang_.
+Es konnte nicht sein, dass sie es einfach _genoss_, den berühmtesten Schüler der Schule zu besiegen, jemanden, der _in_ Büchern erwähnt wurde und _wie_ Bücher sprach, den Jungen, der irgendwie den Dunklen Lord besiegt hatte und sogar _Professor Snape_ wie einen traurigen kleinen Käfer zerquetscht hatte, der Junge, der, wie Professor Quirrell es ausdrücken würde, dominant war, über alle anderen im ersten Jahr in Ravenclaw, _außer_ Hermine Granger, die den Jungen-der-lebt in all seinen Fächern, außer Besenreiten, völlig _bezwang_.
 
 Denn das wäre schlecht gewesen.
 

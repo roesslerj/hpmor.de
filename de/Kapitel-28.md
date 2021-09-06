@@ -2,11 +2,11 @@
 
 Was auch immer Rowling gehen kann, wird Rowling gehen.
 
-Dies sollte _wieder_ selbstverständlich sein, aber die von Severus Snape geäußerten Ansichten sind nicht unbedingt die des Autors.
+Es sollte _wieder_ selbstverständlich sein, aber die von Severus Snape geäußerten Ansichten sind nicht unbedingt die des Autors.
 
 * * *
 
-"Okay", sagte Harry und schluckte. "Okay, Hermine, es ist genug, du kannst aufhören. "
+"Okay", sagte Harry und schluckte. "Okay, Hermine, es ist genug, du kannst aufhören."
 
 Die weiße Zuckerpille vor Hermine hatte immer noch nicht ihre Form oder Farbe verändert, obwohl sie sich so sehr konzentrierte, wie Harry es noch nie gesehen hatte, die Augen zusammengekniffen, Schweißperlen auf der Stirn, die Hand zitterte, als sie den Zauberstab ergriff -.
 
@@ -14,33 +14,33 @@ Die weiße Zuckerpille vor Hermine hatte immer noch nicht ihre Form oder Farbe v
 
 Langsam lockerte Hermines Hand ihren Griff um den Zauberstab.
 
-"Ich dachte, ich hätte es gespürt", sagte sie im leisen Flüsterton. "Ich dachte, ich spüre, wie es anfängt zu verklären, nur für eine Sekunde. "
+"Ich dachte, ich hätte es gespürt", sagte sie im leisen Flüsterton. "Ich dachte, ich spüre, wie es anfängt sich zu verwandeln, nur für eine Sekunde."
 
-Da war ein Kloß in Harrys Hals. "Du hast es dir wahrscheinlich nur eingebildet. Zu sehr gehofft. "
+Da war ein Kloß in Harrys Hals. "Du hast es dir wahrscheinlich nur eingebildet. Zu sehr gehofft."
 
-"Wahrscheinlich war ich das", sagte sie. Sie sah aus, als würde sie weinen wollen.
+"Wahrscheinlich habe ich das", sagte sie. Sie sah aus, als würde sie weinen wollen.
 
-Langsam nahm Harry seinen Druckbleistift in die Hand und griff nach dem Blatt Papier, auf dem alle Punkte durchgestrichen waren, und zog eine Linie durch den Punkt, auf dem "ALZHEIMER'S CURE"stand.
+Langsam nahm Harry seinen Druckbleistift in die Hand und griff nach dem Blatt Papier, auf dem alle Punkte durchgestrichen waren, und zog eine Linie durch den Punkt, auf dem "HEILMITTEL GEGEN ALZHEIMER" stand.
 
-Sie hätten niemanden mit einer verklärten Pille füttern können. Aber Transfiguration, zumindest die Art, die sie machen konnten, verzauberte die Ziele nicht - es würde keinen normalen Besenstiel in einen fliegenden verwandeln. Wenn Hermine also überhaupt in der Lage gewesen wäre, eine Pille herzustellen, dann wäre es eine _nichtmagische_ Pille gewesen, eine, die aus normalen materiellen Gründen funktioniert. Sie hätten heimlich Pillen für ein Muggel-Wissenschaftslabor herstellen können, sie die Pillen _studieren_ lassen und versuchen können, sie zurückzuentwickeln, bevor die Verklärung nachlässt... niemand in beiden Welten müsste wissen, dass Magie im Spiel war, es wäre einfach ein weiterer wissenschaftlicher Durchbruch...
+Sie hätten niemanden mit einer transfigurierten Pille füttern können. Aber Transfiguration, zumindest die Art, die sie machen konnten, verzauberte die Ziele nicht - es würde keinen normalen Besenstiel in einen fliegenden verwandeln. Wenn Hermine also überhaupt in der Lage gewesen wäre, eine Pille herzustellen, dann wäre es eine _nichtmagische_ Pille gewesen, eine, die aus normalen materiellen Gründen funktioniert. Sie hätten heimlich Pillen für ein Muggel-Wissenschaftslabor herstellen können, sie die Pillen _studieren_ lassen und versuchen können, sie nachzuentwickeln, bevor die Transfiguration nachlässt... niemand in beiden Welten müsste wissen, dass Magie im Spiel war, es wäre einfach ein weiterer wissenschaftlicher Durchbruch...
 
 Es war auch nicht die Art von Sache, an die ein Zauberer denken würde. Sie respektierten bloße _Muster von Atomen_ nicht so sehr, sie dachten nicht an unverzauberte _materielle_ Dinge als Objekte der Macht. Wenn es nicht magisch war, war es nicht interessant.
 
-Zuvor hatte Harry _sehr_ heimlich - er hatte es nicht einmal Hermine erzählt - versucht, Nanotechnologie a la Eric Drexler zu verklären. (Er hatte natürlich versucht, eine Desktop-Nanofabrik zu produzieren, keine winzigen selbstreplizierenden Assembler, Harry war nicht wahnsinnig. ) Es wäre mit einem Schuss Gottheit gewesen, wenn es funktioniert hätte.
+Zuvor hatte Harry _sehr_ heimlich - er hatte es nicht einmal Hermine erzählt - versucht, Nanotechnologie a la Eric Drexler zu transfigurieren. (Er hatte natürlich versucht, eine Desktop-Nanofabrik zu produzieren, keine winzigen selbstreplizierenden Assembler, Harry war nicht wahnsinnig.) Es wäre sofortige Gottheit gewesen, wenn es funktioniert hätte.
 
 "Das war's für heute, oder?", sagte Hermine. Sie war in ihrem Stuhl nach hinten gesackt und lehnte ihren Kopf gegen die Lehne; und ihr Gesicht zeigte ihre Müdigkeit, was sehr ungewöhnlich für Hermine war. Sie mochte es, so zu tun, als wäre sie grenzenlos, zumindest wenn Harry in der Nähe war.
 
-"Noch eine", sagte Harry vorsichtig, "aber die ist klein, außerdem könnte sie tatsächlich funktionieren. Ich habe es mir für den Schluss aufgehoben, weil ich gehofft habe, dass wir mit einer positiven Note enden können. Das ist echtes Zeug, nicht wie Phaser. Sie haben es bereits im Labor geschafft, nicht so wie die Alzheimer-Heilung. Und es ist eine generische Substanz, nicht spezifisch wie die verlorenen Bücher, von denen du versucht hast, Kopien zu verklären. Ich habe ein Diagramm der Molekularstruktur erstellt, um es dir zu zeigen. Wir wollen es einfach _länger_ machen als es jemals zuvor gemacht wurde, und zwar mit allen Röhren in einer Linie und den Endpunkten in Diamant eingebettet. "Harry holte ein Blatt Millimeterpapier hervor.
+"Noch eine", sagte Harry vorsichtig, "aber die ist klein, außerdem könnte sie tatsächlich funktionieren. Ich habe es mir für den Schluss aufgehoben, weil ich gehofft habe, dass wir mit einer positiven Note enden können. Das ist echtes Zeug, nicht wie Phaser. Sie haben es bereits im Labor geschafft, nicht so wie die Alzheimer-Heilung. Und es ist eine generische Substanz, nicht spezifisch wie die verlorenen Bücher, von denen du versucht hast, Kopien zu transfigurieren. Ich habe ein Diagramm der Molekularstruktur erstellt, um es dir zu zeigen. Wir wollen es einfach _länger_ machen als es jemals zuvor gemacht wurde, und zwar mit allen Röhren in einer Linie und den Endpunkten in Diamant eingebettet." Harry holte ein Blatt Millimeterpapier hervor.
 
-Hermine setzte sich wieder auf, nahm es und studierte es stirnrunzelnd. "Das sind _alle_ Kohlenstoffatome? Und Harry, wie ist der Name? Ich kann es nicht transfigurieren, wenn ich nicht weiß, wie es heißt. "
+Hermine setzte sich wieder auf, nahm es und studierte es stirnrunzelnd. "Das sind _alles_ Kohlenstoffatome? Und Harry, wie ist der Name? Ich kann es nicht transfigurieren, wenn ich nicht weiß, wie es heißt."
 
-Harry machte ein angewidertes Gesicht. Er hatte immer noch Schwierigkeiten, sich an so etwas zu gewöhnen. Es sollte keine Rolle spielen, wie etwas _genannt_ wurde, wenn man wusste, was es _ist_ Sie heißen Buckytubes oder Carbon Nanotubes. Es ist eine Art Fulleren, das erst dieses Jahr entdeckt wurde. Es ist etwa hundertmal stärker als Stahl und ein Sechstel des Gewichts. "
+Harry machte ein angewidertes Gesicht. Er hatte immer noch Schwierigkeiten, sich an so etwas zu gewöhnen. Es sollte keine Rolle spielen, wie etwas _genannt_ wurde, wenn man wusste, was es _ist_. "Sie heißen Buckytubes oder Carbon Nanotubes. Es ist eine Art Fulleren, das erst dieses Jahr entdeckt wurde. Es ist etwa hundertmal stärker als Stahl bei einem Sechstel des Gewichts."
 
-Hermine blickte von dem Millimeterpapier auf, ihr Gesicht war überrascht. "Das ist _wirklich?_ "
+Hermine blickte von dem Millimeterpapier auf, ihr Gesicht war überrascht. "Sowas gibt es _wirklich_?"
 
-"Ja", sagte Harry, "nur schwer auf die Muggel-Art zu machen. Wenn wir genug von dem Zeug bekommen könnten, könnten wir damit einen Weltraumlift bauen, der den ganzen Weg bis in den geosynchronen Orbit oder höher schafft, und in Bezug auf Delta-V ist das der halbe Weg zu jedem Ort im Sonnensystem. Außerdem könnten wir Solarstromsatelliten wie Konfetti wegwerfen. "
+"Ja", sagte Harry, "es ist nur schwer auf Muggel-Art zu machen. Wenn wir genug von dem Zeug bekommen könnten, könnten wir damit einen Weltraumlift bauen, der den ganzen Weg bis in den geosynchronen Orbit oder höher schafft, und in Bezug auf Delta-V ist das der halbe Weg zu jedem Ort im Sonnensystem. Außerdem könnten wir Solarstromsatelliten wie Konfetti wegwerfen."
 
-Hermine runzelte wieder die Stirn. "Ist dieses Zeug _sicher?_ "
+Hermine runzelte wieder die Stirn. "Ist dieses Zeug _sicher?_"
 
 "Ich wüsste nicht, warum das nicht so sein sollte", sagte Harry. "Ein Buckytube ist im Grunde nur eine Graphitplatte, die in ein rundes Rohr eingewickelt ist, und Graphit ist das gleiche Zeug, das in Bleistiften verwendet wird -"
 

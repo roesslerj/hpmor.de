@@ -285,7 +285,7 @@ Sie wurden durch ein schwaches, zaghaftes, eher _unwilliges_ Klopfen an der Tür
 
 Der Junge drehte sich um, schaute aus dem Fenster und sagte: "Ich habe meinen Schal nicht an, kannst du den holen?"
 
-An diesem Punkt wurde Hermine klar, warum der Junge - nein, der Junge-der-lebte, Harry Potter - den Schal überhaupt über dem Kopf trug, und sie fühlte sich ein wenig dumm, weil sie es nicht früher bemerkt hatte. Es war tatsächlich irgendwie seltsam, denn sie hätte gedacht, dass Harry Potter sich stolz der Welt zeigen würde; und der Gedanke kam ihr, dass er vielleicht tatsächlich schüchterner war, als er schien.
+An diesem Punkt wurde Hermine klar, warum der Junge - nein, der Junge-der-lebt, Harry Potter - den Schal überhaupt über dem Kopf trug, und sie fühlte sich ein wenig dumm, weil sie es nicht früher bemerkt hatte. Es war tatsächlich irgendwie seltsam, denn sie hätte gedacht, dass Harry Potter sich stolz der Welt zeigen würde; und der Gedanke kam ihr, dass er vielleicht tatsächlich schüchterner war, als er schien.
 
 Als Hermine die Tür aufzog, wurde sie von einem zitternden Jungen begrüßt, der genauso aussah, wie er geklopft hatte.
 
@@ -357,15 +357,15 @@ Das anschließende Quiz und Gegenquiz dauerte mehrere Minuten, bevor es durch ei
 
 Neville weinte jetzt tatsächlich. "Ich ging zum vorderen Wagen und fand einen Vertrauensschüler, aber er sagte mir, dass Vertrauensschüler nicht wegen Kleinigkeiten wie fehlenden Kröten belästigt werden sollten."
 
-Das Gesicht des Jungen-der-lebte veränderte sich. Seine Lippen verzogen sich zu einer dünnen Linie. Seine Stimme, wenn er sprach, war kalt und grimmig. "Was waren seine Farben? Grün und Silber?".
+Das Gesicht des Jungen-der-lebt veränderte sich. Seine Lippen verzogen sich zu einer dünnen Linie. Seine Stimme, wenn er sprach, war kalt und grimmig. "Was waren seine Farben? Grün und Silber?".
 
 "N-nein, sein Abzeichen war r-rot und gold."
 
 "_Rot und Gold!_", platzte Hermine heraus. "Aber das sind die Farben von _Gryffindor_!"
 
-Harry Potter _zischte_ daraufhin, ein beängstigendes Geräusch, das von einer lebenden Schlange hätte kommen können und sowohl sie als auch Neville zusammenzucken ließ. "Ich _nehme an_," spuckte Harry Potter, "dass das Auffinden der Kröte eines Erstklässlers nicht _heroisch_ genug ist, um eines _Gryffindor_-Vertrauensschüler würdig zu sein. Komm schon, Neville, _ich_ komme dieses Mal mit, mal sehen, ob der Junge-der-lebte mehr Aufmerksamkeit bekommt. Zuerst werden wir einen Vertrauensschüler finden, der einen Zauberspruch kennen sollte, und wenn das nicht funktioniert, werden wir einen Vertrauensschüler finden, der keine Angst hat, sich die Hände schmutzig zu machen, und wenn _das_ nicht funktioniert, werde ich anfangen, meine Fans zu rekrutieren, und wenn es sein muss, werden wir den ganzen Zug Schraube für Schraube auseinandernehmen."
+Harry Potter _zischte_ daraufhin, ein beängstigendes Geräusch, das von einer lebenden Schlange hätte kommen können und sowohl sie als auch Neville zusammenzucken ließ. "Ich _nehme an_," spuckte Harry Potter, "dass das Auffinden der Kröte eines Erstklässlers nicht _heroisch_ genug ist, um eines _Gryffindor_-Vertrauensschüler würdig zu sein. Komm schon, Neville, _ich_ komme dieses Mal mit, mal sehen, ob der Junge-der-lebt mehr Aufmerksamkeit bekommt. Zuerst werden wir einen Vertrauensschüler finden, der einen Zauberspruch kennen sollte, und wenn das nicht funktioniert, werden wir einen Vertrauensschüler finden, der keine Angst hat, sich die Hände schmutzig zu machen, und wenn _das_ nicht funktioniert, werde ich anfangen, meine Fans zu rekrutieren, und wenn es sein muss, werden wir den ganzen Zug Schraube für Schraube auseinandernehmen."
 
-Der Junge-der-lebte stand auf und nahm Nevilles Hand in seine, und Hermine erkannte mit einem plötzlichen Hirnhusten, dass sie fast gleich groß waren, obwohl ein Teil von ihr darauf bestanden hatte, dass Harry Potter einen Kopf größer und Neville mindestens halben Kopf kleiner war.
+Der Junge-der-lebt stand auf und nahm Nevilles Hand in seine, und Hermine erkannte mit einem plötzlichen Hirnhusten, dass sie fast gleich groß waren, obwohl ein Teil von ihr darauf bestanden hatte, dass Harry Potter einen Kopf größer und Neville mindestens halben Kopf kleiner war.
 
 "_Bleib hier!_" Harry Potter schnauzte sie an - nein, warte, seinen _Koffer_ - und er schloss die Tür fest hinter sich, als er ging.
 

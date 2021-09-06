@@ -392,7 +392,7 @@ Harry nickte.
 
 "Und was hältst du von der Zaubererwelt?", fragte sie.
 
-"Es ist seltsam", sagte Harry. "Ich sollte über alles nachdenken, was ich an Magie gesehen habe... alles, was ich jetzt weiß, dass es möglich ist, und alles, was ich jetzt weiß, dass es eine Lüge ist, und all die Arbeit, die noch vor mir liegt, um es zu verstehen. Und doch finde ich mich abgelenkt durch relative Nebensächlichkeiten wie", Harry senkte seine Stimme, "die ganze Junge-der-lebte-Sache. "Es schien niemand in der Nähe zu sein, aber es hatte keinen Sinn, das Schicksal herauszufordern.
+"Es ist seltsam", sagte Harry. "Ich sollte über alles nachdenken, was ich an Magie gesehen habe... alles, was ich jetzt weiß, dass es möglich ist, und alles, was ich jetzt weiß, dass es eine Lüge ist, und all die Arbeit, die noch vor mir liegt, um es zu verstehen. Und doch finde ich mich abgelenkt durch relative Nebensächlichkeiten wie", Harry senkte seine Stimme, "die ganze Junge-der-lebt-Sache. "Es schien niemand in der Nähe zu sein, aber es hatte keinen Sinn, das Schicksal herauszufordern.
 
 Professor McGonagall _ahemmte_ "Wirklich? Was du nicht sagst."
 

@@ -10,9 +10,9 @@ In letzter Zeit hatte Hermine jedes Mal ein flaues Gefühl im Magen, wenn sie di
 
 Sie begann zu denken, dass es ein schrecklicher Fehler gewesen war, sich auf eine Rivalität mit Harry Potter einzulassen.
 
-Wenn sie sich einfach von Harry Potter ferngehalten hätte, hätte sie Hermine Granger sein können, der hellste akademische Stern von Hogwarts, der mehr Punkte für Ravenclaw sammelte als jeder andere. Sie wäre nicht _so_ berühmt gewesen wie der Junge-der-lebte, aber sie wäre für _sich selbst_ berühmt gewesen.
+Wenn sie sich einfach von Harry Potter ferngehalten hätte, hätte sie Hermine Granger sein können, der hellste akademische Stern von Hogwarts, der mehr Punkte für Ravenclaw sammelte als jeder andere. Sie wäre nicht _so_ berühmt gewesen wie der Junge-der-lebt, aber sie wäre für _sich selbst_ berühmt gewesen.
 
-Stattdessen hatte der Junge-der-lebte eine akademische Rivalin, und ihr Name war zufällig Hermine Granger.
+Stattdessen hatte der Junge-der-lebt eine akademische Rivalin, und ihr Name war zufällig Hermine Granger.
 
 Und schlimmer noch, sie war mit ihm auf ein Date gegangen.
 
@@ -456,7 +456,7 @@ Draco bekam langsam ein _sehr_ seltsames Gefühl bei dieser Sache.
 
 "Nein", sagte Draco.
 
-"Nein?", sagte Granger. "Das ist ein zeitlich begrenztes Angebot, Mr. Malfoy. Bist du sicher, dass du es riskieren willst, ein ganzes Jahr lang von dem Jungen-der-lebte, elendig zerquetscht zu werden? Das wäre ziemlich peinlich für das Haus Malfoy, oder?"
+"Nein?", sagte Granger. "Das ist ein zeitlich begrenztes Angebot, Mr. Malfoy. Bist du sicher, dass du es riskieren willst, ein ganzes Jahr lang von dem Jungen-der-lebt, elendig zerquetscht zu werden? Das wäre ziemlich peinlich für das Haus Malfoy, oder?"
 
 Es war ein sehr überzeugendes Argument, eines, das schwer abzulehnen war, aber du wirst nicht reich, indem du Geld ausgibst, wenn dein Herz dir sagt, dass es eine Falle ist.
 

@@ -118,7 +118,7 @@ Harrys Gesicht war nun neutral. Daran hatte er nicht gedacht und das hätte er w
 
 Donnerwetter. "Nun", sagte Harry, "ohne zu kommentieren, ob dein ganzes kompliziertes Theoriegebäude wahr ist oder nicht, lass mich nur sagen, dass wir noch nicht ganz so gute Freunde sind."
 
-"Ich weiß", sagte Draco. Dann wurde sein Gesicht _sehr_ ernst, und seine Stimme wurde sogar in der Unschärfe leise. "Harry, ist dir schon mal in den Sinn gekommen, dass, wenn du etwas weißt, von dem Dumbledore nicht will, dass es bekannt wird, Dumbledore dich einfach töten lassen könnte? Und es würde den Jungen-der-lebte von einem potentiellen konkurrierenden Anführer in einen wertvollen Märtyrer verwandeln?"
+"Ich weiß", sagte Draco. Dann wurde sein Gesicht _sehr_ ernst, und seine Stimme wurde sogar in der Unschärfe leise. "Harry, ist dir schon mal in den Sinn gekommen, dass, wenn du etwas weißt, von dem Dumbledore nicht will, dass es bekannt wird, Dumbledore dich einfach töten lassen könnte? Und es würde den Jungen-der-lebt von einem potentiellen konkurrierenden Anführer in einen wertvollen Märtyrer verwandeln?"
 
 "Kein Kommentar", sagte Harry noch einmal. An den letzten Teil hatte er auch nicht gedacht. Das schien nicht Dumbledores Stil zu sein... Aber trotzdem...
 
@@ -336,7 +336,7 @@ Harrys Atem kam in kurzen, panischen Zügen. Er hatte mehr Angst als nach dem Ve
 
 "Dann", Harry wurde übel, "werde ich es tun."
 
-Professor Quirrell drehte sich um und betrachtete die Slytherins. "Also... mit der vollen Zustimmung deines Lehrers und auf eine solche Art und Weise, dass Snape nicht für deine Handlungen verantwortlich gemacht werden kann... Möchte einer von euch seine Dominanz über den Jungen-der-Lebte zeigen? Ihn herumschubsen, ihn zu Boden stoßen, ihn um Gnade betteln hören?"
+Professor Quirrell drehte sich um und betrachtete die Slytherins. "Also... mit der vollen Zustimmung deines Lehrers und auf eine solche Art und Weise, dass Snape nicht für deine Handlungen verantwortlich gemacht werden kann... Möchte einer von euch seine Dominanz über den Jungen-der-lebt zeigen? Ihn herumschubsen, ihn zu Boden stoßen, ihn um Gnade betteln hören?"
 
 Fünf Hände gingen hoch.
 

@@ -278,7 +278,7 @@ Harry zuckte mit kunstvoller Hilflosigkeit mit den Schultern. "Es wurde mir gesa
 
 Professor Sprout beäugte ihn scharf. "Und woher weißt _du_, was die Slytherins planen?".
 
-"Ich kann meine Quelle nicht nennen", sagte Harry. "In der Tat muss ich dich bitten, so zu tun, als hätte dieses Gespräch nie stattgefunden. Tu einfach so, als wärst du zufällig auf sie gestoßen, während du eine Besorgung gemacht hast oder so. Ich laufe voraus, sobald die Kräuterkunde vorbei ist. Ich denke, ich kann die Slytherins ablenken, bis du da bist. Ich bin nicht leicht einzuschüchtern oder zu tyrannisieren, und ich glaube nicht, dass sie es wagen werden, den Jungen-der-lebte ernsthaft zu verletzen. Allerdings... Ich verlange nicht, dass du in den Gängen rennst, aber ich würde es begrüßen, wenn du auf dem Weg nicht trödelst."
+"Ich kann meine Quelle nicht nennen", sagte Harry. "In der Tat muss ich dich bitten, so zu tun, als hätte dieses Gespräch nie stattgefunden. Tu einfach so, als wärst du zufällig auf sie gestoßen, während du eine Besorgung gemacht hast oder so. Ich laufe voraus, sobald die Kräuterkunde vorbei ist. Ich denke, ich kann die Slytherins ablenken, bis du da bist. Ich bin nicht leicht einzuschüchtern oder zu tyrannisieren, und ich glaube nicht, dass sie es wagen werden, den Jungen-der-lebt ernsthaft zu verletzen. Allerdings... Ich verlange nicht, dass du in den Gängen rennst, aber ich würde es begrüßen, wenn du auf dem Weg nicht trödelst."
 
 Professor Sprout sah ihn einen langen Moment lang an, dann wurde ihr Ausdruck weicher. "Bitte sei vorsichtig mit dir selbst, Harry Potter. Und... Danke! ".
 

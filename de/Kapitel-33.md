@@ -626,7 +626,7 @@ So blieben Draco und Padma übrig, um General Chaos auszuschalten.
 
 "Schlaf vor der Kapitulation!", rief General Chaos.
 
-"Nur damit du es weißt", sagte Draco, "Zabini _hat_ eigentlich keine ältere Schwester, die du vor den Gryffindor-Tyrannen retten kannst. Aber Zabini _hat_ eine Mutter, die Muggelgeborene wie Granger nicht gutheißt, und ich habe ihr ein paar Notizen geschrieben und Zabini ein paar Gefallen angeboten - nichts, was meinen Vater betrifft, nur Dinge, die _ich_ in der Schule tun kann. Und nebenbei bemerkt, Zabinis Mutter ist auch nicht mit dem Jungen-der-lebte einverstanden. Nur für den Fall, dass du immer noch glaubst, dass Zabini wirklich auf deiner Seite ist."
+"Nur damit du es weißt", sagte Draco, "Zabini _hat_ eigentlich keine ältere Schwester, die du vor den Gryffindor-Tyrannen retten kannst. Aber Zabini _hat_ eine Mutter, die Muggelgeborene wie Granger nicht gutheißt, und ich habe ihr ein paar Notizen geschrieben und Zabini ein paar Gefallen angeboten - nichts, was meinen Vater betrifft, nur Dinge, die _ich_ in der Schule tun kann. Und nebenbei bemerkt, Zabinis Mutter ist auch nicht mit dem Jungen-der-lebt einverstanden. Nur für den Fall, dass du immer noch glaubst, dass Zabini wirklich auf deiner Seite ist."
 
 Harrys Gesicht wurde noch grimmiger.
 

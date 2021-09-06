@@ -6,7 +6,7 @@ J. K. Rowling, wenn ein Mann versucht, dich zu belästigen, kannst du blau denke
 
 Es war Sonntag, der 3. November, und schon bald würden die drei großen Mächte ihres Schuljahres, Harry Potter, Draco Malfoy und Hermine Granger, ihren Kampf um die oberste Vorherrschaft beginnen.
 
-(Harry ärgerte sich ein wenig darüber, dass der Junge-der-lebte durch die Teilnahme am Wettbewerb von der obersten Dominanz zu einem von drei gleichwertigen Rivalen degradiert worden war, aber er rechnete damit, dass er sie bald zurückerhalten würde. ).
+(Harry ärgerte sich ein wenig darüber, dass der Junge-der-lebt durch die Teilnahme am Wettbewerb von der obersten Dominanz zu einem von drei gleichwertigen Rivalen degradiert worden war, aber er rechnete damit, dass er sie bald zurückerhalten würde. ).
 
 Das Schlachtfeld war ein Abschnitt des nicht verbotenen Waldes, der dicht mit Bäumen bewachsen war, denn Professor Quirrell war der Meinung, dass es selbst für die erste Schlacht zu langweilig war, alle feindlichen Truppen sehen zu können.
 
@@ -202,7 +202,7 @@ Neville Longbottom marschierte durch den Wald auf die herannahende Sunny-Truppe 
 
 Harry hatte unter vier Augen ziemlich viel zu Neville gesagt, angefangen mit "Weißt du, Neville, wenn du so toll werden willst wie der imaginäre Neville, der in deinem Kopf lebt, aber nichts tun darf, weil du Angst hast, dann solltest du dich wirklich für Professor Quirrells Armeen anmelden."
 
-Neville war sich nun _sicher_, dass der Junge-der-lebte Gedanken lesen konnte. Es gab einfach keine andere Möglichkeit, wie Harry Potter es hätte wissen können. Neville hatte nie mit _jemandem_ darüber geredet oder ein Zeichen gegeben; und _andere_ Menschen waren nicht so, nicht dass Neville das je bemerkt hätte.
+Neville war sich nun _sicher_, dass der Junge-der-lebt Gedanken lesen konnte. Es gab einfach keine andere Möglichkeit, wie Harry Potter es hätte wissen können. Neville hatte nie mit _jemandem_ darüber geredet oder ein Zeichen gegeben; und _andere_ Menschen waren nicht so, nicht dass Neville das je bemerkt hätte.
 
 Und Harrys Versprechen hatte sich bewahrheitet, dies fühlte sich anders an als das Sparring im Verteidigungsunterricht. Neville hatte gehofft, dass das Sparring alles in Ordnung bringen würde, was mit ihm nicht stimmte, und, nun ja, das hatte es nicht. Selbst wenn er ein paar Zauber auf einen anderen Schüler in der Klasse abfeuern konnte, während Professor Quirrell aufpasste, dass nichts schief ging, selbst wenn er ausweichen und zurückfeuern konnte, wenn es _erlaubt_ war und alle anderen es _erwarteten_ und sie ihn komisch anstarrten, wenn er es _nicht_ tat, war nichts davon dasselbe, wie für sich selbst einstehen zu können.
 

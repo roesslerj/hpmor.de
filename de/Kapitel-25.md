@@ -186,7 +186,7 @@ Fred und George blinzelten unisono. _Malfoy_ steckte hinter Rita Skeeter? Harry 
 
 Fred und George tauschten Blicke aus. Nun, Harry brauchte es nicht zu wissen, bis der Job erledigt war.
 
-"Mr. Flume", sagte Fred leise, "der Junge-der-lebte braucht deine Hilfe. "
+"Mr. Flume", sagte Fred leise, "der Junge-der-lebt braucht deine Hilfe. "
 
 Flume sah die beiden an.
 
@@ -240,7 +240,7 @@ _Act 4:_
 
 "Sorry, ich bin raus", sagte Lee Jordan. "Ich bin eher der Typ Riesenspinne. "
 
-Der Junge-der-lebte hatte gesagt, dass er _wichtige_ Arbeit für den Orden des Chaos hatte, etwas Ernstes und Geheimes, bedeutsamer und schwieriger als ihre übliche Reihe von Streichen.
+Der Junge-der-lebt hatte gesagt, dass er _wichtige_ Arbeit für den Orden des Chaos hatte, etwas Ernstes und Geheimes, bedeutsamer und schwieriger als ihre übliche Reihe von Streichen.
 
 Und dann hatte Harry Potter mit einer Rede begonnen, die inspirierend und doch vage war. Eine Rede, die besagt, dass Fred und George und Lee ein enormes Potential haben, wenn sie nur lernen könnten, _weirder zu sein. Das Leben der Menschen _surreal_ zu machen, anstatt sie nur mit dem Äquivalent von Wassereimern zu überraschen, die über die Türen gestülpt werden. (Fred und George hatten interessierte Blicke ausgetauscht, daran hatten sie nie gedacht. ) Harry Potter hatte ein Bild von dem Streich heraufbeschworen, den sie Neville gespielt hatten - wofür, wie Harry mit einiger Reue erwähnt hatte, der Sprechende Hut ihn ausgepfiffen hatte -, was Neville aber wohl an seinem eigenen Verstand zweifeln ließ. Für Neville hätte es sich angefühlt, als wäre er plötzlich in ein anderes Universum versetzt worden. So wie sich alle anderen gefühlt hatten, als sie gesehen hatten, wie Snape sich entschuldigte. Das war die _wahre Kraft des Streichs. _
 

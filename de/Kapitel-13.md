@@ -318,7 +318,7 @@ Sie schauten auf ihn herab mit Ausdrücken, die von Ärger über Belustigung bis
 
 Ein Teil von Harrys Gehirn schrie in Panik, dass dies viel ältere und größere Jungen waren, die ihn platt treten konnten.
 
-Ein anderer Teil sagte trocken, dass jeder, der dabei erwischt wurde, wie er den Jungen-der-lebte ernsthaft zertrampelte, sich auf eine ganze _Welt_ von Schwierigkeiten gefasst machen musste, besonders wenn es sich um ein Rudel älterer Slytherins handelte und es sieben Hufflepuffs gab, die es sahen, und dass die Chance, dass sie ihm in Anwesenheit von Zeugen irgendeinen dauerhaften Schaden zufügten, nahezu null war. Die einzige wirkliche Waffe, die die älteren Jungs gegen ihn hatten, war seine eigene Angst, wenn er das zuließ.
+Ein anderer Teil sagte trocken, dass jeder, der dabei erwischt wurde, wie er den Jungen-der-lebt ernsthaft zertrampelte, sich auf eine ganze _Welt_ von Schwierigkeiten gefasst machen musste, besonders wenn es sich um ein Rudel älterer Slytherins handelte und es sieben Hufflepuffs gab, die es sahen, und dass die Chance, dass sie ihm in Anwesenheit von Zeugen irgendeinen dauerhaften Schaden zufügten, nahezu null war. Die einzige wirkliche Waffe, die die älteren Jungs gegen ihn hatten, war seine eigene Angst, wenn er das zuließ.
 
 Dann sah Harry, dass der Junge, den sie gefangen hatten, Neville Longbottom war.
 
@@ -506,7 +506,7 @@ Es war, als müsste Harry die Kontrolle über seine Lippen übernehmen und jede 
 
 Es gab eine Pause.
 
-Neville drückte seine Bücher fester an seine Brust. "Warum haben Sie das getan?", fragte er mit dünner, schwankender Stimme. Er blinzelte, als wolle er die Tränen zurückhalten. "Warum macht _jeder_ das mit mir, sogar der Junge-der-lebte?".
+Neville drückte seine Bücher fester an seine Brust. "Warum haben Sie das getan?", fragte er mit dünner, schwankender Stimme. Er blinzelte, als wolle er die Tränen zurückhalten. "Warum macht _jeder_ das mit mir, sogar der Junge-der-lebt?".
 
 Harry fühlte sich plötzlich kleiner als jemals zuvor in seinem Leben. "Es tut mir leid", sagte Harry wieder, seine Stimme war nun heiser. "Es ist nur... Du sahst so verängstigt aus, es war wie ein Schild über deinem Kopf, auf dem 'Opfer' stand, und ich wollte dir zeigen, dass die Dinge _nicht_ immer schlecht ausgehen, dass die Monster dir manchmal Schokolade geben... Ich dachte, wenn ich Ihnen das zeige, merken Sie vielleicht, dass es nicht so viel gibt, wovor Sie Angst haben müssen."
 
