@@ -1,6 +1,6 @@
 # Kapitel 28: Reduktionismus.
 
-Was auch immer Rowling gehen kann, wird Rowling gehen.
+Was auch immer Rowling kann, wird Rowling werden.
 
 Es sollte _wieder_ selbstverständlich sein, aber die von Severus Snape geäußerten Ansichten sind nicht unbedingt die des Autors.
 
@@ -26,11 +26,11 @@ Sie hätten niemanden mit einer transfigurierten Pille füttern können. Aber Tr
 
 Es war auch nicht die Art von Sache, an die ein Zauberer denken würde. Sie respektierten bloße _Muster von Atomen_ nicht so sehr, sie dachten nicht an unverzauberte _materielle_ Dinge als Objekte der Macht. Wenn es nicht magisch war, war es nicht interessant.
 
-Zuvor hatte Harry _sehr_ heimlich - er hatte es nicht einmal Hermine erzählt - versucht, Nanotechnologie a la Eric Drexler zu transfigurieren. (Er hatte natürlich versucht, eine Desktop-Nanofabrik zu produzieren, keine winzigen selbstreplizierenden Assembler, Harry war nicht wahnsinnig.) Es wäre sofortige Gottheit gewesen, wenn es funktioniert hätte.
+Zuvor hatte Harry _sehr_ heimlich - er hatte es nicht einmal Hermine erzählt - versucht, Nanotechnologie a la Eric Drexler zu transfigurieren. (Er hatte natürlich versucht, eine Desktop-Nanofabrik zu produzieren, keine winzigen selbstreplizierenden Assembler, Harry war nicht wahnsinnig.) Er wäre sofort eine Gottheit gewesen, wenn es funktioniert hätte.
 
 "Das war's für heute, oder?", sagte Hermine. Sie war in ihrem Stuhl nach hinten gesackt und lehnte ihren Kopf gegen die Lehne; und ihr Gesicht zeigte ihre Müdigkeit, was sehr ungewöhnlich für Hermine war. Sie mochte es, so zu tun, als wäre sie grenzenlos, zumindest wenn Harry in der Nähe war.
 
-"Noch eine", sagte Harry vorsichtig, "aber die ist klein, außerdem könnte sie tatsächlich funktionieren. Ich habe es mir für den Schluss aufgehoben, weil ich gehofft habe, dass wir mit einer positiven Note enden können. Das ist echtes Zeug, nicht wie Phaser. Sie haben es bereits im Labor geschafft, nicht so wie die Alzheimer-Heilung. Und es ist eine generische Substanz, nicht spezifisch wie die verlorenen Bücher, von denen du versucht hast, Kopien zu transfigurieren. Ich habe ein Diagramm der Molekularstruktur erstellt, um es dir zu zeigen. Wir wollen es einfach _länger_ machen als es jemals zuvor gemacht wurde, und zwar mit allen Röhren in einer Linie und den Endpunkten in Diamant eingebettet." Harry holte ein Blatt Millimeterpapier hervor.
+"Noch eine", sagte Harry vorsichtig, "aber die ist klein, außerdem könnte sie tatsächlich funktionieren. Ich habe es mir für den Schluss aufgehoben, weil ich gehofft habe, dass wir mit einem positiven Experiment enden können. Das ist echtes Zeug, nicht wie Phaser. Sie haben es bereits im Labor geschafft, nicht so wie die Alzheimer-Heilung. Und es ist eine generische Substanz, nicht spezifisch wie die verlorenen Bücher, von denen du versucht hast, Kopien zu transfigurieren. Ich habe ein Diagramm der Molekularstruktur erstellt, um es dir zu zeigen. Wir wollen es einfach _länger_ machen als es jemals zuvor gemacht wurde, und zwar mit allen Röhren in einer Linie und den Endpunkten in Diamant eingebettet." Harry holte ein Blatt Millimeterpapier hervor.
 
 Hermine setzte sich wieder auf, nahm es und studierte es stirnrunzelnd. "Das sind _alles_ Kohlenstoffatome? Und Harry, wie ist der Name? Ich kann es nicht transfigurieren, wenn ich nicht weiß, wie es heißt."
 
@@ -46,11 +46,11 @@ Hermine runzelte wieder die Stirn. "Ist dieses Zeug _sicher?_"
 
 "Ich _weiß_, was Graphit ist, Harry", sagte Hermine. Sie strich sich geistesabwesend die Haare zurück, ihre Augenbrauen zogen sich zusammen, als sie auf das Blatt Papier starrte.
 
-Harry griff in eine Tasche seiner Robe und holte einen weißen Faden hervor, der an zwei kleinen grauen Plastikringen an beiden Enden befestigt war. An den Stellen, an denen der Faden auf die beiden Ringe traf, hatte er ein paar Tropfen Sekundenkleber hinzugefügt, um das Ganze zu einem einzigen Objekt zu machen, das als Ganzes verformt werden konnte. Cyanacrylat funktionierte, wenn Harry sich richtig erinnerte, durch kovalente Bindungen, und das war so nah an einem "festen Objekt", wie man es in einer Welt, die letztlich aus winzigen einzelnen Atomen besteht, überhaupt bekommen konnte. "Wenn du bereit bist", sagte Harry, "versuche, dies in einen Satz von ausgerichteten Buckytube-Fasern zu transfigurieren, die in zwei massive Diamantringe eingebettet sind. "
+Harry griff in eine Tasche seiner Robe und holte einen weißen Faden hervor, der an zwei kleinen grauen Plastikringen an beiden Enden befestigt war. An den Stellen, an denen der Faden auf die beiden Ringe traf, hatte er ein paar Tropfen Sekundenkleber hinzugefügt, um das Ganze zu einem einzigen Objekt zu machen, das als Ganzes verformt werden konnte. Cyanacrylat funktionierte, wenn Harry sich richtig erinnerte, durch kovalente Bindungen, und das war so nah an einem "festen Objekt", wie man es in einer Welt, die letztlich aus winzigen einzelnen Atomen besteht, überhaupt bekommen konnte. "Wenn du bereit bist", sagte Harry, "versuche, dies in einen Satz von ausgerichteten Buckytube-Fasern zu transfigurieren, die in zwei massive Diamantringe eingebettet sind."
 
-"In Ordnung... "sagte Hermine langsam. "Harry, ich habe das Gefühl, ich habe gerade etwas verpasst. "
+"In Ordnung..." sagte Hermine langsam. "Harry, ich habe das Gefühl, ich habe gerade etwas verpasst."
 
-Harry zuckte hilflos mit den Schultern. _Vielleicht bist du nur müde. Er wusste es aber besser, als es laut auszusprechen.
+Harry zuckte hilflos mit den Schultern. _Vielleicht bist du nur müde._ Er wusste es aber besser, als das laut auszusprechen.
 
 Hermine legte ihren Zauberstab gegen einen Plastikring und starrte ihn eine Weile lang an.
 
@@ -58,45 +58,45 @@ Zwei kleine Kreise aus glitzerndem Diamant lagen auf dem Tisch, verbunden durch 
 
 "Es hat sich verändert", sagte Hermine. Sie klang, als würde sie versuchen, enthusiastisch zu sein, aber ihr war die Energie ausgegangen. "Was jetzt?"
 
-Harry fühlte sich durch die fehlende Leidenschaft seiner Forschungspartnerin ein wenig deflationiert, tat aber sein Bestes, um es nicht zu zeigen; vielleicht würde der gleiche Prozess in umgekehrter Richtung funktionieren, um sie aufzuheitern. "Jetzt teste ich, ob es das Gewicht hält. "
+Harry fühlte sich durch die fehlende Leidenschaft seiner Forschungspartnerin ein wenig deflationiert, tat aber sein Bestes, um es nicht zu zeigen; vielleicht würde der gleiche Prozess in umgekehrter Richtung funktionieren, um sie aufzuheitern. "Jetzt teste ich, ob es das Gewicht hält."
 
-Es gab ein A-Gestell, das Harry für ein früheres Experiment mit Diamantstäben zusammengebaut hatte - man konnte mit Hilfe von Transformation leicht massive Diamantobjekte herstellen, sie würden nur nicht halten. Das frühere Experiment hatte gemessen, ob die Verwandlung eines langen Diamantstabes in einen kürzeren Diamantstab es ermöglichen würde, ein hängendes schweres Gewicht zu heben, wenn es sich zusammenzieht, d.h.. e. Du könntest gegen die Spannung verwandeln, was du in der Tat kannst.
+Es gab ein Versuchs-Gestell, das Harry für ein früheres Experiment mit Diamantstäben zusammengebaut hatte - man konnte mit Hilfe von Transformation leicht massive Diamantobjekte herstellen, sie würden nur nicht halten. Das frühere Experiment hatte gemessen, ob die Verwandlung eines langen Diamantstabes in einen kürzeren Diamantstab es ermöglichen würde, ein hängendes schweres Gewicht zu heben, wenn der Stab sich zusammenzieht. Das würde bedeuten man könnte gegen Spannung verwandeln, was man in der Tat kann.
 
-Harry schlang vorsichtig einen Kreis aus glitzernden Diamanten über den dicken Metallhaken am oberen Ende des Riggs, dann befestigte er einen dicken Metallbügel am unteren Ring und begann dann, Gewichte an dem Bügel zu befestigen.
+Harry schlang vorsichtig einen Kreis aus glitzernden Diamanten über den dicken Metallhaken am oberen Ende des Rings, dann befestigte er einen dicken Metallbügel am unteren Ring und begann dann, Gewichte an dem Bügel zu befestigen.
 
-(Harry hatte die Weasley-Zwillinge gebeten, den Apparat für ihn zu verwandeln, und die Weasley-Zwillinge hatten ihn ungläubig angeschaut, als könnten sie sich nicht vorstellen, für welchen Streich er das _möglicherweise_ brauchen könnte, aber sie hatten keine Fragen gestellt. Und ihre Transformationen, so sagten sie, dauerten etwa drei Stunden, also hatten Harry und Hermine noch eine Weile Zeit. ).
+(Harry hatte die Weasley-Zwillinge gebeten, den Apparat für ihn zu verwandeln, und die Weasley-Zwillinge hatten ihn ungläubig angeschaut, als könnten sie sich nicht vorstellen, für welchen Streich er das _möglicherweise_ brauchen könnte, aber sie hatten keine Fragen gestellt. Und ihre Transformationen, so sagten sie, dauerten etwa drei Stunden, also hatten Harry und Hermine noch eine Weile Zeit.)
 
-"Einhundert Kilogramm", sagte Harry etwa eine Minute später. "Ich glaube nicht, dass ein so dünnes Stahlgewinde das halten würde. Es sollte viel höher gehen, aber das ist alles, was ich an Gewicht habe. "
+"Einhundert Kilogramm", sagte Harry etwa eine Minute später. "Ich glaube nicht, dass ein so dünnes Stahlgewinde das halten würde. Es sollte viel mehr gehen, aber das ist alles, was ich an Gewicht habe."
 
 Es herrschte eine weitere Stille.
 
-Harry richtete sich auf und ging zurück zu ihrem Tisch. Er setzte sich auf seinen Stuhl und machte feierlich ein Häkchen neben "Buckytubes" "Da", sagte Harry. "_Das_ hat funktioniert. "
+Harry richtete sich auf und ging zurück zu ihrem Tisch. Er setzte sich auf seinen Stuhl und machte feierlich ein Häkchen neben "Buckytubes". "Da", sagte Harry. "_Das_ hat funktioniert."
 
-"Aber es ist nicht wirklich _nützlich_, Harry, oder?"sagte Hermine von dort aus, wo sie saß und ihren Kopf in die Hände gestützt hatte. "Ich meine, selbst wenn wir sie einem Wissenschaftler geben würden, könnten sie nicht lernen, wie man viele Buckytubes macht, wenn sie unsere studieren. "
+"Aber es ist nicht wirklich _nützlich_, Harry, oder?" sagte Hermine von dort aus, wo sie saß und ihren Kopf in die Hände gestützt hatte. "Ich meine, selbst wenn wir sie einem Wissenschaftler geben würden, könnten sie nicht lernen, wie man viele Buckytubes macht, wenn sie unsere studieren."
 
 "Vielleicht können sie ja _etwas_ lernen", sagte Harry. "Hermine, _sieh_ dir das an, dieser kleine winzige Faden, der das ganze Gewicht hält, wir haben gerade etwas gemacht, was kein Muggel-Labor herstellen könnte -"
 
-"Aber jede andere Hexe könnte es schaffen", sagte Hermine. Ihre Erschöpfung kam jetzt in ihre Stimme. "Harry, ich glaube, das klappt nicht. "
+"Aber jede andere Hexe könnte es schaffen", sagte Hermine. Ihre Erschöpfung kam jetzt in ihre Stimme. "Harry, ich glaube, das klappt nicht."
 
-"Du meinst unsere Beziehung?"sagte Harry. "Toll! Lass uns aufhören. "
+"Du meinst unsere Beziehung?" sagte Harry. "Toll! Lass uns aufhören."
 
-Das entlockte ihr ein leichtes Grinsen. "Ich meine unsere Forschung. "
+Das entlockte ihr ein leichtes Grinsen. "Ich meine unsere Forschung."
 
 "Oh, Hermine, wie _konntest_ du nur?"
 
-"Du bist süß, wenn du böse bist", sagte sie. "Aber Harry, das ist verrückt, ich bin zwölf, du bist elf, es ist _dumm_ zu glauben, dass wir etwas entdecken werden, was noch niemand zuvor herausgefunden hat. "
+"Du bist süß, wenn du böse bist", sagte sie. "Aber Harry, das ist verrückt, ich bin zwölf, du bist elf, es ist _dumm_ zu glauben, dass wir etwas entdecken werden, was noch niemand zuvor herausgefunden hat."
 
-"Willst du wirklich sagen, dass wir aufgeben sollten, die Geheimnisse der Magie zu enträtseln, nachdem wir es weniger als einen _Monat_ lang versucht haben?"sagte Harry und versuchte, einen Hauch von Herausforderung in seine Stimme zu legen. Ehrlich gesagt spürte er ein wenig die gleiche Müdigkeit wie Hermine. Keine der _guten_ Ideen hat jemals funktioniert. Er hatte nur eine erwähnenswerte Entdeckung gemacht, das Mendelsche Muster, und er konnte Hermine nicht davon erzählen, ohne sein Versprechen an Draco zu brechen.
+"Willst du wirklich sagen, dass wir aufgeben sollten, die Geheimnisse der Magie zu enträtseln, nachdem wir es weniger als einen _Monat_ lang versucht haben?" sagte Harry und versuchte, einen Hauch von Herausforderung in seine Stimme zu legen. Ehrlich gesagt spürte er ein wenig die gleiche Müdigkeit wie Hermine. Keine der _guten_ Ideen hat jemals funktioniert. Er hatte nur eine erwähnenswerte Entdeckung gemacht, das Mendelsche Muster, und er konnte Hermine nicht davon erzählen, ohne sein Versprechen an Draco zu brechen.
 
-"Nein."sagte Hermine. Ihr junges Gesicht wirkte sehr ernst und erwachsen. "Ich sage, dass wir jetzt _alles_ an Magie lernen sollten, was Zauberer schon können, damit wir so etwas nach unserem Abschluss in Hogwarts machen können. "
+"Nein." sagte Hermine. Ihr junges Gesicht wirkte sehr ernst und erwachsen. "Ich sage, dass wir jetzt _alles_ an Magie lernen sollten, was Zauberer schon können, damit wir so etwas nach unserem Abschluss in Hogwarts machen können."
 
-"Ähm... "sagte Harry. "Hermine, ich sage es nur ungern, aber stell dir vor, wir hätten beschlossen, die Forschung auf später zu verschieben, und das erste, was wir nach unserem Abschluss versucht haben, war die Transformation eines Alzheimer-Heilmittels, und es _hat funktioniert. _ Wir würden uns fühlen... Ich denke nicht, dass das Wort _dumm_ angemessen beschreiben würde, wie wir uns fühlen würden. Was ist, wenn es so etwas gibt und es funktioniert?"
+"Ähm..." sagte Harry. "Hermine, ich sage es nur ungern, aber stell dir vor, wir hätten beschlossen, die Forschung auf später zu verschieben, und das erste, was wir nach unserem Abschluss versucht haben, wäre die Transformation eines Alzheimer-Heilmittels, und es _würde funktionieren_. Wir würden uns fühlen... Ich denke nicht, dass das Wort _dumm_ angemessen beschreiben würde, wie wir uns fühlen würden. Was ist, wenn es so etwas gibt und es funktioniert?"
 
-"Das ist nicht _fair_, Harry!"sagte Hermine. Ihre Stimme zitterte, als wäre sie kurz davor, in Tränen auszubrechen. "Das kann man den Leuten nicht _aufbürden_! Es ist nicht unser _Job_, so etwas zu tun, wir sind _Kinder!_ "
+"Das ist nicht _fair_, Harry!" sagte Hermine. Ihre Stimme zitterte, als wäre sie kurz davor, in Tränen auszubrechen. "Das kann man den Leuten nicht _aufbürden_! Es ist nicht _unser_ Job, so etwas zu tun, wir sind _Kinder!_"
 
-Einen Moment lang fragte sich Harry, was passieren würde, wenn jemand Hermine sagen würde, dass sie gegen einen unsterblichen Dunklen Lord kämpfen müsste, ob sie sich in einen der weinerlichen, selbstmitleidigen Helden verwandeln würde, von denen Harry es nie ertragen konnte, in seinen Büchern zu lesen.
+Einen Moment lang fragte sich Harry, was passieren würde, wenn jemand Hermine sagen würde, dass sie gegen einen unsterblichen Dunklen Lord kämpfen müsste? Ob sie sich in einen der weinerlichen, selbstmitleidigen Helden verwandeln würde, von denen Harry es nie ertragen konnte, in seinen Büchern zu lesen.
 
-"Wie auch immer", sagte Hermine. Ihre Stimme zitterte. "Ich will das nicht weiter machen. Ich glaube nicht, dass Kinder Dinge tun können, die Erwachsene nicht können, das gibt es nur in Geschichten. "
+"Wie auch immer", sagte Hermine. Ihre Stimme zitterte. "Ich will das nicht weiter machen. Ich glaube nicht, dass Kinder Dinge tun können, die Erwachsene nicht können, das gibt es nur in Geschichten."
 
 Es herrschte Stille im Klassenzimmer.
 
@@ -112,7 +112,7 @@ Mühsam riss Harry seinen Blick von Hermine los. "Ich bin nicht wütend auf _dic
 
 Es herrschte mehr Stille.
 
-"Okay", sagte Hermine, ihre Stimme schwankte ein wenig. Sie erhob sich von ihrem Stuhl und ging zur Tür des verlassenen Klassenzimmers, in dem sie gearbeitet hatten. Ihre Hand ging auf den Türknauf. "Wir sind doch noch Freunde, oder? Und wenn du nichts herausfinden kannst -"
+"Okay", sagte Hermine, ihre Stimme schwankte ein wenig. Sie erhob sich von ihrem Stuhl und ging zur Tür des verlassenen Klassenzimmers, in dem sie gearbeitet hatten. Ihre Hand ergriff den Türknauf. "Wir sind doch noch Freunde, oder? Und wenn du nichts herausfinden kannst -"
 
 Ihre Stimme stockte.
 
@@ -122,29 +122,29 @@ Ihre Stimme stockte.
 
 Manchmal hasste Harry es, eine dunkle Seite zu haben, selbst wenn er in ihr war.
 
-Und der Teil von ihm, der genau das Gleiche wie Hermine gedacht hatte, dass Kinder nicht tun konnten, was Erwachsene nicht konnten, sagte all die Dinge, die Hermine zu ängstlich gewesen war, um sie zu sagen, wie zum Beispiel: "Das ist eine verdammt schwierige Herausforderung, die du dir gerade geschnappt hast"und "Junge, dieses Mal wirst du mit Eiern im Gesicht enden"und "So weißt du wenigstens, dass du versagt hast. _
+_Und der Teil von ihm, der genau das Gleiche wie Hermine gedacht hatte, dass Kinder nicht tun konnten, was Erwachsene nicht konnten, sagte all die Dinge, die Hermine zu ängstlich gewesen war, um sie zu sagen, wie zum Beispiel: "Das ist eine verdammt schwierige Herausforderung, die du dir gerade geschnappt hast" und "Junge, dieses Mal wirst du mit Eiern im Gesicht enden" und "So weißt du wenigstens, dass du versagt hast"._
 
-Und der Teil von ihm, der es nicht genoss zu verlieren, antwortete mit sehr kalter Stimme: _Fein, du kannst die Klappe halten und zusehen. _
+_Und der Teil von ihm, der es nicht genoss zu verlieren, antwortete mit sehr kalter Stimme: Fein, du kannst die Klappe halten und zusehen._
 
 * * *
 
-Es war fast Mittagszeit und Harry war es egal. Er hatte sich nicht einmal die Mühe gemacht, einen Snack-Riegel aus seinem Beutel zu holen. Sein Magen könnte ein wenig Hunger vertragen.
+Es war fast Mittagszeit und Harry war es egal. Er hatte sich nicht einmal die Mühe gemacht, einen Snack-Riegel aus seinem Beutel zu holen. Sein Magen konnte ein wenig Hunger vertragen.
 
-Die Zaubererwelt war winzig, sie dachten nicht wie Wissenschaftler, sie kannten keine Wissenschaft, sie hinterfragten nicht, womit sie aufgewachsen waren, sie hatten keine Schutzhüllen an ihren Zeitmaschinen angebracht, sie spielten Quidditch, ganz magisches Großbritannien war kleiner als eine kleine Muggelstadt, die größte Zaubererschule bildete nur bis zum Alter von siebzehn Jahren aus, _dumm_ war es, das mit elf Jahren nicht zu hinterfragen, _dumm_ war es, _anzunehmen_, dass Zauberer wussten, was sie taten und bereits alle tief hängenden Früchte ausgeschöpft hatten, die ein wissenschaftlicher Polymath sehen würde.
+Die Zaubererwelt war winzig, sie dachten nicht wie Wissenschaftler, sie kannten keine Wissenschaft, sie hinterfragten nicht, womit sie aufgewachsen waren, sie hatten keine Schutzhüllen an ihren Zeitmaschinen angebracht, sie spielten Quidditch, das ganze magische Großbritannien war kleiner als eine kleine Muggelstadt, die größte Zaubererschule bildete nur bis zum Alter von siebzehn Jahren aus. _Dumm_ war es, das mit elf Jahren nicht zu hinterfragen, _dumm_ war es, _anzunehmen_, dass Zauberer wussten, was sie taten und bereits alle tief hängenden Früchte geerntet hatten, die ein wissenschaftlicher Polymath sehen würde.
 
 Schritt Eins war gewesen, eine Liste mit allen magischen Einschränkungen zu erstellen, an die Harry sich erinnern konnte, all die Dinge, die man angeblich nicht tun konnte.
 
 Schritt Zwei: Markiere die Einschränkungen, die aus wissenschaftlicher Sicht am _wenigsten_ Sinn zu machen scheinen.
 
-Schritt Drei: Priorisiere Einschränkungen, die ein Assistent wahrscheinlich nicht in Frage stellen würde, wenn er _nicht_ die Wissenschaft kennt.
+Schritt Drei: Priorisiere Einschränkungen, die ein Assistent wahrscheinlich nicht in Frage stellen würde, wenn er _nicht_ die Wissenschaft kannte.
 
-Schritt 4: Überlege dir Wege, wie du sie angreifen kannst.
+Schritt 4: Überlege dir Wege, wie du sie umgehen kannst.
 
 * * *
 
 Hermine fühlte sich immer noch ein wenig zittrig, als sie sich neben Mandy an den Ravenclaw-Tisch setzte. Hermines Mittagessen bestand aus zwei Früchten (Tomatenscheiben und geschälte Mandarinen), drei Gemüsesorten (Karotten, Karotten und noch mehr Karotten), einem Fleisch (gebratene Diricawl-Keulen, deren ungesunde Beschichtung sie vorsichtig entfernen würde) und einem kleinen Stück Schokoladenkuchen, das sie sich durch das Essen der anderen Teile verdienen würde.
 
-Es war nicht so schlimm gewesen wie der Zaubertrankunterricht, von dem sie manchmal immer noch _Alpträume_ hatte. Aber dieses Mal hatte _sie_ es geschehen lassen und _sie_ hatte sich wie sein Ziel gefühlt. Nur für einen Moment, bevor die schrecklich kalte Dunkelheit wegschaute und sagte, dass sie nicht wütend auf sie sei, weil sie sie nicht erschrecken wollte.
+Es war nicht so schlimm gewesen wie der Zaubertrankunterricht, von dem sie manchmal immer noch _Alpträume_ hatte. Aber dieses Mal hatte _sie_ es geschehen lassen und _sie_ hatte sich wie sein Ziel gefühlt. Nur für einen Moment, bevor die schrecklich kalte Dunkelheit wegschaute hatte und sagte, dass sie nicht wütend auf sie sei, weil sie sie nicht erschrecken wollte.
 
 Und sie hatte immer noch das Gefühl, dass sie vorhin etwas verpasst hatte, etwas wirklich Wichtiges.
 
@@ -152,17 +152,17 @@ Aber sie hatten gegen keine der Regeln der Transformation verstoßen... Hatten s
 
 Die _Pille!_ Das war etwas zu essen gewesen!
 
-... naja, nein, niemand würde einfach eine herumliegende Pille essen, es hatte eigentlich nicht _geklappt_, sie hätten es einfach _Finite Incantatemed_, wenn es geklappt hätte, aber sie würde Harry trotzdem davon erzählen müssen und darauf achten, dass sie es nicht vor Professor McGonagall erwähnten, falls sie nie wieder Transformation studieren durften...
+... naja, nein, niemand würde einfach eine herumliegende Pille essen, es hatte eigentlich nicht _geklappt_, sie hätten es einfach per _Finite Incantatemed_ entzaubert, wenn es geklappt hätte, aber sie würde Harry trotzdem davon erzählen müssen und darauf achten, dass sie es nicht vor Professor McGonagall erwähnten, nicht dass sie nie wieder Transformation studieren durften...
 
 Hermine bekam langsam ein richtig mulmiges Gefühl im Magen. Sie schob ihren Teller vom Tisch zurück, so konnte sie nicht zu Mittag essen.
 
 Und sie schloss ihre Augen und begann im Geiste die Regeln der Transformation zu rezitieren.
 
-Ich werde niemals etwas in Flüssigkeit oder Gas verwandeln. "_
+_"Ich werde niemals etwas in Flüssigkeit oder Gas verwandeln."_
 
-Ich werde niemals irgendetwas verwandeln, das wie Essen aussieht oder irgendetwas anderes, das in einen menschlichen Körper hineinpasst. "_
+_"Ich werde niemals irgendetwas verwandeln, das wie Essen aussieht oder irgendetwas anderes, das in einen menschlichen Körper hineinpasst."_
 
-Nein, sie hätten wirklich _nicht_ versuchen sollen, die Pille zu verwandeln, oder sie hätten es zumindest _erkennen sollen... Sie war so gefangen von Harrys brillanter Idee, dass sie nicht nachgedacht hatte... _
+_Nein, sie hätten wirklich_ nicht _versuchen sollen, die Pille zu verwandeln, oder sie hätten es zumindest_ erkennen _sollen... Sie war so gefangen von Harrys brillanter Idee, dass sie nicht nachgedacht hatte..._
 
 Das ungute Gefühl in Hermines Magen wurde immer schlimmer. Sie hatte das Gefühl, dass etwas am Rande des Erkennens schwebte, eine Wahrnehmung, die im Begriff war, sich umzukehren, eine junge Frau, die im Begriff war, eine alte Frau zu werden, eine Vase, die im Begriff war, zwei Gesichter zu werden...
 
@@ -176,13 +176,13 @@ Nun, vielleicht hat diese Einschränkung _doch_ Sinn gemacht. Die Luft war ungeo
 
 Je mehr Harry versagte, je kälter er sich fühlte, desto klarer schien alles zu werden.
 
-Na gut. Der nächste auf der Liste.
+Na gut. Das nächste auf der Liste.
 
 Du konntest nur ganze Objekte als Ganzes transfigurieren. Du konntest nicht _die Hälfte_ eines Streichholzes in eine Nadel verwandeln, du musstest _das ganze Ding_ verwandeln. Damals, als Harry von Draco in diesem Klassenzimmer gefangen worden war, war das der Grund gewesen, warum er nicht einfach einen dünnen zylindrischen Querschnitt der Wände in Schwamm verwandeln und ein Stück Stein herausschlagen konnte, das groß genug war, damit er durch das Loch passte. Er hätte der ganzen Wand eine neue Form aufzwingen müssen, und vielleicht einen ganzen Abschnitt von Hogwarts, nur um diesen kleinen Querschnitt zu verändern.
 
-Und das war _lächerlich_
+Und das war _lächerlich_.
 
-_Die Dinge wurden aus Atomen gemacht. Viele kleine, winzige Pünktchen. Es gab _keine_ Kontiguität, es gab _keine_ Festigkeit, nur elektromagnetische Kräfte, die die kleinen Punkte in Beziehung zueinander hielten...
+_Die Dinge bestanden aus Atomen. Viele kleine, winzige Pünktchen. Es gab_ keine _Kontiguität, es gab_ keine _Festigkeit, nur elektromagnetische Kräfte, die die kleinen Punkte in Beziehung zueinander hielten..._
 
 * * *
 
@@ -192,35 +192,35 @@ Mandy Brocklehurst hielt mit ihrer Gabel auf dem Weg zu ihrem Mund inne. "Huh", 
 
 Harry wollte seinen Radiergummi töten.
 
-Er hatte versucht, eine einzelne Stelle auf dem rosa Rechteck in Stahl zu verwandeln, abgesehen vom Rest des Gummis, und der Radiergummi hat nicht kooperiert.
+Er hatte versucht, eine einzelne Stelle auf dem rosa Rechteck in Stahl zu verwandeln, abgesehen vom Rest des Gummis, und der Radiergummi hatte nicht kooperiert.
 
-Es _sollte_ eine konzeptionelle Einschränkung sein, keine reale. _Musste_ sein.
+Es _sollte_ eine konzeptionelle Einschränkung sein, keine reale. Es _musste_ einfach sein.
 
 Die Dinge waren aus Atomen gemacht, und jedes Atom war ein winziges separates Ding. Atome wurden durch einen Quantennebel gemeinsamer Elektronen zusammengehalten, für kovalente Bindungen, oder manchmal auch nur durch Magnetismus im Nahbereich, für ionische Bindungen oder van der Waals Kräfte.
 
 Wenn es darauf ankam, waren die Protonen und Neutronen im Inneren der Kerne winzige separate Dinge. Die Quarks im Inneren der Protonen und Neutronen waren winzige separate Dinge! In der Realität, der Welt da draußen, gab es einfach _nichts_, was der Vorstellung der Menschen von festen Objekten entsprach. Es waren alles nur kleine Pünktchen.
 
-Und die freie Transformation war anfangs nur im Kopf, nicht wahr? Keine Worte, keine Gesten. Nur der reine Begriff der Form, der streng von der Substanz getrennt gehalten wird, wird der Substanz auferlegt, die getrennt von ihrer Form gedacht wird. Das und der Zauberstab und was auch immer dich zu einem Zauberer gemacht hat.
+Und die freie Transformation war anfangs nur im Kopf, nicht wahr? Keine Worte, keine Gesten. Nur der reine Begriff der Form, der streng von der Substanz getrennt gehalten wird, wird der Substanz auferlegt, die getrennt von ihrer Form gedacht wird. Das und der Zauberstab und was auch immer dich zu einem Zauberer machte.
 
-Die Zauberer konnten keine Teile von Dingen transformieren, sie konnten nur das transformieren, was ihr Verstand als Ganzes wahrnahm, weil sie nicht _in ihren Knochen_ wussten, dass tief unten alles nur Atome waren.
+Die Zauberer konnten keine Teile von Dingen transformieren, sie konnten nur das transformieren, was ihr Verstand als Ganzes wahrnahm, weil sie nicht _tief in Ihrem Inneren_ wussten, dass tief unten alles nur Atome waren.
 
 Harry hatte sich auf dieses Wissen konzentriert, so gut er konnte, auf die _wahre Tatsache_, dass der Radiergummi nur eine Ansammlung von Atomen war, alles war nur eine Ansammlung von Atomen, und die Atome des kleinen Flecks, den er zu verwandeln versuchte, bildeten _genau so eine gültige_ Ansammlung wie jede andere Ansammlung, an die er denken konnte.
 
 Und Harry war immer noch nicht in der Lage gewesen, das einzelne Teil des Radiergummis zu verändern, die Transformation ging nirgendwo hin.
 
-_Das. War. Lächerlich. _
+_Das. War. Lächerlich._
 
-Harrys Fingerknöchel wurden wieder weiß an seinem Zauberstab. Er war _krank_ davon, experimentelle Ergebnisse zu bekommen, die _keinen Sinn ergaben_ _
+Harrys Fingerknöchel wurden wieder weiß an seinem Zauberstab. Er war _krank_ davon, experimentelle Ergebnisse zu bekommen, die _keinen Sinn ergaben_.
 
-Vielleicht hielt die Tatsache, dass _ein_ Teil seines Verstandes immer noch in Begriffen von Gegenständen dachte, die Transformation davon ab, durchzugehen. Er hatte an eine Ansammlung von Atomen gedacht, die ein _Löscher war. Er hatte an eine Sammlung gedacht, die ein _kleines Pflaster war. _
+Vielleicht hielt die Tatsache, dass _ein_ Teil seines Verstandes immer noch in Begriffen von Gegenständen dachte, die Transformation davon ab, durchzugehen. Er hatte an eine Ansammlung von Atomen gedacht, die ein _Radierer_ war. Er hatte an eine Sammlung gedacht, die ein _kleines Fleckchen_ war.
 
 Zeit, einen Zahn zuzulegen.
 
 Harry drückte seinen Zauberstab fester gegen das winzige Stück Radiergummi und versuchte, durch die Illusion zu sehen, die Nichtwissenschaftler für die Realität hielten, die Welt der Tische und Stühle, der Luft und Radiergummis und Menschen.
 
-Wenn du durch einen Park gehst, ist die immersive Welt, die dich umgibt, etwas, das in deinem eigenen Gehirn als ein Muster von feuernden Neuronen existiert. Das Gefühl eines strahlend blauen Himmels war nicht etwas hoch über dir, es war etwas in deinem visuellen Kortex, und dein visueller Kortex war im hinteren Teil deines Gehirns. Alle Empfindungen dieser hellen Welt spielten sich in Wirklichkeit in der stillen Knochenhöhle ab, die du deinen Schädel nennst, dem Ort, an dem _du_ gelebt hast und den du niemals verlassen hast. Wenn du wirklich jemandem Hallo sagen wolltest, der _eigentlichen Person,_ würdest du nicht ihre Hand schütteln, du würdest sanft auf ihren Schädel klopfen und sagen: "Wie geht es dir da drinnen?"Das war es, was die Menschen waren, das war es, wo sie wirklich lebten. Und das _Bild_ des Parks, durch den du zu gehen glaubtest, war etwas, das in deinem Gehirn visualisiert wurde, während es die Signale verarbeitete, die von deinen Augen und deiner Netzhaut gesendet wurden.
+Wenn du durch einen Park gehst, ist die immersive Welt, die dich umgibt, etwas, das in deinem eigenen Gehirn als ein Muster von feuernden Neuronen existiert. Das Gefühl eines strahlend blauen Himmels war nicht etwas hoch über dir, es war etwas in deinem visuellen Kortex, und dein visueller Kortex war im hinteren Teil deines Gehirns. Alle Empfindungen dieser hellen Welt spielten sich in Wirklichkeit in der stillen Knochenhöhle ab, die du deinen Schädel nennst, dem Ort, an dem _du_ gelebt hast und den du niemals verlassen hast. Wenn du wirklich jemandem Hallo sagen wolltest, der _eigentlichen Person_, würdest du nicht ihre Hand schütteln, du würdest sanft auf ihren Schädel klopfen und sagen: "Wie geht es dir da drinnen?" Das war es, was die Menschen waren, das war es, wo sie wirklich lebten. Und das _Bild_ des Parks, durch den du zu gehen glaubtest, war etwas, das in deinem Gehirn visualisiert wurde, während es die Signale verarbeitete, die von deinen Augen und deiner Netzhaut gesendet wurden.
 
-Es war keine _Lüge_, wie die Buddhisten dachten, es gab nicht etwas furchtbar Mystisches und Unerwartetes hinter dem Schleier der Maya, was hinter der Illusion des Parks lag, war nur der _eigentliche Park_, aber es war alles noch _Illusion_
+Es war keine _Lüge_, wie die Buddhisten dachten, es gab nicht etwas furchtbar Mystisches und Unerwartetes hinter dem Schleier der Maya, was hinter der Illusion des Parks lag, war nur der _eigentliche Park_, aber es war alles noch _Illusion_.
 
 Harry saß nicht im Klassenzimmer.
 
@@ -234,21 +234,21 @@ Der echte Radiergummi war irgendwo anders, irgendwo, das nicht das Bild war.
 
 Und der echte Radiergummi war nicht so wie das Bild, das Harrys Gehirn davon hatte. Die Idee des Radiergummis als _festes Objekt_ war etwas, das nur in seinem eigenen Gehirn existierte, im parietalen Kortex, der seinen Sinn für Form und Raum verarbeitete. Der echte Radiergummi war eine Ansammlung von Atomen, die durch elektromagnetische Kräfte zusammengehalten wurden und kovalente Elektronen teilten, während in der Nähe Luftmoleküle aneinander und an den Radiergummi-Molekülen abprallten.
 
-Der echte Radiergummi war weit weg, und Harry konnte ihn in seinem Schädel nie ganz berühren, konnte sich nur Vorstellungen davon machen. Aber _sein Zauberstab hatte die Macht,_ er konnte die Dinge da draußen in der _Realität_ verändern, es waren nur Harrys eigene Vorurteile, die ihn _begrenzten_ Irgendwo hinter dem Schleier von Maya berührte die _Wahrheit_ hinter Harrys Konzept von "meinem Zauberstab"die Ansammlung von Atomen, die Harrys Verstand als "einen Fleck auf dem Radiergummi"betrachtete, und wenn dieser Zauberstab die Ansammlung von Atomen verändern konnte, die Harry als "den ganzen Radiergummi"betrachtete, gab es absolut keinen Grund, warum er nicht auch die andere Ansammlung verändern konnte...
+Der echte Radiergummi war weit weg, und Harry konnte ihn in seinem Schädel nie ganz berühren, konnte sich nur Vorstellungen davon machen. Aber _sein Zauberstab hatte die Macht_, er konnte die Dinge da draußen in der _Realität_ verändern, es waren nur Harrys eigene Vorurteile, die ihn _begrenzten_. Irgendwo hinter dem Schleier von Maya berührte die _Wahrheit_ hinter Harrys Konzept von "meinem Zauberstab" die Ansammlung von Atomen, die Harrys Verstand als "einen Fleck auf dem Radiergummi" betrachtete, und wenn dieser Zauberstab die Ansammlung von Atomen verändern konnte, die Harry als "den ganzen Radiergummi" betrachtete, gab es absolut keinen Grund, warum er nicht auch die andere Ansammlung verändern konnte...
 
 Die Transformation ging immer noch nicht durch.
 
 Harry biss die Zähne zusammen und legte noch einen Zahn zu.
 
-Die Vorstellung, die Harrys Verstand von dem Radiergummi als einem einzelnen Objekt hatte, war _offensichtlicher Unsinn. _
+Die Vorstellung, die Harrys Verstand von dem Radiergummi als einem einzelnen Objekt hatte, war _offensichtlicher Unsinn_.
 
 Es war eine Karte, die nicht mit dem Territorium übereinstimmte und auch nicht übereinstimmen konnte.
 
 Die Menschen modellierten die Welt mit geschichteten Organisationsebenen, sie hatten _getrennte Gedanken_ darüber, wie Länder funktionierten, wie Menschen funktionierten, wie Organe funktionierten, wie Zellen funktionierten, wie Moleküle funktionierten, wie Quarks funktionierten.
 
-Wenn Harrys Gehirn über den Radiergummi nachdenken musste, dachte es an die Regeln, die für Radiergummis galten, wie z.B. "Radiergummis können Bleistiftflecken wegmachen" Nur wenn Harrys Gehirn vorhersagen müsste, was auf der unteren chemischen Ebene passieren würde, nur dann würde Harrys Gehirn anfangen - als ob es eine separate Tatsache wäre - über Gummimoleküle nachzudenken.
+Wenn Harrys Gehirn über den Radiergummi nachdenken musste, dachte es an die Regeln, die für Radiergummis galten, wie z.B. "Radiergummis können Bleistiftflecken wegmachen". Nur wenn Harrys Gehirn vorhersagen müsste, was auf der unteren chemischen Ebene passieren würde, nur dann würde Harrys Gehirn anfangen - als ob es eine separate Tatsache wäre - über Gummimoleküle nachzudenken.
 
-Aber das war alles im _Geist. _
+Aber das war alles im _Geist_.
 
 Harrys Verstand mochte separate _Glauben_ über Regeln haben, die für Radiergummis gelten, aber es gab kein _separates Gesetz der Physik_, das für Radiergummis galt.
 
@@ -256,9 +256,9 @@ Harrys Verstand modellierte die Realität auf mehreren Organisationsebenen, mit 
 
 Zumindest hatte Harry das geglaubt, bevor er von der Magie erfuhr, aber der Radiergummi war nicht magisch.
 
-Und selbst wenn der Radiergummi magisch gewesen wäre, war die Vorstellung, dass es _wirklich_ einen einzigen festen Radiergummi geben könnte, _unmöglich_ Dinge wie Radiergummis _konnten_ keine Grundelemente der Realität sein, sie waren zu groß und kompliziert, um Atome zu sein, sie _mussten_ aus Teilen bestehen. Du konntest keine Dinge haben, die _grundlegend kompliziert_ waren. Der implizite Glaube, den Harrys Gehirn an den Radiergummi als ein einzelnes Objekt hatte, war nicht nur _falsch_, es war eine Karte-Territorium-Verwirrung, der Radiergummi existierte nur als ein separates Konzept in Harrys mehrstufigem _Modell_ der Welt, nicht als ein separates Element der einstufigen Realität.
+Und selbst wenn der Radiergummi magisch gewesen wäre, war die Vorstellung, dass es _wirklich_ einen einzigen festen Radiergummi geben könnte, _unmöglich_. Dinge wie Radiergummis _konnten_ keine Grundelemente der Realität sein, sie waren zu groß und kompliziert, um Atome zu sein, sie _mussten_ aus Teilen bestehen. Du konntest keine Dinge haben, die _grundlegend kompliziert_ waren. Der implizite Glaube, den Harrys Gehirn an den Radiergummi als ein einzelnes Objekt hatte, war nicht nur _falsch_, es war eine Karte-Territorium-Verwirrung, der Radiergummi existierte nur als ein separates Konzept in Harrys mehrstufigem _Modell_ der Welt, nicht als ein separates Element der einstufigen Realität.
 
-... die Transformation _noch immer nicht stattgefunden hat. _
+... die Transformation hatte _noch immer nicht stattgefunden_.
 
 Harry atmete schwer, gescheiterte Transformation war fast so anstrengend wie erfolgreiche Transformation, aber _verdammt_, wenn er jetzt aufgeben würde.
 
@@ -266,7 +266,7 @@ Okay, scheiß auf diesen Müll aus dem 19. Jahrhundert.
 
 Die Realität bestand nicht aus Atomen, sie war kein Set von winzigen Billardkugeln, die herumhüpften. Das war nur eine weitere Lüge. Die Vorstellung von Atomen als kleine Punkte war nur eine weitere bequeme Halluzination, an die sich die Menschen klammerten, weil sie sich nicht mit der unmenschlich fremden Form der zugrunde liegenden Realität auseinandersetzen wollten. Kein Wunder also, dass seine Versuche, darauf basierend zu verwandeln, nicht funktioniert hatten. Wenn er Macht wollte, musste er seine Menschlichkeit aufgeben und seine Gedanken dazu zwingen, der wahren Mathematik der Quantenmechanik zu entsprechen.
 
-Es gab _keine Teilchen_, es gab nur _Amplitudenwolken_ in einem _Mehrteilchenkonfigurationsraum_ und was sich sein Gehirn liebevoll als Radiergummi vorstellte, war nichts anderes als ein gigantischer _Faktor_ in einer Wellenfunktion, der _zufällig faktorisiert_ war, Wenn sein Zauberstab in der Lage war, _Faktoren in einer annähernd faktorisierbaren Wellenfunktion_ zu verändern, dann sollte er verdammt nochmal auch in der Lage sein, den etwas _kleineren_ Faktor zu verändern, den Harrys Gehirn als ein Stück Material auf dem Radiergummi visualisierte.
+Es gab _keine Teilchen_, es gab nur _Amplitudenwolken_ in einem _Mehrteilchenkonfigurationsraum_ und was sich sein Gehirn liebevoll als Radiergummi vorstellte, war nichts anderes als ein gigantischer _Faktor_ in einer Wellenfunktion, der _zufällig faktorisiert_ war. Wenn sein Zauberstab in der Lage war, _Faktoren in einer annähernd faktorisierbaren Wellenfunktion_ zu verändern, dann sollte er verdammt nochmal auch in der Lage sein, den etwas _kleineren_ Faktor zu verändern, den Harrys Gehirn als ein Stück Material auf dem Radiergummi visualisierte.
 
 * * *
 
@@ -276,17 +276,17 @@ Wie das Bild einer jungen Frau, die sich in eine alte Krone verwandelt, wie die 
 
 Was hatten sie denn gemacht?
 
-Was hatten sie gemacht?_Was hatten sie gemacht?
+Was hatten sie gemacht? _Was hatten sie gemacht?_
 
-Sie kam zum Klassenzimmer und ihre Finger rutschten zuerst auf dem Türknauf ab, zu verschwitzt, sie griff fester zu und die Tür öffnete sich -.
+Sie kam zum Klassenzimmer und ihre Finger rutschten zuerst auf dem Türknauf ab, zu verschwitzt, sie griff fester zu und die Tür öffnete sich -
 
-\- In einem einzigen Wahrnehmungsblitz sah sie, wie Harry auf ein kleines rosa Rechteck auf dem Tisch vor ihm starrte -.
+In einem einzigen Wahrnehmungsblitz sah sie, wie Harry auf ein kleines rosa Rechteck auf dem Tisch vor ihm starrte -
 
-\- als ein paar Schritte entfernt der winzige schwarze Faden, fast unsichtbar aus dieser Entfernung, all das Gewicht trug -.
+als ein paar Schritte entfernt der winzige schwarze Faden, fast unsichtbar aus dieser Entfernung, all das Gewicht trug -
 
 "Harry, raus aus dem Klassenzimmer!"
 
-Purer Schock überzog Harrys Gesicht und er stand so schnell auf, dass er fast hinfiel. Er hielt nur inne, um das kleine rosa Rechteck vom Tisch zu nehmen und rannte aus der Tür, sie war bereits zur Seite getreten, ihren Zauberstab schon in der Hand und zeigte auf den Faden -.
+Purer Schock überzog Harrys Gesicht und er stand so schnell auf, dass er fast hinfiel. Er hielt nur inne, um das kleine rosa Rechteck vom Tisch zu nehmen und rannte aus der Tür, sie war bereits zur Seite getreten, ihren Zauberstab schon in der Hand und zeigte auf den Faden -
 
 "_Finite Incantatem!_"
 
@@ -304,95 +304,95 @@ Hermine blinzelte und bemerkte, dass sie zu fallen begonnen hatte. Harry hatte s
 
 Harry sah noch erschrockener aus, als er die Frage verstand. "Ich, ich glaube nicht, dass ich irgendwelche Symptome habe -"
 
-Hermine schloss für einen Moment die Augen. "Gut", flüsterte sie. "Fangen, atmen. "
+Hermine schloss für einen Moment die Augen. "Gut", flüsterte sie. "Beruhigen, atmen."
 
 Das hat eine Weile gedauert. Harry sah immer noch erschrocken aus. Das war auch gut, vielleicht würde es ihm eine Lektion erteilen.
 
-Hermine griff in den Beutel, den Harry ihr gekauft hatte, flüsterte "Wasser"durch ihre ausgedörrte Kehle, nahm die Flasche heraus und trank in großen Schlucken.
+Hermine griff in den Beutel, den Harry ihr gekauft hatte, flüsterte "Wasser" durch ihre ausgedörrte Kehle, nahm die Flasche heraus und trank in großen Schlucken.
 
 Und dann dauerte es noch eine Weile, bis sie wieder sprechen konnte.
 
-"Wir haben die Regeln gebrochen, Harry", sagte sie mit heiserer Stimme. "Wir haben die Regeln gebrochen. "
+"Wir haben die Regeln gebrochen, Harry", sagte sie mit heiserer Stimme. "Wir haben die Regeln gebrochen."
 
-"I... "Harry schluckte. "Ich weiß immer noch nicht, wie, ich habe _nachgedacht_, aber -"
+"Ich..." Harry schluckte. "Ich weiß immer noch nicht, wie, ich habe _nachgedacht_, aber -"
 
 "Ich habe gefragt, ob die Transformation sicher ist und _du hast mir geantwortet!_"
 
 Es gab eine Pause.
 
-"Das war's?"sagte Harry.
+"Das war's?" sagte Harry.
 
 Sie hätte schreien können.
 
-"Harry, verstehst du es nicht?", sagte sie. "Es ist aus winzigen Fasern gemacht, was, wenn es sich _auflöst,_ wer _weiß_ was schief gehen könnte, _wir haben Professor McGonagall nicht gefragt!_ Siehst du nicht, was wir getan haben? Wir haben mit Transformation experimentiert. Wir haben _experimentiert_ mit _Transformation!_ "
+"Harry, verstehst du es nicht?", sagte sie. "Es ist aus winzigen Fasern gemacht, was, wenn es sich _auflöst,_ wer _weiß_ was schief gehen könnte, _wir haben Professor McGonagall nicht gefragt!_ Siehst du nicht, was wir getan haben? Wir haben mit Transformation experimentiert. Wir haben _experimentiert_ mit _Transformation!_"
 
 Es gab eine weitere Pause.
 
-"Genau... "sagte Harry langsam. "Das ist wahrscheinlich eines der Dinge, die sie dir gar nicht sagen, weil es zu offensichtlich ist, dass du es nicht tun sollst. Teste keine brillanten neuen Ideen für Transformation alleine in einem unbenutzten Klassenzimmer ohne Rücksprache mit den Professoren. "
+"Genau..." sagte Harry langsam. "Das ist wahrscheinlich eines der Dinge, die sie dir gar nicht sagen, weil es zu offensichtlich ist, dass du es nicht tun sollst. Teste keine brillanten neuen Ideen für Transformation alleine in einem unbenutzten Klassenzimmer ohne Rücksprache mit den Professoren."
 
-"Du hättest uns umbringen können, Harry!"Hermine wusste, dass es nicht fair war, sie hatte den Fehler auch gemacht, aber sie war trotzdem wütend auf ihn, er klang immer so zuversichtlich und das hatte sie gedankenlos mitgerissen. "Wir hätten _Professor McGonagall's perfekten Rekord _verschmutzen können!"
+"Du hättest uns umbringen können, Harry!" Hermine wusste, dass es nicht fair war, sie hatte den Fehler auch gemacht, aber sie war trotzdem wütend auf ihn, er klang immer so zuversichtlich und das hatte sie gedankenlos mitgerissen. "Wir hätten _Professor McGonagall's perfekte Bilanz_ verderben können!"
 
 "Ja", sagte Harry, "lass uns ihr nichts davon erzählen, ja?"
 
-"Wir müssen aufhören", sagte Hermine. "Wir müssen damit aufhören, sonst werden wir noch verletzt. Wir sind zu jung, Harry, wir können das nicht tun, noch nicht. "
+"Wir müssen aufhören", sagte Hermine. "Wir müssen damit aufhören, sonst werden wir noch verletzt. Wir sind zu jung, Harry, wir können das nicht tun, noch nicht."
 
-Ein schwaches Grinsen ging über Harrys Gesicht. "Ähm, da liegst du irgendwie falsch. "
+Ein schwaches Grinsen ging über Harrys Gesicht. "Ähm, da liegst du irgendwie falsch."
 
-Und er hielt ein kleines rosafarbenes Rechteck hin, einen Radiergummi mit einem hellen Metallfleck darauf.
+Und er hielt ihr ein kleines rosafarbenes Rechteck hin, einen Radiergummi mit einem hellen Metallfleck darauf.
 
 Hermine starrte ihn verwirrt an.
 
-"Die Quantenmechanik war nicht genug", sagte Harry. "Ich musste den ganzen Weg bis zur zeitlosen Physik gehen, bevor es ankam. Ich musste sehen, dass der Zauberstab eine _Beziehung_ zwischen getrennten vergangenen und zukünftigen Realitäten erzwingt, anstatt irgendetwas über die Zeit zu _verändern_ - aber ich habe es geschafft, Hermine, ich habe über die Illusion von Objekten hinweggesehen und ich wette, es gibt keinen einzigen anderen Zauberer auf der Welt, der das hätte tun können. Selbst wenn einige Muggelgeborene über zeitlose Formulierungen der Quantenmechanik Bescheid wüssten, wäre es nur ein seltsamer Glaube über seltsames, entferntes Quantenzeug, sie würden nicht _sehen_, dass es _wirklich_ ist, akzeptieren, dass die Welt, die sie kennen, nur eine Halluzination ist. Ich habe _einen_ Teil des Radiergummis umgestaltet, ohne das _ganze Ding_ zu verändern. _"
+"Die Quantenmechanik war nicht genug", sagte Harry. "Ich musste den ganzen Weg bis zur zeitlosen Physik gehen, bevor es funktionierte. Ich musste erkennen, dass der Zauberstab eine _Beziehung_ zwischen getrennten vergangenen und zukünftigen Realitäten erzwingt, anstatt irgendetwas über die Zeit zu _verändern_ - aber ich habe es geschafft, Hermine, ich habe über die Illusion von Objekten hinweggesehen und ich wette, es gibt keinen einzigen anderen Zauberer auf der Welt, der das hätte tun können. Selbst wenn einige Muggelgeborene über zeitlose Formulierungen der Quantenmechanik Bescheid wüssten, wäre es nur ein seltsamer Glaube über seltsames, entferntes Quantenzeug, sie würden nicht _sehen_, dass es _wirklich_ ist, akzeptieren, dass die Welt, die sie kennen, nur eine Halluzination ist. Ich habe _einen_ Teil des Radiergummis umgestaltet, ohne das _ganze Ding_ zu verändern."
 
 Hermine hob wieder ihren Zauberstab und richtete ihn auf den Radiergummi.
 
 Für einen Moment ging Wut über Harrys Gesicht, aber er machte keine Anstalten, sie aufzuhalten.
 
-"_Finite Incantatem_", sagte Hermine. "Sprich mit Professor McGonagall, bevor du es wieder versuchst. "
+"_Finite Incantatem_", sagte Hermine. "Sprich mit Professor McGonagall, bevor du es wieder versuchst."
 
 Harry nickte, obwohl sein Gesicht immer noch ein wenig angespannt war.
 
-"Und wir müssen noch anhalten", sagte Hermine.
+"Und wir müssen trotzdem aufhören.", sagte Hermine.
 
-"_Warum?_ ", sagte Harry. "Verstehst du nicht, was das _bedeutet_, Hermine? Zauberer wissen _nicht_ alles! Es gibt zu wenige von ihnen, sogar noch weniger, die irgendeine Wissenschaft kennen, sie haben die niedrig hängenden Früchte nicht ausgeschöpft -"
+"_Warum?_", fragte Harry. "Verstehst du nicht, was das _bedeutet_, Hermine? Zauberer wissen _nicht_ alles! Es gibt zu wenige von ihnen, sogar noch weniger, die irgendeine Wissenschaft kennen, sie haben die niedrig hängenden Früchte nicht abgeerntet -"
 
-"Es ist nicht _sicher_", sagte Hermine. "Wenn wir neue Dinge herausfinden _können_, ist es noch _weniger_ sicher! Wir sind _zu jung!_ Wir haben schon einen großen Fehler gemacht, das nächste Mal könnten wir einfach _sterben!_ "
+"Es ist nicht _sicher_", sagte Hermine. "Wenn wir neue Dinge herausfinden _können_, ist es noch _weniger_ sicher! Wir sind _zu jung!_ Wir haben schon einen großen Fehler gemacht, das nächste Mal könnten wir einfach _sterben!_"
 
 Dann zuckte Hermine zusammen.
 
 Harry sah von ihr weg und begann langsam und tief zu atmen.
 
-"Bitte versuch nicht, es allein zu tun, Harry", sagte Hermine, ihre Stimme zitterte. "Bitte. "
+"Bitte versuch nicht, es allein zu tun, Harry", sagte Hermine, ihre Stimme zitterte. "Bitte."
 
-_Bitte lass mich nicht entscheiden, ob ich es Professor Flitwick sagen soll. _
+_Bitte lass mich nicht entscheiden, ob ich es Professor Flitwick sagen soll._
 
 Es gab eine lange Pause.
 
-"Du willst also, dass wir lernen", sagte Harry. Sie konnte erkennen, dass er versuchte, den Ärger aus seiner Stimme herauszuhalten. "Lerne einfach. "
+"Du willst also, dass wir lernen", sagte Harry. Sie konnte erkennen, dass er versuchte, den Ärger aus seiner Stimme herauszuhalten. "Lernen wir einfach."
 
 Hermine war sich nicht sicher, ob sie etwas sagen sollte, aber... "So wie du, ähm, zeitlose Physik studiert hast, richtig?"
 
 Harry schaute zu ihr zurück.
 
-"Das, was du getan hast", sagte Hermine mit zögerlicher Stimme, "das war nicht wegen _unserer_ Experimente, richtig? Du konntest es tun, weil du viele Bücher gelesen hast. "
+"Das, was du getan hast", sagte Hermine mit zögerlicher Stimme, "das war nicht wegen _unserer_ Experimente, richtig? Du konntest es tun, weil du viele Bücher gelesen hast."
 
 Harry öffnete seinen Mund und schloss ihn dann wieder. Ein frustrierter Blick lag auf seinem Gesicht.
 
-"In Ordnung", sagte Harry. "Wie wäre es damit. Wir studieren, und wenn mir etwas einfällt, das _wirklich_ einen Versuch wert zu sein scheint, probieren wir es aus, nachdem ich einen Professor gefragt habe. "
+"In Ordnung", sagte Harry. "Wie wäre es damit. Wir studieren, und wenn mir etwas einfällt, das _wirklich_ einen Versuch wert zu sein scheint, probieren wir es aus, nachdem ich einen Professor gefragt habe."
 
-"Okay."sagte Hermine. Sie fiel nicht vor Erleichterung um, sondern nur, weil sie sich bereits hingesetzt hatte.
+"Okay." sagte Hermine. Sie fiel nicht vor Erleichterung um, aber nur, weil sie sich bereits hingesetzt hatte.
 
-"Sollen wir was essen gehen?"sagte Harry vorsichtig.
+"Sollen wir was essen gehen?" sagte Harry vorsichtig.
 
 Hermine nickte. Ja. Das Mittagessen klang gut. Diesmal aber wirklich.
 
 Sie begann sich vorsichtig vom Steinboden abzustoßen und zuckte zusammen, als ihr Körper sie anschrie -.
 
-Harry richtete seinen Zauberstab auf sie und sagte: "_Wingardium Leviosa. _"
+Harry richtete seinen Zauberstab auf sie und sagte: "_Wingardium Leviosa._"
 
 Hermine blinzelte, als das enorme Gewicht auf ihren Beinen auf etwas Erträgliches abnahm.
 
-Ein Lächeln huschte über Harrys Gesicht. "Du kannst etwas _heben_, ohne es komplett schweben lassen zu können", sagte er. "Erinnerst du dich an das Experiment?"
+Ein Lächeln huschte über Harrys Gesicht. "Du kannst etwas _heben_, ohne es komplett schweben zu lassen", sagte er. "Erinnerst du dich an das Experiment?"
 
 Hermine lächelte hilflos zurück, obwohl sie dachte, dass sie eigentlich immer noch wütend sein müsste.
 
@@ -410,7 +410,7 @@ Es war das kompletteste und vollkommenste Kauderwelsch, an das sich Minerva je e
 
 "Ich fürchte nicht", sagte Professor McGonagall hochnäsig.
 
-"Also", sagte Dumbledore. Der silberne Bart schwang von ihr weg, der funkelnde Blick des alten Zauberers blickte wieder woanders hin. "Du vermutest, dass du etwas tun kannst, was andere Zauberer nicht tun können, etwas, das wir für unmöglich halten. "
+"Also", sagte Dumbledore. Der silberne Bart schwang von ihr weg, der funkelnde Blick des alten Zauberers blickte wieder woanders hin. "Du vermutest, dass du etwas tun kannst, was andere Zauberer nicht tun können, etwas, das wir für unmöglich halten."
 
 Die drei standen im privaten Arbeitsraum des Schulleiters für Transformation, wo der leuchtende Phönix von Dumbledores Patronus ihr gesagt hatte, sie solle Harry mitbringen, kurz nachdem ihr eigener Patronus ihn erreicht hatte. Licht schien durch die Oberlichter nach unten und beleuchtete das große siebenzackige alchemistische Diagramm, das in der Mitte des kreisförmigen Raumes gezeichnet war und zeigte, dass es ein wenig verstaubt war, was Minerva traurig machte. Die Transformationsforschung war eine von Dumbledores großen Freuden und sie wusste, wie sehr er in letzter Zeit unter Zeitdruck stand, aber nicht, dass er _so_ unter Druck stand.
 
@@ -418,15 +418,15 @@ Und jetzt wollte Harry Potter noch mehr von der Zeit des Schulleiters verschwend
 
 Hätte Harry zu Beginn gesagt, was er sich _konkret_ vorstellen kann, hätte sie sich nicht die Mühe gemacht.
 
-"Hör zu, ich weiß, es ist schwer zu erklären", sagte Harry und klang ein wenig verlegen. "Es läuft darauf hinaus, dass das, was du glaubst, im Widerspruch zu dem steht, was Wissenschaftler glauben, und das in einem Fall, in dem ich wirklich erwarten würde, dass Wissenschaftler mehr wissen als Zauberer. "
+"Hören Sie, ich weiß, es ist schwer zu erklären", sagte Harry und klang ein wenig verlegen. "Es läuft darauf hinaus, dass das, was Sie glauben, im Widerspruch zu dem steht, was Wissenschaftler glauben, und das in einem Fall, in dem ich wirklich erwarten würde, dass Wissenschaftler mehr wissen als Zauberer."
 
-Minerva hätte laut aufgeseufzt, wenn Dumbledore die ganze Sache nicht sehr ernst genommen hätte.
+Minerva hätte laut aufgeseufzt, wenn Dumbledore die ganze Sache nicht so ernst genommen hätte.
 
 Harrys Idee stammte aus einfacher Unwissenheit, mehr nicht. Wenn du die Hälfte einer Metallkugel in Glas verwandelst, hat die _ganze Kugel_ eine andere Form. Das Teil zu ändern _war_, das Ganze zu ändern, und das bedeutete, die ganze Form zu entfernen und sie durch eine andere zu ersetzen. Was würde es überhaupt _bedeuten_, nur die Hälfte einer Metallkugel zu verwandeln? Dass die Metallkugel _als Ganzes_ die gleiche Form hat wie vorher, aber _die Hälfte_ dieser Kugel nun eine andere Form hat?
 
-"Mr. Potter", sagte Professor McGonagall, "was Sie vorhaben, ist nicht nur unmöglich, es ist _unlogisch. Wenn du die Hälfte von etwas veränderst, hast du _das_ Ganze verändert. "
+"Mr. Potter", sagte Professor McGonagall, "was Sie vorhaben, ist nicht nur unmöglich, es ist _unlogisch_. Wenn man die Hälfte von etwas verändert, hat man _das Ganze_ verändert."
 
-"In der Tat", sagte Dumbledore. "Aber Harry ist der Held, also ist er vielleicht in der Lage, Dinge zu tun, die logisch unmöglich sind. "
+"In der Tat", sagte Dumbledore. "Aber Harry ist der Held, also ist er vielleicht in der Lage, Dinge zu tun, die logisch unmöglich sind."
 
 Minerva hätte mit den Augen gerollt, wenn sie nicht schon längst taub geworden wäre.
 
@@ -434,11 +434,11 @@ Minerva hätte mit den Augen gerollt, wenn sie nicht schon längst taub geworden
 
 Minerva runzelte die Stirn. Die Tatsache, dass das Konzept buchstäblich unvorstellbar war, stellte sie vor einige Schwierigkeiten, aber sie versuchte, es für bare Münze zu nehmen. Eine Transformation, die nur der Hälfte einer Metallkugel auferlegt wurde...
 
-"Seltsame Dinge geschehen an der Schnittstelle?", fragte Minerva. "Aber das sollte nicht anders sein, als das Objekt als Ganzes in eine Form mit zwei verschiedenen Teilen zu verwandeln... "
+"Seltsame Dinge geschehen an der Schnittstelle?", fragte Minerva. "Aber das sollte nicht anders sein, als das Objekt als Ganzes in eine Form mit zwei verschiedenen Teilen zu verwandeln..."
 
-Dumbledore nickte. "Das ist auch mein eigener Gedanke. Und Harry, wenn deine Theorie richtig ist, impliziert sie, dass das, was du tun willst, _exakt_ wie jede andere Transformation ist, nur auf einen Teil des Subjekts angewandt und nicht auf das Ganze? Keine Veränderungen _überhaupt?_ "
+Dumbledore nickte. "Das ist auch mein eigener Gedanke. Und Harry, wenn deine Theorie richtig ist, impliziert sie, dass das, was du tun willst, _exakt_ wie jede andere Transformation ist, nur auf einen Teil des Subjekts angewandt und nicht auf das Ganze? Keine _komplette_ Veränderungen?"
 
-"Ja", sagte Harry fest. "Das ist der ganze Punkt. "
+"Ja", sagte Harry fest. "Das ist der ganze Punkt."
 
 Dumbledore sah sie wieder an. "Minerva, fällt dir denn überhaupt ein Grund ein, warum das gefährlich sein könnte?"
 
@@ -446,7 +446,7 @@ Dumbledore sah sie wieder an. "Minerva, fällt dir denn überhaupt ein Grund ein
 
 "Das gilt auch für mich", sagte der Schulleiter. "Also gut, da dies in jeder Hinsicht genau analog zur gewöhnlichen Transformation sein sollte und uns auch kein Grund einfällt, warum es gefährlich sein sollte, denke ich, dass der zweite Grad der Vorsicht ausreicht. "
 
-Minerva war überrascht, aber sie widersprach nicht. Dumbledore war mit Abstand ihr Dienstältester in Transformation und er hatte buchstäblich Tausende von neuen Transformationen ausprobiert, ohne jemals einen zu geringen Grad an Vorsicht zu wählen. Er hatte Transformation _im Kampf_ benutzt und er war _noch am Leben. Wenn der Schulleiter dachte, dass der zweite Grad genug war, dann war es genug.
+Minerva war überrascht, aber sie widersprach nicht. Dumbledore war mit Abstand ihr Dienstältester in Transformation und er hatte buchstäblich Tausende von neuen Transformationen ausprobiert, ohne jemals einen zu geringen Grad an Vorsicht zu wählen. Er hatte Transformation _im Kampf_ benutzt und er war _noch_ am Leben. Wenn der Schulleiter dachte, dass der zweite Grad genug war, dann war es genug.
 
 Dass Harry mit Sicherheit scheitern würde, war natürlich völlig irrelevant.
 
@@ -454,7 +454,7 @@ Die beiden begannen mit dem Aufbau der Wards und Detektionsnetze. Das wichtigste
 
 Harry sah ihnen bei der Arbeit zu, sein Gesicht sah ein wenig erschrocken aus.
 
-"Keine Sorge", sagte Professor McGonagall mitten in ihrer Laufbeschreibung, "das wird mit Sicherheit nicht nötig sein, Mr. Potter. Wenn wir _erwarten_ würden, dass etwas schief geht, dürftest du es nicht versuchen. Es sind nur gewöhnliche Vorsichtsmaßnahmen für jede Transformation, die noch nie jemand versucht hat. "
+"Keine Sorge", sagte Professor McGonagall mitten in ihrer Laufbeschreibung, "das wird mit Sicherheit nicht nötig sein, Mr. Potter. Wenn wir _erwarten_ würden, dass etwas schief geht, dürftest du es nicht versuchen. Es sind nur gewöhnliche Vorsichtsmaßnahmen für jede Transformation, die noch nie jemand versucht hat."
 
 Harry schluckte und nickte.
 
@@ -468,11 +468,11 @@ Harry sagte nicht "Ich hab's dir ja gesagt", aber der selbstgefällige Blick auf
 
 Dumbledore warf analytische Zauber auf den Ball und sah von Minute zu Minute faszinierter aus. Dreißig Jahre waren aus seinem Gesicht geschmolzen.
 
-"Faszinierend", sagte Dumbledore. "Es ist genau so, wie er behauptet hat. Er hat einfach einen Teil des Themas verwandelt, ohne das Ganze zu verwandeln. Du sagst, es ist wirklich nur eine konzeptionelle Einschränkung, Harry?"
+"Faszinierend", sagte Dumbledore. "Es ist genau so, wie er behauptet hat. Er hat einfach einen Teil des Materials verwandelt, ohne das Ganze zu verwandeln. Du sagst, es ist wirklich nur eine konzeptionelle Einschränkung, Harry?"
 
-"Ja", sagte Harry, "aber eine tiefe, nur zu wissen, dass es eine konzeptionelle Einschränkung sein musste, war nicht genug. Ich musste den Teil meines Verstandes unterdrücken, der den Fehler machte und stattdessen an die zugrundeliegende Realität denken, die die Wissenschaftler herausgefunden haben. "
+"Ja", sagte Harry, "aber eine tiefe, nur zu wissen, dass es eine konzeptionelle Einschränkung sein musste, war nicht genug. Ich musste den Teil meines Verstandes unterdrücken, der den Fehler machte und stattdessen an die zugrundeliegende Realität denken, die die Wissenschaftler herausgefunden haben."
 
-"Wahrlich faszinierend", sagte Dumbledore. "Ich nehme an, dass jeder andere Zauberer, um das Gleiche zu tun, Monate des Studiums benötigen würde, wenn er es überhaupt könnte? Und darf ich dich bitten, einige andere Fächer teilweise zu verwandeln?"
+"Wahrlich faszinierend", sagte Dumbledore. "Ich nehme an, dass jeder andere Zauberer, um das Gleiche zu tun, Monate des Studiums benötigen würde, wenn er es überhaupt könnte? Und darf ich dich bitten, einige andere Dinge teilweise zu verwandeln?"
 
 "Wahrscheinlich ja und natürlich", sagte Harry.
 
@@ -480,15 +480,15 @@ Eine halbe Stunde später fühlte sich Minerva ebenso verwirrt, aber deutlich be
 
 Es _war_ dasselbe, abgesehen davon, dass es logisch unmöglich ist.
 
-"Ich glaube, das ist genug, Schulleiter", sagte Minerva schließlich. "Ich vermute, dass die partielle Transformation anstrengender ist als die normale Art. "
+"Ich glaube, das ist genug, Schulleiter", sagte Minerva schließlich. "Ich vermute, dass die partielle Transformation anstrengender ist als die normale Art."
 
-"Mit der Übung wird es weniger", sagte der erschöpfte und blasse Junge mit unsicherer Stimme, "aber ja, da hast du recht. "
+"Mit der Übung wird es weniger", sagte der erschöpfte und blasse Junge mit unsicherer Stimme, "aber ja, da haben Sie recht."
 
 Es dauerte noch eine Minute, bis Harry aus der Krankenstation geholt wurde. Dann eskortierte Minerva ihn zu einem viel bequemeren Stuhl und Dumbledore brachte eine Eislimonade.
 
 "_Glückwunsch_, Mr. Potter!", sagte Professor McGonagall und meinte es auch so. Sie hätte fast alles dagegen gewettet, dass das funktioniert.
 
-"Herzlichen Glückwunsch!", sagte Dumbledore. "Auch ich habe vor meinem vierzehnten Lebensjahr keine originellen Entdeckungen in Transformation gemacht. Seit den Tagen von Dorotea Senjak hat kein Genie mehr so früh geblüht. "
+"Herzlichen Glückwunsch!", sagte Dumbledore. "Auch ich habe vor meinem vierzehnten Lebensjahr keine originellen Entdeckungen in Transformation gemacht. Seit den Tagen von Dorotea Senjak hat kein Genie mehr so früh geblüht."
 
 "Danke", sagte Harry und klang ein wenig überrascht.
 
@@ -496,39 +496,39 @@ Es dauerte noch eine Minute, bis Harry aus der Krankenstation geholt wurde. Dann
 
 Es herrschte Stille.
 
-"Ähm... "sagte Harry. "Ich möchte niemanden an die Inquisition ausliefern, aber ich habe einem anderen Schüler gesagt -"
+"Ähm..." sagte Harry. "Ich möchte niemanden an die Inquisition ausliefern, aber ich habe einem anderen Schüler gesagt -"
 
 Das Wort explodierte fast von Professor McGonagalls Lippen. "_Was?_ Du hast eine völlig neue Form der Transformation mit einem _Schüler_ besprochen, bevor du eine anerkannte Autorität konsultiert hast? Hast du eine Ahnung, wie _unverantwortlich_ das war?"
 
-"Es tut mir leid", sagte Harry. "Das war mir nicht klar. "
+"Es tut mir leid", sagte Harry. "Das war mir nicht klar."
 
 Der Junge sah entsprechend verängstigt aus und Minerva spürte, wie sich etwas in ihr entspannte. Wenigstens verstand Harry, wie töricht er gewesen war.
 
-"Sie müssen Miss Granger zur Verschwiegenheit verpflichten", sagte Dumbledore ernsthaft. "Und erzähle es niemandem sonst, es sei denn, es gibt einen extrem guten Grund dafür, und auch sie haben geschworen. "
+"Sie müssen Miss Granger zur Verschwiegenheit verpflichten", sagte Dumbledore ernsthaft. "Und erzähle es niemandem sonst, es sei denn, es gibt einen extrem guten Grund dafür, und derjenige hat auch geschworen zu schweigen."
 
-"Ah... Warum?"sagte Harry.
+"Ah... Warum?" sagte Harry.
 
 Minerva hat sich das Gleiche gefragt. Wieder einmal dachte der Schulleiter zu weit voraus, als dass sie mithalten konnte.
 
-"Weil du etwas tun kannst, was dir sonst niemand zutraut", sagte Dumbledore. "Etwas völlig Unerwartetes. Es könnte sich als dein entscheidender Vorteil erweisen, Harry, und wir müssen ihn bewahren. Bitte, vertraue mir dabei. "
+"Weil du etwas tun kannst, was dir sonst niemand zutraut", sagte Dumbledore. "Etwas völlig Unerwartetes. Es könnte sich als dein entscheidender Vorteil erweisen, Harry, und wir müssen ihn bewahren. Bitte, vertraue mir dabei."
 
 Professor McGonagall nickte, ihr festes Gesicht zeigte nichts von ihrer inneren Verwirrung. "Bitte sehr, Mr. Potter", sagte sie.
 
-"In Ordnung... "sagte Harry langsam.
+"In Ordnung..." sagte Harry langsam.
 
-"Wenn wir mit der Untersuchung eurer Materialien fertig sind", fügte Dumbledore hinzu, "dürft ihr eine Teilverwandlung üben, auf Glas zu Stahl und Stahl zu Glas _nur_ mit Miss Granger als Beobachterin. Wenn einer von euch ein Symptom einer Transformationskrankheit vermutet, informiert natürlich sofort einen Professor. "
+"Wenn wir mit der Untersuchung eurer Materialien fertig sind", fügte Dumbledore hinzu, "dürft ihr eine Teilverwandlung üben, auf Glas zu Stahl und Stahl zu Glas _nur_ mit Miss Granger als Beobachterin. Wenn einer von euch ein Symptom einer Transformationskrankheit vermutet, informiert natürlich sofort einen Professor."
 
 Kurz bevor Harry den Arbeitsraum verließ, mit der Hand am Türgriff, drehte sich der Junge noch einmal um und sagte: "Wenn wir schon mal hier sind, ist einem von euch etwas an Professor Snape aufgefallen?"
 
-"Anders?", fragte der Schulleiter.
+"Wieso? Ist er anders?", fragte der Schulleiter.
 
 Minerva ließ sich ihr schiefes Lächeln nicht anmerken. Natürlich war der Junge besorgt über den 'bösen Zaubertränkemeister', da er nicht wissen konnte, warum Severus zu trauen war. Es wäre gelinde gesagt merkwürdig gewesen, Harry zu erklären, dass Severus immer noch in seine Mutter verliebt war.
 
 "Ich meine, hat sich sein Verhalten in letzter Zeit in irgendeiner Weise verändert?", fragte Harry.
 
-"Nicht, dass ich es gesehen hätte... ", sagte der Schulleiter langsam. "Warum fragst du?"
+"Nicht, dass ich es gesehen hätte...", sagte der Schulleiter langsam. "Warum fragst du?"
 
-Harry schüttelte den Kopf. "Ich möchte deinen eigenen Beobachtungen nicht vorgreifen, indem ich sage. Vielleicht einfach ein Auge zudrücken?"
+Harry schüttelte den Kopf. "Ich möchte Ihren eigenen Beobachtungen nicht vorgreifen, indem ich es sage. Vielleicht können Sie ihn einfach im Auge behalten?"
 
 Das ließ Minerva auf eine Art und Weise zittern, wie es kein offener Vorwurf an Severus hätte tun können.
 
@@ -538,7 +538,7 @@ Harry verbeugte sich respektvoll vor den beiden und verabschiedete sich.
 
 "Albus", sagte Minerva, nachdem der Junge gegangen war, "woher hast du _gewusst_, dass du Harry ernst nehmen musst? Ich hätte seine Idee einfach für unmöglich gehalten!"
 
-Das Gesicht des alten Zauberers wurde ernst. "Aus dem gleichen Grund, aus dem es geheim gehalten werden muss, Minerva. Aus dem gleichen Grund, aus dem ich dir gesagt habe, dass du zu mir kommen sollst, wenn Harry einen solchen Anspruch erhebt. Denn es ist eine Macht, die Voldemort nicht kennt. "
+Das Gesicht des alten Zauberers wurde ernst. "Aus dem gleichen Grund, aus dem es geheim gehalten werden muss, Minerva. Aus dem gleichen Grund, aus dem ich dir gesagt habe, dass du zu mir kommen sollst, wenn Harry einen solchen Anspruch erhebt. Denn es ist eine Macht, die Voldemort nicht kennt."
 
 Die Worte brauchten ein paar Sekunden, um zu wirken.
 
@@ -546,35 +546,35 @@ Und dann lief ihr ein kalter Schauer über den Rücken, wie immer, wenn sie sich
 
 Es hatte wie ein ganz normales Vorstellungsgespräch begonnen: Sybill Trelawney bewarb sich um die Stelle als Professorin für Wahrsagerei.
 
-_DERJENIGE, DER DIE MACHT HAT, DEN DUNKLEN LORD ZU BEZWINGEN, NÄHERT SICH,
-GEBOREN FÜR JENE, DIE SICH IHM DREIMAL WIDERSETZT HABEN,
-GEBOREN, WENN DER SIEBTE MONAT STIRBT,
-UND DER DUNKLE LORD WIRD IHN ALS SEINESGLEICHEN MARKIEREN,
-ABER ER WIRD MACHT HABEN, DIE DER DUNKLE LORD NICHT KENNT,
-UND BEIDE MÜSSEN ALLES BIS AUF EINEN REST DES ANDEREN ZERSTÖREN,
-DENN DIESE ZWEI VERSCHIEDENEN GEISTER KÖNNEN NICHT IN DERSELBEN WELT EXISTIEREN. _
+_DERJENIGE, DER DIE MACHT HAT, DEN DUNKLEN LORD ZU BEZWINGEN, NÄHERT SICH,_
+_GEBOREN FÜR JENE, DIE SICH IHM DREIMAL WIDERSETZT HABEN,_
+_GEBOREN, WENN DER SIEBTE MONAT STIRBT,_
+_UND DER DUNKLE LORD WIRD IHN ALS SEINESGLEICHEN MARKIEREN,_
+_ABER ER WIRD MACHT HABEN, DIE DER DUNKLE LORD NICHT KENNT,_
+_UND BEIDE MÜSSEN ALLES BIS AUF EINEN REST DES ANDEREN ZERSTÖREN,_
+_DENN DIESE ZWEI VERSCHIEDENEN GEISTER KÖNNEN NICHT IN DERSELBEN WELT EXISTIEREN._
 
 Diese schrecklichen Worte, gesprochen mit dieser schrecklich dröhnenden Stimme, schienen nicht zu so etwas wie teilweiser Transformation zu passen.
 
-"Dann vielleicht nicht", sagte Dumbledore, nachdem Minerva versucht hatte, es zu erklären. "Ich gestehe, dass ich auf etwas gehofft hatte, das helfen würde, Voldemorts Horkrux zu finden, wo auch immer er es versteckt haben mag. Aber... "Der alte Zauberer zuckte mit den Schultern. "Prophezeiungen sind heikle Dinge, Minerva, und es ist das Beste, kein Risiko einzugehen. Die kleinste Sache kann sich als entscheidend erweisen, wenn sie unerwartet bleibt. "
+"Dann vielleicht nicht", sagte Dumbledore, nachdem Minerva versucht hatte, es zu erklären. "Ich gestehe, dass ich auf etwas gehofft hatte, das helfen würde, Voldemorts Horkrux zu finden, wo auch immer er es versteckt haben mag. Aber..." Der alte Zauberer zuckte mit den Schultern. "Prophezeiungen sind heikle Dinge, Minerva, und es ist das Beste, kein Risiko einzugehen. Die kleinste Sache kann sich als entscheidend erweisen, wenn sie unerwartet bleibt."
 
 "Und was meinte er wohl mit _Severus?_", sagte Minerva.
 
-"Da habe ich keine Ahnung", seufzte Dumbledore. "Es sei denn, Harry macht einen Schachzug gegen Severus und dachte, dass eine offene Frage ernst genommen werden könnte, wo eine direkte Anschuldigung abgetan werden würde. Und wenn das tatsächlich so war, dann hat Harry richtig gefolgert, dass ich nicht darauf vertrauen würde, dass es so ist. Lass uns einfach unvoreingenommen wachen, wie er es verlangt. "
+"Da habe ich keine Ahnung", seufzte Dumbledore. "Es sei denn, Harry macht einen Schachzug gegen Severus und dachte, dass eine offene Frage ernst genommen werden könnte, wo eine direkte Anschuldigung abgetan werden würde. Und wenn das tatsächlich so war, dann hat Harry richtig gefolgert, dass ich nicht darauf vertrauen würde, dass es so ist. Lass uns einfach unvoreingenommen wachen, wie er es verlangt."
 
 * * *
 
-_Aftermath, 1:_
+_Nachspiel, 1:_
 
-"Ähm, Hermine?"sagte Harry mit ganz leiser Stimme. "Ich denke, ich schulde dir eine wirklich, wirklich, wirklich große Entschuldigung. "
+"Ähm, Hermine?"sagte Harry mit ganz leiser Stimme. "Ich denke, ich schulde dir eine wirklich, wirklich, wirklich große Entschuldigung."
 
 * * *
 
-_Aftermath, 2:_
+_Nachspiel, 2:_
 
-Alissa Cornfoots Augen waren leicht glasig, als sie auf den Tränkemeister starrte, der ihrer Klasse einen strengen Vortrag hielt, eine winzige bronzene Bohne hochhielt und etwas über schreiende Pfützen aus Menschenfleisch sagte. Seit Beginn dieses Jahres hatte sie Probleme, in Zaubertränke zuzuhören. Sie starrte immer wieder auf ihren schrecklichen, gemeinen, schmierigen Professor und fantasierte über besondere Nachsitzen. Wahrscheinlich war irgendetwas wirklich _falsch_ mit ihr, aber sie konnte einfach nicht aufhören, es zu tun -.
+Alissa Cornfoots Augen waren leicht glasig, als sie auf den Tränkemeister starrte, der ihrer Klasse einen strengen Vortrag hielt, eine winzige bronzene Bohne hochhielt und etwas über schreiende Pfützen aus Menschenfleisch sagte. Seit Beginn dieses Jahres hatte sie Probleme, in Zaubertränke zuzuhören. Sie starrte immer wieder auf ihren schrecklichen, gemeinen, schmierigen Professor und fantasierte über besonderes Nachsitzen. Wahrscheinlich war irgendetwas wirklich _falsch_ mit ihr, aber sie konnte einfach nicht aufhören, es zu tun.
 
-"Au!"sagte Alissa dann.
+"Au!" sagte Alissa dann.
 
 Snape hatte gerade die bronzene Bohne zielsicher an Alissas Stirn geschnippt.
 

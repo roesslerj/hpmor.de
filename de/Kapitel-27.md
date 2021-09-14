@@ -648,19 +648,19 @@ Dann lächelte Severus, sah plötzlich wieder entspannt aus und die ganze Anspan
 
 "Du bist ein sehr nachsichtiger Mensch", sagte Severus und lächelte immer noch. "Ich nehme an, dein Stiefvater, Michael Verres-Evans, war derjenige, der es dir beigebracht hat."
 
-"Eher Papas Science-Fiction- und Fantasy-Sammlung", sagte Harry. "Sozusagen mein fünftes Elternteil. Ich habe das Leben all der Charaktere in all meinen Büchern gelebt, und all ihre mächtigen Weisheiten donnern in meinem Kopf. Irgendwo da drin war jemand wie Lesath, vermute ich, obwohl ich nicht sagen könnte, wer. Es war nicht schwer, mich in seine Lage zu versetzen. Und es waren auch meine Bücher, die mir sagten, was zu tun ist. Die guten Jungs verzeihen."
+"Eher Papas Science-Fiction- und Fantasy-Sammlung", sagte Harry. "Sozusagen mein fünftes Elternteil. Ich habe das Leben all der Charaktere in all meinen Büchern gelebt, und all ihre mächtigen Weisheiten hallen in meinem Kopf. Irgendwo da drin war jemand wie Lesath, vermute ich, obwohl ich nicht sagen könnte, wer. Es war nicht schwer, mich in seine Lage zu versetzen. Und es waren auch meine Bücher, die mir sagten, was zu tun ist. Die guten Jungs verzeihen."
 
 Severus gab ein leichtes, amüsiertes Lachen von sich. "Ich fürchte, ich weiß nicht viel darüber, was gute Menschen tun."
 
 Harry sah ihn an. Das war eigentlich ganz schön traurig. "Ich leihe dir ein paar Romane mit guten Menschen darin, wenn du willst."
 
-"Ich würde dich gerne in einer Sache um Rat fragen", sagte Severus mit lässiger Stimme. "Ich weiß von einem anderen Slytherin aus dem fünften Jahr, der von Gryffindors gemobbt wurde. Er umwirbt ein wunderschönes Muggel-Mädchen, das ihn beim Mobbing erwischt und versucht, ihn zu retten. Und er nannte sie ein Schlammblut und das war das Ende für sie. Er hat sich entschuldigt, viele Male, aber sie hat ihm nie verziehen. Hast du eine Idee, was er hätte sagen oder tun können, um von ihr die Vergebung zu erhalten, die du Lestrange gegeben hast?"
+"Ich würde dich gerne in einer Sache um Rat fragen", sagte Severus mit lässiger Stimme. "Ich weiß von einem anderen Slytherin aus dem fünften Jahr, der von Gryffindors gemobbt wurde. Er umwirbt ein wunderschönes Muggel-Mädchen, das ihn beim Mobbing erwischt und versucht hat, ihn zu retten. Und er nannte sie ein Schlammblut und das war das Ende für sie. Er hat sich entschuldigt, viele Male, aber sie hat ihm nie verziehen. Hast du eine Idee, was er hätte sagen oder tun können, um von ihr die Vergebung zu erhalten, die du Lestrange gegeben hast?"
 
 "Ähm", sagte Harry, "nur aufgrund dieser Information bin ich mir nicht sicher, ob _er_ das Hauptproblem war. Ich hätte ihm gesagt, dass er sich nicht mit jemandem treffen soll, der unfähig ist, zu vergeben. Angenommen, sie hätten geheiratet, kannst du dir das Leben in diesem Haushalt vorstellen?"
 
 Es gab eine Pause.
 
-"Oh, aber sie _konnte_ verzeihen", sagte Severus mit Amüsement in seiner Stimme. "Aber danach ist sie abgehauen und wurde die Freundin des Tyrannen. Sag mir, warum sollte sie dem Tyrannen verzeihen und nicht dem Getyrannten?"
+"Oh, aber sie _konnte_ verzeihen", sagte Severus mit Amüsement in seiner Stimme. "Aber danach ist sie abgehauen und wurde die Freundin des Tyrannen. Sag mir, warum sollte sie dem Tyrannen verzeihen und nicht dem Gemobbten?"
 
 Harry zuckte mit den Schultern. "Vermutlich, weil der Tyrann jemandem _anderen_ sehr wehgetan hatte, und der gemobbte hatte _sie_ nur ein wenig verletzt, und für sie fühlte sich das irgendwie noch viel unverzeihlicher an. Oder, um es nicht zu sehr zuzuspitzen, war der Tyrann gutaussehend? Oder, was das betrifft, reich?"
 
@@ -670,7 +670,7 @@ Es gab eine weitere Pause.
 
 "Und da hast du es", sagte Harry. "Nicht, dass ich jemals selbst durch die Highschool gegangen wäre, aber meine Bücher geben mir zu verstehen, dass es eine bestimmte Art von Teenagermädchen gibt, die über eine einzige Beleidigung empört sein wird, wenn der Junge einfach oder arm ist, die aber irgendwie Platz in ihrem Herzen finden kann, um einem reichen und gutaussehenden Jungen sein Mobbing zu verzeihen. Mit anderen Worten: Sie war oberflächlich. Sag demjenigen, der es war, dass sie seiner nicht würdig war und er darüber hinwegkommen und weiterziehen muss und das nächste Mal Mädchen daten soll, die tiefgründig statt hübsch sind."
 
-Severus starrte Harry schweigend an, seine Augen funkelten. Das Lächeln war verblasst, und obwohl Severus' Gesicht zuckte, kehrte es nicht zurück.
+Severus starrte Harry schweigend an, seine Augen funkelten. Das Lächeln war verblasst, und obwohl Severus' Gesicht zuckte, kehrte das Lächeln nicht zurück.
 
 Harry wurde langsam ein wenig nervös. "Ähm, natürlich habe ich selbst keine Erfahrung auf dem Gebiet, aber ich denke, das ist es, was ein weiser Berater aus meinen Büchern sagen würde."
 
@@ -678,11 +678,11 @@ Es herrschte mehr Stille und mehr Glitzern.
 
 Es war wahrscheinlich ein guter Zeitpunkt, das Thema zu wechseln.
 
-"Also", sagte Harry. "Habe ich deinen Test bestanden, was auch immer es war?"
+"Also", sagte Harry. "Habe ich Ihren Test bestanden, was auch immer es war?"
 
-"Ich denke", sagte Severus, "dass es keine weiteren Gespräche zwischen uns geben sollte, Potter, und du wärst äußerst weise, nie über dieses zu sprechen."
+"Ich denke", sagte Severus, "dass es keine weiteren Gespräche zwischen uns geben sollte, Potter, und du wärst äußerst gut beraten, nie über dieses zu sprechen."
 
-Harry blinzelte. "Würdest du mir bitte sagen, was ich falsch gemacht habe?"
+Harry blinzelte. "Würden Sie mir bitte sagen, was ich falsch gemacht habe?"
 
 "Du hast mich beleidigt", sagte Severus. "Und ich traue deiner Gerissenheit nicht mehr."
 
@@ -726,11 +726,11 @@ Und an der Ecke hielt der Mann an und sprach, ohne sich umzudrehen, ein letztes 
 
 Er ging.
 
-Harry drehte sich um und ging auf das Fenster zu. Seine zitternden Hände gingen auf den Vorsprung.
+Harry drehte sich um und ging auf das Fenster zu. Seine zitternden Hände griffen den Vorsprung.
 
-Gib niemals jemandem einen klugen Rat, wenn du nicht genau weißt, wovon ihr beide redet. Ich hab's. _
+_Gib niemals jemandem einen klugen Rat, wenn du nicht genau weißt, wovon ihr beide redet. Ich hab's._
 
-Harry starrte eine Weile auf die Wolken und den leichten Nieselregen hinaus. Das Fenster blickte auf das Ostgelände hinaus und es war Nachmittag. Wenn die Sonne überhaupt durch die Wolken zu sehen war, konnte Harry sie nicht sehen.
+Harry starrte eine Weile auf die Wolken und den leichten Nieselregen hinaus. Das Fenster zeigte auf das Ostgelände hinaus und es war Nachmittag. Wenn die Sonne überhaupt durch die Wolken sichtbar war, konnte Harry sie nicht sehen.
 
 Seine Hände hatten aufgehört zu zittern, aber es gab ein enges Gefühl in Harrys Brust, als ob sie von Metallbändern zusammengedrückt wurde.
 
@@ -752,7 +752,7 @@ Wenn man erfährt, dass seine genetischen Eltern nicht perfekt waren, sollte man
 
 Vielleicht könnte er sich bei Lesath Lestrange beschweren.
 
-Harry hatte über Dementoren gelesen. Kälte und Dunkelheit umgaben sie, und Angst, sie saugten alle deine glücklichen Gedanken weg und in dieser Abwesenheit stiegen all deine schlimmsten Erinnerungen an die Oberfläche.
+Harry hatte über Dementoren gelesen. Kälte und Dunkelheit umgaben sie, und Angst. Sie saugten alle deine glücklichen Gedanken weg und in dieser Abwesenheit stiegen all deine schlimmsten Erinnerungen an die Oberfläche.
 
 Er konnte sich vorstellen, in Lesaths Schuhen zu stecken und zu wissen, dass seine Eltern lebenslänglich in Askaban saßen, diesem Ort, aus dem noch nie jemand entkommen war.
 
