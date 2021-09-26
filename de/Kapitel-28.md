@@ -444,13 +444,13 @@ Dumbledore sah sie wieder an. "Minerva, fällt dir denn überhaupt ein Grund ein
 
 "Nein", sagte Minerva, nachdem sie die Suche in ihrem Gedächtnis beendet hatte.
 
-"Das gilt auch für mich", sagte der Schulleiter. "Also gut, da dies in jeder Hinsicht genau analog zur gewöhnlichen Transformation sein sollte und uns auch kein Grund einfällt, warum es gefährlich sein sollte, denke ich, dass der zweite Grad der Vorsicht ausreicht. "
+"Das gilt auch für mich", sagte der Schulleiter. "Also gut, da dies in jeder Hinsicht genau analog zur gewöhnlichen Transformation sein sollte und uns auch kein Grund einfällt, warum es gefährlich sein sollte, denke ich, dass der zweite Grad der Vorsicht ausreicht."
 
 Minerva war überrascht, aber sie widersprach nicht. Dumbledore war mit Abstand ihr Dienstältester in Transformation und er hatte buchstäblich Tausende von neuen Transformationen ausprobiert, ohne jemals einen zu geringen Grad an Vorsicht zu wählen. Er hatte Transformation _im Kampf_ benutzt und er war _noch_ am Leben. Wenn der Schulleiter dachte, dass der zweite Grad genug war, dann war es genug.
 
 Dass Harry mit Sicherheit scheitern würde, war natürlich völlig irrelevant.
 
-Die beiden begannen mit dem Aufbau der Wards und Detektionsnetze. Das wichtigste Netz war dasjenige, das überprüfte, dass kein verwandeltes Material in die Luft gelangt war. Harry würde sicherheitshalber in einer separaten Krafthülle mit eigener Luftzufuhr eingeschlossen werden, nur sein Zauberstab durfte den Schild verlassen, und die Schnittstelle war dicht. Sie befanden sich in Hogwarts, also konnten sie kein Material, das Anzeichen von Selbstentzündung aufwies, automatisch apparieren, aber sie konnten es fast genauso schnell aus einem Dachfenster werfen, die Fenster waren alle nach außen geklappt, genau aus diesem Grund. Harry selbst würde beim ersten Anzeichen von Ärger durch ein anderes Dachfenster gehen.
+Die beiden begannen mit dem Aufbau der Sicherheiten und Detektionsnetze. Das wichtigste Netz war dasjenige, das überprüfte, dass kein verwandeltes Material in die Luft gelangt war. Harry würde sicherheitshalber in einer separaten Krafthülle mit eigener Luftzufuhr eingeschlossen werden, nur sein Zauberstab durfte den Schild verlassen, und die Schnittstelle war dicht. Sie befanden sich in Hogwarts, also konnten sie kein Material, das Anzeichen von Selbstentzündung aufwies, automatisch apparieren, aber sie konnten es fast genauso schnell aus einem Dachfenster werfen, die Fenster waren alle nach außen geklappt, genau aus diesem Grund. Harry selbst würde beim ersten Anzeichen von Ärger durch ein anderes Dachfenster gehen.
 
 Harry sah ihnen bei der Arbeit zu, sein Gesicht sah ein wenig erschrocken aus.
 
@@ -482,7 +482,7 @@ Es _war_ dasselbe, abgesehen davon, dass es logisch unmöglich ist.
 
 "Ich glaube, das ist genug, Schulleiter", sagte Minerva schließlich. "Ich vermute, dass die partielle Transformation anstrengender ist als die normale Art."
 
-"Mit der Übung wird es weniger", sagte der erschöpfte und blasse Junge mit unsicherer Stimme, "aber ja, da haben Sie recht."
+"Mit der Übung wird es leichter", sagte der erschöpfte und blasse Junge mit unsicherer Stimme, "aber ja, da haben Sie recht."
 
 Es dauerte noch eine Minute, bis Harry aus der Krankenstation geholt wurde. Dann eskortierte Minerva ihn zu einem viel bequemeren Stuhl und Dumbledore brachte eine Eislimonade.
 
@@ -504,11 +504,11 @@ Das Wort explodierte fast von Professor McGonagalls Lippen. "_Was?_ Du hast eine
 
 Der Junge sah entsprechend verängstigt aus und Minerva spürte, wie sich etwas in ihr entspannte. Wenigstens verstand Harry, wie töricht er gewesen war.
 
-"Sie müssen Miss Granger zur Verschwiegenheit verpflichten", sagte Dumbledore ernsthaft. "Und erzähle es niemandem sonst, es sei denn, es gibt einen extrem guten Grund dafür, und derjenige hat auch geschworen zu schweigen."
+"Sie müssen Miss Granger zur Verschwiegenheit verpflichten", sagte Dumbledore ernsthaft. "Und erzähle es niemandem sonst, es sei denn, es gibt einen extrem guten Grund dafür, und derjenige hat auch zu schwören zu schweigen."
 
 "Ah... Warum?" sagte Harry.
 
-Minerva hat sich das Gleiche gefragt. Wieder einmal dachte der Schulleiter zu weit voraus, als dass sie mithalten konnte.
+Minerva frage sich das Gleiche. Wieder einmal dachte der Schulleiter zu weit voraus, als dass sie mithalten konnte.
 
 "Weil du etwas tun kannst, was dir sonst niemand zutraut", sagte Dumbledore. "Etwas völlig Unerwartetes. Es könnte sich als dein entscheidender Vorteil erweisen, Harry, und wir müssen ihn bewahren. Bitte, vertraue mir dabei."
 
@@ -558,7 +558,7 @@ Diese schrecklichen Worte, gesprochen mit dieser schrecklich dröhnenden Stimme,
 
 "Dann vielleicht nicht", sagte Dumbledore, nachdem Minerva versucht hatte, es zu erklären. "Ich gestehe, dass ich auf etwas gehofft hatte, das helfen würde, Voldemorts Horkrux zu finden, wo auch immer er es versteckt haben mag. Aber..." Der alte Zauberer zuckte mit den Schultern. "Prophezeiungen sind heikle Dinge, Minerva, und es ist das Beste, kein Risiko einzugehen. Die kleinste Sache kann sich als entscheidend erweisen, wenn sie unerwartet bleibt."
 
-"Und was meinte er wohl mit _Severus?_", sagte Minerva.
+"Und was meinte er wohl mit _Severus_?", sagte Minerva.
 
 "Da habe ich keine Ahnung", seufzte Dumbledore. "Es sei denn, Harry macht einen Schachzug gegen Severus und dachte, dass eine offene Frage ernst genommen werden könnte, wo eine direkte Anschuldigung abgetan werden würde. Und wenn das tatsächlich so war, dann hat Harry richtig gefolgert, dass ich nicht darauf vertrauen würde, dass es so ist. Lass uns einfach unvoreingenommen wachen, wie er es verlangt."
 
@@ -566,7 +566,7 @@ Diese schrecklichen Worte, gesprochen mit dieser schrecklich dröhnenden Stimme,
 
 _Nachspiel, 1:_
 
-"Ähm, Hermine?"sagte Harry mit ganz leiser Stimme. "Ich denke, ich schulde dir eine wirklich, wirklich, wirklich große Entschuldigung."
+"Ähm, Hermine?" sagte Harry mit ganz leiser Stimme. "Ich denke, ich schulde dir eine wirklich, wirklich, wirklich große Entschuldigung."
 
 * * *
 
@@ -576,13 +576,13 @@ Alissa Cornfoots Augen waren leicht glasig, als sie auf den Tränkemeister starr
 
 "Au!" sagte Alissa dann.
 
-Snape hatte gerade die bronzene Bohne zielsicher an Alissas Stirn geschnippt.
+Snape hatte gerade die bronzene Bohne zielsicher auf Alissas Stirn geschnippt.
 
-"Miss Cornfoot", sagte der Meister der Zaubertränke mit schneidender Stimme, "dies ist ein heikler Zaubertrank und wenn du nicht aufpassen kannst, wirst du deine Mitschüler verletzen, nicht nur dich selbst. Wir sehen uns nach dem Unterricht. "
+"Miss Cornfoot", sagte der Meister der Zaubertränke mit schneidender Stimme, "dies ist ein heikler Zaubertrank und wenn Sie nicht aufpassen, werden Sie einen Mitschüler verletzen, nicht nur sich selbst. Wir sehen uns nach dem Unterricht."
 
 Die letzten vier Worte halfen ihr nicht weiter, aber sie gab sich Mühe und schaffte es, den Tag zu überstehen, ohne jemanden zu schmelzen.
 
-Nach dem Unterricht näherte sich Alissa dem Schreibtisch. Ein Teil von ihr wollte demütig dastehen, mit beschämtem Gesicht und reumütig hinter dem Rücken verschränkten Händen, nur für den Fall, aber ein stiller Instinkt sagte ihr, dass das eine _schlechte Idee_ sein könnte. Stattdessen stand sie einfach mit neutralem Gesicht da, in einer für eine junge Dame sehr angemessenen Haltung, und sagte: "Professor?"
+Nach dem Unterricht näherte sich Alissa dem Schreibtisch. Ein Teil von ihr wollte demütig dastehen, mit beschämtem Gesicht und reumütig hinter dem Rücken verschränkten Händen, nur für den Fall. Aber ein stiller Instinkt sagte ihr, dass das eine _schlechte Idee_ sein könnte. Stattdessen stand sie einfach mit neutralem Gesicht da, in einer für eine junge Dame sehr angemessenen Haltung, und sagte: "Professor?"
 
 "Miss Cornfoot", sagte Snape, ohne von den Blättern aufzublicken, die er sortierte, "ich erwidere Ihre Zuneigung nicht, ich fange an, Ihre Blicke als störend zu empfinden, und Sie werden Ihre Augen von nun an zurückhalten. Ist das klar?"
 

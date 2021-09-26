@@ -2,7 +2,7 @@
 
 Leider kann niemandem gesagt werden, wer J. K. Rowling ist. Du musst sie mit eigenen Augen sehen.
 
-Wissenschaftliche Diskrepanzen: Luosha weist darauf hin, dass die Theorie der Empathie in Ch. 27 (du benutzt dein eigenes Gehirn, um andere zu simulieren) ist nicht ganz eine bekannte wissenschaftliche Tatsache. Die bisherigen Beweise deuten in diese Richtung, aber wir haben die Schaltkreise des Gehirns noch nicht analysiert und bewiesen. In ähnlicher Weise sind zeitlose Formulierungen der Quantenmechanik (angedeutet in Ch. 28) sind so elegant, dass ich schockiert wäre, wenn die endgültige Theorie Zeit in sich hätte, aber sie sind auch noch nicht etabliert.
+Wissenschaftliche Diskrepanzen: Luosha weist darauf hin, dass die Theorie der Empathie in Ch. 27 (du benutzt dein eigenes Gehirn, um andere zu simulieren) nicht ganz eine bewiesene wissenschaftliche Tatsache ist. Die bisherigen Beweise deuten in diese Richtung, aber wir haben die Schaltkreise des Gehirns noch nicht ausreichend analysiert. In ähnlicher Weise sind zeitlose Formulierungen der Quantenmechanik (angedeutet in Ch. 28) so elegant, dass ich schockiert wäre, wenn die endgültige Theorie Zeit enthielte, aber auch sie sind noch nicht vollständig bewiesen.
 
 * * *
 
@@ -20,25 +20,25 @@ Die Idee, sich auf eine Romanze mit Harry einzulassen, war anfangs eine verlocke
 
 Also hatte sie Harry gezwungen, mit ihr auf ein Date zu gehen.
 
-Und jetzt war _sie_ sein_ Liebesinteresse.
+Und jetzt war _sie_ _sein_ Liebesinteresse.
 
 Oder noch schlimmer, eine der Optionen auf seiner Speisekarte.
 
 Sie war an diesem Morgen in einer Duschkabine und wollte gerade das Wasser aufdrehen, als sie Kichern von draußen hörte. Und sie hatte gehört, wie Morag darüber sprach, dass dieses Muggelgeborene Mädchen wahrscheinlich nicht hart genug kämpfen würde, um gegen Ginevra Weasley zu gewinnen, und Padma spekulierte, dass Harry Potter vielleicht beschließen würde, dass er _beide_ wollte.
 
-Es war, als ob sie nicht verstanden hätten, dass MÄDCHEN Optionen auf ihrer Speisekarte hatten und JUNGE um sie kämpften.
+Es war, als ob sie nicht verstanden hätten, dass MÄDCHEN Optionen auf ihrer Speisekarte hatten und JUNGS um sie kämpften.
 
 Aber das war nicht einmal der Teil, der wirklich weh tat. Als sie bei einem von Professor McGonagalls Tests 98 Punkte erreichte, war die Nachricht nicht, dass Hermine Granger die höchste Punktzahl in der Klasse erreicht hatte, sondern dass Harry Potters Konkurrentin sieben Punkte mehr erreicht hatte als er.
 
-Wenn du dem Boy-Who-Lived zu nahe kommst, wirst du Teil seiner Geschichte.
+Wenn du dem Junge-der-lebt zu nahe kommst, wirst du Teil _seiner_ Geschichte.
 
-Du hast dein eigenes nicht bekommen.
+Du hast deine eigene nicht bekommen.
 
 Und Hermine war der Gedanke gekommen, dass sie einfach weggehen sollte, aber das wäre zu traurig gewesen.
 
-Aber sie wollte _zurück_ bekommen, was sie versehentlich verschenkt hatte, indem sie sich als Harrys Rivalin bekannt machen ließ. Sie wollte wieder eine eigenständige Person sein und nicht das dritte Bein von Harry Potter, war das zu viel verlangt?
+Aber sie wollte _zurück_ bekommen, was sie versehentlich verschenkt hatte, indem sie sich als Harrys Rivalin bekannt machen ließ. Sie wollte wieder eine eigenständige Person sein und nicht das dritte Bein von Harry Potter. War das zu viel verlangt?
 
-Es war eine schwere Falle, aus der man nur schwer wieder herausklettern konnte, wenn man einmal hineingefallen war. Egal wie gut du in der Klasse abgeschnitten hast, selbst wenn du etwas getan hast, das eine besondere Ankündigung beim Abendessen verdient hat, bedeutete das nur, dass du wieder mit Harry Potter konkurriert hast.
+Es war eine schwere Falle, aus der man nur schwer wieder herausklettern konnte, wenn man einmal hineingefallen war. Egal wie gut du in der Klasse abgeschnitten hast, selbst wenn du etwas getan hast, das eine besondere Ankündigung beim Abendessen verdient hat, bedeutete das nur, dass du wieder mit Harry Potter konkurrierts.
 
 Aber sie dachte, sie hätte einen Weg gefunden.
 
@@ -66,17 +66,17 @@ Und dann schwang die Tür trotzdem auf.
 
 "Ach du liebe Zeit", sagte die Spinne, die in ihrem Netz saß. "War es wirklich so schwer, einen einzigen Quirrell-Punkt zu verlieren, Miss Granger?"
 
-Hermine stand mit erhobener Hand da, ihre Wangen wurden rosa. Es _war_ so.
+Hermine stand mit erhobener Hand da, ihre Wangen wurden rosa. So _war_ es.
 
-"Nun, Miss Granger, ich werde gnädig sein", sagte der böse Professor Quirrell. "Betrachte es als bereits verloren. Da habe ich dir eine schwere Entscheidung abgenommen. Bist du nicht dankbar?"
+"Nun, Miss Granger, ich werde gnädig sein", sagte der böse Professor Quirrell. "Betrachten Sie ihn als bereits verloren. Damit habe ich ihnen eine schwere Entscheidung abgenommen. Sind Sie jetzt nicht dankbar?"
 
 "Professor Quirrell", schaffte es Hermine mit einer Stimme zu sagen, die ein wenig quietschte. "Ich habe eine Menge Quirrell-Punkte, nicht wahr?"
 
-"Das tust du in der Tat", sagte Professor Quirrell. "Allerdings eine weniger, als du vorher hattest. Schrecklich, nicht wahr? Stell dir vor, wenn ich deinen Grund für dein Kommen nicht mag, könntest du weitere fünfzig verlieren. Vielleicht würde ich ihnen eins wegnehmen... von einem... von einem..."
+"Das haben Sie in der Tat", sagte Professor Quirrell. "Allerdings einen weniger, als Sie vorher hatten. Schrecklich, nicht wahr? Stellen Sie sich vor, wenn ich den Grund für Ihr Kommen nicht mag, könnten Sie weitere fünfzig verlieren. Vielleicht würde ich ihnen einen wegnehmen... und noch einen... und noch einen..."
 
-Hermine's Wangen wurden noch röter. "Du bist wirklich böse, hat dir das schon mal jemand gesagt?"
+Hermine's Wangen wurden noch röter. "Sie sind wirklich böse, hat Ihnen das schon mal jemand gesagt?"
 
-"Miss Granger", sagte Professor Quirrell ernst, "es kann gefährlich sein, Leuten solche Komplimente zu machen, wenn sie nicht wirklich verdient sind. Der Empfänger fühlt sich vielleicht schüchtern und unverdient und möchte etwas tun, das dein Lob verdient. Nun, worüber wollten Sie mit mir sprechen, Miss Granger?"
+"Miss Granger", sagte Professor Quirrell ernst, "es kann gefährlich sein, Leuten solche Komplimente zu machen, wenn sie nicht wirklich verdient sind. Der Empfänger fühlt sich vielleicht schüchtern und unverdient und möchte etwas tun, das Ihr Lob verdient. Nun, worüber wollten Sie mit mir sprechen, Miss Granger?"
 
 * * *
 
@@ -90,9 +90,9 @@ Leider gab es einen kleinen Makel in diesem Plan.
 
 Nämlich, dass sie beide Ravenclaws waren.
 
-Hermine las ein Buch namens _Magical Mnemonics. _
+Hermine las ein Buch namens _Magical Mnemonics_.
 
-Harry las gerade ein Buch mit dem Titel _Der skeptische Zauberer. _
+Harry las gerade ein Buch mit dem Titel _Der skeptische Zauberer_.
 
 Jeder von ihnen hatte gedacht, dass es nur eine besondere Ausnahme war, die sie nur dieses eine Mal machen würden, und keiner von ihnen hatte bisher realisiert, dass es für jeden von ihnen unmöglich war, jemals alle Buchtitel zu Ende zu lesen, egal wie sehr sie es versuchten.
 
@@ -108,7 +108,7 @@ Dann hörte sie, wie Harry hilflos zu kichern begann.
 
 Hermine sah von ihrem Buch auf.
 
-"In Ordnung", sagte sie, "was _ist_ es?"
+"In Ordnung", sagte sie, "was _ist_ los?"
 
 "Ich habe gerade herausgefunden, warum man die Weasleys nie nach der Familienratte fragt", sagte Harry. "Es ist _wirklich_ schrecklich und ich sollte nicht lachen und ich bin eine schreckliche Person."
 
@@ -124,15 +124,15 @@ Das klang auch für Hermine ein wenig verdächtig und sie sagte das auch.
 
 Harry machte eine zuckende Bewegung mit den Schultern, während er auf dem Boden lag und auf sein Buch schaute. "Verdächtige Dinge passieren die ganze Zeit, und wenn du ein Verschwörungstheoretiker bist, kannst du immer _etwas_ finden."
 
-"Aber _kein Prozess?_", sagte Hermine.
+"Aber _kein Prozess_?", sagte Hermine.
 
 "Es war gleich nach der Niederlage des Dunklen Lords", sagte Harry, seine Stimme war ernst, als er es sagte. "Die Dinge waren unglaublich chaotisch, und als die Auroren Black aufspürten, stand er lachend auf einer Straße, knöcheltief im Blut, mit zwanzig Augenzeugen, die erzählten, wie er einen Freund meines Vaters namens Peter Pettigrew und zwölf Umstehende getötet hatte. Ich sage nicht, dass ich es gutheiße, dass Black keinen Prozess bekommt. Aber wir reden hier von Zauberern, also ist es nicht wirklich verdächtiger als, ich weiß nicht, die Art von Dingen, auf die Leute zeigen, wenn sie darüber streiten wollen, wer John F. erschossen hat. Kennedy. Wie auch immer, Sirius Black ist der zaubernde Lee Harvey Oswald. Es gibt alle möglichen Verschwörungstheorien darüber, wer statt ihm meine Eltern _wirklich_ verraten hat, und einer der Favoriten ist Peter Pettigrew, und hier fängt es an, kompliziert zu werden."
 
 Hermine hörte fasziniert zu. "Aber wie kommt man von dort zur _Haustierratte_ der Weasleys -"
 
-"Warte mal", sagte Harry, "ich bin gleich da. Nun, nach Pettigrews Tod kam heraus, dass er ein Spion für das Licht gewesen war - kein Doppelagent, nur jemand, der herumschlich und Dinge herausfand. Darin war er gut, seit er ein Teenager war. Schon in Hogwarts hatte er den Ruf, alle möglichen Geheimnisse herauszufinden. Die Verschwörungstheorie ist also, dass Pettigrew ein unregistrierter Animagus wurde, während er noch in Hogwarts war, ein Animagus von etwas Kleinem, das herumwuseln und Gespräche belauschen konnte. Das Hauptproblem ist, dass erfolgreiche Animagi selten sind und es als Teenager zu tun, wäre wirklich unwahrscheinlich, also besagt die Verschwörungstheorie natürlich, dass mein Vater und Black auch unregistrierte Animagi waren. Und in dieser Verschwörungstheorie tötete Pettigrew selbst die zwölf Umstehenden, verwandelte sich in seine kleine Animagusform und lief davon. Michael Shermer sagt also, dass es vier zusätzliche Probleme damit gibt. Erstens war Black der Einzige neben meinen Eltern, der wusste, wie man durch die Stationen um ihr Haus herum kommt. "(Harrys Stimme war ein wenig hart, als er das sagte. ) "Zweitens war Black ein wahrscheinlicherer Verdächtiger als Pettigrew, es gibt das Gerücht, dass Black absichtlich versucht hat, einen Schüler während seiner Zeit in Hogwarts umbringen zu lassen, und er stammte aus dieser wirklich fiesen Reinblüterfamilie, Bellatrix Black war buchstäblich seine Cousine. Drittens, Black war zwanzigmal mehr Kampfzauberer als Pettigrew, auch wenn er nicht so schlau war. Das Duell zwischen ihnen wäre wie Professor Quirrell gegen Professor Sprout gewesen. Pettigrew hatte wahrscheinlich nicht einmal die Chance, seinen Zauberstab zu ziehen, geschweige denn alle Beweise zu fälschen, die die Verschwörungstheorie erfordert. Und viertens: Black stand auf der Straße und lachte. _"
+"Warte", sagte Harry, "ich bin gleich da. Nun, nach Pettigrews Tod kam heraus, dass er ein Spion für das Licht gewesen war - kein Doppelagent, nur jemand, der herumschlich und Dinge herausfand. Darin war er gut, seit er ein Teenager war. Schon in Hogwarts hatte er den Ruf, alle möglichen Geheimnisse herauszufinden. Die Verschwörungstheorie ist also, dass Pettigrew ein unregistrierter Animagus wurde, während er noch in Hogwarts war. Ein Animagus von etwas Kleinem, das herumwuseln und Gespräche belauschen konnte. Das Hauptproblem ist, dass erfolgreiche Animagi selten sind und es als Teenager zu tun, wäre wirklich unwahrscheinlich, also besagt die Verschwörungstheorie natürlich, dass mein Vater und Black auch unregistrierte Animagi waren. Und in dieser Verschwörungstheorie tötete Pettigrew selbst die zwölf Umstehenden, verwandelte sich in seine kleine Animagusform und lief davon. Michael Shermer sagt also, dass es vier zusätzliche Probleme damit gibt. Erstens war Black der Einzige neben meinen Eltern, der wusste, wie man durch die Stationen um ihr Haus herum kommt." (Harrys Stimme war ein wenig hart, als er das sagte.) "Zweitens war Black ein wahrscheinlicherer Verdächtiger als Pettigrew, es gibt das Gerücht, dass Black absichtlich versucht hat, einen Schüler während seiner Zeit in Hogwarts umbringen zu lassen. Und er stammte aus dieser wirklich fiesen Reinblüterfamilie, Bellatrix Black war buchstäblich seine Cousine. Drittens, Black war zwanzigmal mehr Kampfzauberer als Pettigrew, auch wenn er nicht so schlau war. Das Duell zwischen ihnen wäre wie Professor Quirrell gegen Professor Sprout gewesen. Pettigrew hatte wahrscheinlich nicht einmal die Chance, seinen Zauberstab zu ziehen, geschweige denn alle Beweise zu fälschen, die die Verschwörungstheorie erfordert. Und viertens: Black stand auf der Straße und lachte."
 
-"Aber der _rat_ -", sagte Hermine.
+"Aber die _Ratte_ -", sagte Hermine.
 
 "Richtig", sagte Harry. "Nun, um es kurz zu machen, Bill Weasley entschied, dass die Hausratte seines kleinen Bruders Percy Pettigrews Animagusform war -"
 
@@ -140,15 +140,15 @@ Hermine's Kinnlade fiel herunter.
 
 "Ja", sagte Harry, "man würde nicht gerade erwarten, dass der böse Pettigrew ein trauriges und heimliches Leben als Hausratte einer feindlichen Zaubererfamilie führt, er wäre entweder bei den Malfoys oder, was wahrscheinlicher ist, in der Karibik nach einer kleinen Schönheitsoperation. Wie auch immer, Bill schlägt seinen kleinen Bruder Percy k.o., betäubt und schnappt sich die Ratte, sendet all diese Notfall-Eulen-Nachrichten aus -"
 
-"Oh, _nein!_"sagte Hermine, die Worte aus ihr herausgerissen.
+"Oh, _nein_!" sagte Hermine, die Worte schossen aus ihr heraus.
 
 "- und schafft es irgendwie, Dumbledore, den Zaubereiminister und den Chef-Auror zu versammeln -"
 
-"Hat er _nicht_!", sagte Hermine.
+"Das hat er _nicht_!", sagte Hermine.
 
 "Und als sie dort ankommen, denken sie natürlich, dass er verrückt ist, aber sie benutzen _Veritas Oculum_ trotzdem an der Ratte, nur um sicher zu gehen, und was entdecken sie?"
 
-Sie wäre _gestorben_ "Eine Ratte."
+Sie wäre fast _gestorben_ "Eine Ratte."
 
 "Du gewinnst einen Keks! Also schleppten sie den armen Bill Weasley nach St. Mungo's und es stellte sich heraus, dass es ein ziemlich normaler schizophrener Bruch war, das passiert einfach bei einigen Leuten, besonders bei jungen Männern im College-Alter. Guy war davon überzeugt, dass er siebenundneunzig Jahre alt war, gestorben war und über den Bahnhof in sein jüngeres Ich zurückgekehrt war. Und er hat perfekt auf die Antipsychotika reagiert und ist wieder normal und alles ist jetzt gut, außer dass die Leute nicht mehr so viel über Sirius Black Verschwörungstheorien reden und man die Weasleys nie nach der Familienratte fragt."
 
