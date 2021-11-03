@@ -30,8 +30,8 @@ Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier ein
 - [Kapitel 26](Kapitel-26.md): Harry und Professor Quirrell treffen sich das erste Mal außerhalb von Hogwarts.
 - [Kapitel 27](Kapitel-27.md): Harry rettet Lesath Lestrange.
 - [Kapitel 28](Kapitel-28.md): Harry lernt etwas, was sonst niemand kann.
-- [Kapitel 29](Kapitel-29.md): 
-- [Kapitel 30](Kapitel-30.md): 
+- [Kapitel 29](Kapitel-29.md): Vorbereitungen für die 1. Schlacht.
+- [Kapitel 30](Kapitel-30.md): Die 1. Schlacht
 - [Kapitel 31](Kapitel-31.md): 
 - [Kapitel 32](Kapitel-32.md): 
 - [Kapitel 33](Kapitel-33.md): 

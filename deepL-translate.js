@@ -110,6 +110,9 @@ async function run() {
       .replaceAll('Verklärung', 'Transformation')
       .replaceAll('Transfiguration', 'Transformation')
       .replaceAll('der-lebte', 'der-lebt')
+      .replaceAll('Sunshine', 'Sonnenschein')
+      .replaceAll('Sunny', 'Sonnenschein')
+      .replaceAll('Chaotics', 'Chaotischen')
       .replaceAll('\{\\an8\}', '_')
       .concat(`\n\n→ [Kapitel ${nextChapter}](Kapitel-${nextChapter}.md)\n`);
     console.log("\n\n\n");
