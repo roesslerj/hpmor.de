@@ -236,11 +236,11 @@ als von seinen Lippen ein furchterregendes Lied des Untergangs drang.
 
 Harry starrte auf die Leichen, die im Wald verstreut lagen. Irgendetwas in ihm fühlte sich ein wenig mulmig an und er musste sich hart daran erinnern, dass sie nur schliefen. Es waren Mädchen unter den Gefallenen, und das machte es irgendwie noch viel schlimmer. Er würde aufpassen müssen, das niemals vor Hermine zu erwähnen, sonst würden die Auroren seine Überreste in eine _kleine_ Teekanne gestopft finden.
 
-Die halbe Sonnenschein-Armee hatte sich gegen das ganze Chaos nicht sonderlich gewehrt. Die neun Bodensoldaten waren mit erhobenen Einfachen Schilden, kreisrunden Schirmen zum Schutz ihrer Gesichter und Brust, unartikuliert schreiend hereingerannt. Aber man konnte nicht schießen und gleichzeitig den Schild halten und Harrys Soldaten hatten einfach auf die Beine gezielt. Alle bis auf einen der Sunnies waren umgefallen, sobald die Schreie von "_Somnium!_" die Luft erfüllten. Diese letzte hatte ihren Schild fallen gelassen und schaffte es, einen von Harrys Soldaten auszuschalten, bevor sie von der zweiten Welle von Schlafzaubern getroffen wurde (die Schlafverhexung war sicher für mehrere Treffer). Die beiden Besenstiele von Sonnenschein waren viel schwieriger auszuschalten und hatten drei Chaotischen auf dem Gewissen, bevor sie durch massives Bodenfeuer unter Beschuss gerieten.
+Die halbe Sonnenschein-Armee hatte sich gegen das ganze Chaos nicht sonderlich gewehrt. Die neun Bodensoldaten waren mit erhobenen Einfachen Schilden, kreisrunden Schirmen zum Schutz ihrer Gesichter und Brust, unartikuliert schreiend hereingerannt. Aber man konnte nicht schießen und gleichzeitig den Schild halten und Harrys Soldaten hatten einfach auf die Beine gezielt. Alle bis auf einen der Sonnenscheine waren umgefallen, sobald die Schreie von "_Somnium!_" die Luft erfüllten. Diese letzte hatte ihren Schild fallen gelassen und schaffte es, einen von Harrys Soldaten auszuschalten, bevor sie von der zweiten Welle von Schlafzaubern getroffen wurde (die Schlafverhexung war sicher für mehrere Treffer). Die beiden Besenstiele von Sonnenschein waren viel schwieriger auszuschalten und hatten drei Chaotische auf dem Gewissen, bevor sie durch massives Bodenfeuer unter Beschuss gerieten.
 
-Hermine war nicht unter den Gefallenen. Draco musste sie erwischt haben und das machte Harry auf einer völlig unverständlichen Ebene _ärgerlich_ Er war sich nicht sicher, ob er sich Hermine gegenüber beschützend fühlte, oder betrogen, dass er nicht derjenige war, der es getan hatte, oder vielleicht _beides_.
+Hermine war nicht unter den Gefallenen. Draco musste sie erwischt haben und das machte Harry auf einer völlig unverständlichen Ebene _ärgerlich_. Er war sich nicht sicher, ob er sich Hermine gegenüber beschützend fühlte, oder betrogen, dass er nicht derjenige war, der es getan hatte, oder vielleicht _beides_.
 
-"In Ordnung", sagte Harry und erhob seine Stimme. "Damit eins klar ist, das war kein richtiger Kampf. Das war General Granger, der in ihrer ersten Schlacht einen Fehler machte. Der heutige eigentliche Kampf ist mit der Drachenarmee und es wird nichts dergleichen sein. Es wird viel mehr Spaß machen. Lass uns ausziehen."
+"In Ordnung", sagte Harry und erhob seine Stimme. "Damit eins klar ist, das war kein richtiger Kampf. Das war General Granger, die in ihrer ersten Schlacht einen Fehler machte. Der heutige eigentliche Kampf ist mit der Drachenarmee und es wird nichts dergleichen sein. Es wird viel mehr Spaß machen. Lass uns ausziehen."
 
 * * *
 
@@ -250,15 +250,15 @@ Es war keine gefährliche Angeberei. Gregory Goyle _war_ einfach so gut und er h
 
 "Potter kommt", sagte Gregory ohne eine Spur von seinem üblichen, falschen Tonfall. "Sie haben noch alle vier Besen, soll ich sie ausschalten?"
 
-"Nein", sagte Draco scharf. "Über ihre Armee zu kämpfen, gibt ihnen einen zu großen Vorteil. Sie werden vom Boden aus auf dich feuern und selbst du könntest nicht in der Lage sein, dem Ganzen auszuweichen. Warte bis die Kräfte einrasten."
+"Nein", sagte Draco scharf. "Über ihrer Armee zu kämpfen, gibt ihnen einen zu großen Vorteil. Sie werden vom Boden aus auf dich feuern und selbst du könntest nicht in der Lage sein, dem Ganzen auszuweichen. Warte bis ihre Kräfte schwinden."
 
-Draco hatte vier Drachen im Tausch gegen zwölf Sonnenscheins verloren. Anscheinend war General Granger tatsächlich so unglaublich dumm gewesen, obwohl sie nicht unter den Angreifern gewesen war, also hatte Draco keine Gelegenheit gehabt, sie zu verspotten oder sie zu fragen, was in Merlins Namen sie sich dabei gedacht hatte.
+Draco hatte vier Drachen im Tausch gegen zwölf Sonnenscheine verloren. Anscheinend war General Granger tatsächlich so unglaublich dumm gewesen, obwohl sie nicht unter den Angreifern gewesen war, also hatte Draco keine Gelegenheit gehabt, sie zu verspotten oder sie zu fragen, was in Merlins Namen sie sich dabei gedacht hatte.
 
-Der wahre Kampf, das wussten sie alle, würde mit Harry Potter stattfinden.
+Der wahre Kampf, das wussten sie alle, würde nun mit Harry Potter stattfinden.
 
 "Macht euch bereit!", brüllte Draco seine Truppen an. "Bleib mit deinen Kumpels zusammen, handle als Einheit und feuere, sobald der Feind in Reichweite ist!"
 
-Discipline gegen das Chaos.
+Disziplin gegen das Chaos.
 
 Es sollte kein großer Kampf sein.
 
@@ -268,7 +268,7 @@ Das Adrenalin pumpte und pumpte in Nevilles Blut, bis er das Gefühl hatte, kaum
 
 "Wir nähern uns", sagte General Potter mit einer Stimme, die kaum laut genug war, um die ganze Armee zu erreichen. "Zeit, sich zu verteilen."
 
-Nevilles Kameraden entfernten sich von ihm. Sie würden sich immer noch gegenseitig unterstützen, aber wenn ihr euch zusammenrottet, hat es der Feind viel leichter, euch zu treffen; Feuer, das auf einen eurer Kameraden gerichtet ist, könnte euch stattdessen treffen. Du wärst viel schwerer zu treffen, wenn du dich ausbreiten und so schnell wie möglich bewegen würdest.
+Nevilles Kameraden entfernten sich von ihm. Sie würden sich immer noch gegenseitig unterstützen, aber wenn man sich zusammenrottet, hat es der Feind viel leichter, jemanden zu treffen; Feuer, das auf einen eurer Kameraden gerichtet ist, könnte euch stattdessen treffen. Man ist viel schwerer zu treffen, wenn man sich ausbreiten und so schnell wie möglich bewegt.
 
 Das erste, was General Potter während ihrer Trainingseinheit getan hatte, war, sie dazu zu bringen, aufeinander zu schießen, wenn beide Seiten schnell liefen, oder beide still standen und sich Zeit zum Zielen nahmen, oder einer sich bewegte und einer still stand - der umgekehrte Zauber zur Schlafverhexung war einfach, obwohl man ihn während echter Kämpfe nicht benutzen durfte. General Potter hatte alles, was passierte, sorgfältig aufgezeichnet, ein wenig gerechnet und verschlüsselt und dann verkündet, dass es für sie sinnvoller sei, sich nicht darauf zu konzentrieren, langsamer zu werden, um sorgfältig zu zielen, sondern sich schnell zu bewegen, damit sie nicht getroffen werden.
 
@@ -278,27 +278,27 @@ Dieses Mal, so schwor sich Neville im Stillen, würde seine Stimme ganz bestimmt
 
 "Schilde hoch", sagte General Potter, "Energie auf die vorderen Deflektoren."
 
-"_Contego,_"murmelte die Armee, und die kreisförmigen Schirme entstanden vor ihren Köpfen und Truhen.
+"_Contego,_" murmelte die Armee, und die kreisförmigen Schirme entstanden vor ihren Köpfen und Körpern.
 
-Ein scharfer Geschmack erfüllte Nevilles Mund. General Potter hätte ihnen nicht befohlen, Schilde zu werfen, wenn sie nicht fast in Reichweite wären. Neville konnte die uniformierten Gestalten der Drachen sehen, die sich durch die dichten Schirme der Bäume bewegten, und die Drachen würden sie auch sehen -.
+Ein scharfer Geschmack erfüllte Nevilles Mund. General Potter hätte ihnen nicht befohlen, Schilde zu benutzen, wenn sie nicht fast in Reichweite wären. Neville konnte die uniformierten Gestalten der Drachen sehen, die sich durch die dichten Schirme der Bäume bewegten, und die Drachen würden sie auch sehen -
 
-"_Angriff!_", kam ein Schrei aus der Ferne, die Stimme von Draco Malfoy, und General Potter brüllte: "_Angriff -_"
+"_Angriff!_", kam ein Schrei aus der Ferne, die Stimme von Draco Malfoy, und General Potter brüllte: "_Angriff!_"
 
 Das gesamte Adrenalin in Nevilles Blut wurde freigesetzt und seine Beine übernahmen das Kommando. Er flog schneller als je zuvor, direkt auf den Feind zu und wusste, ohne sich umzusehen, dass alle seine Kameraden dasselbe taten.
 
-"_Blut für den Blutgott!_", schrie Neville. "_Skulls für den Schädelthron! Ia! Shub-Niggurath! Das Tor des Feindes liegt seitlich!_ "
+"_Blut für den Blutgott!_", schrie Neville. "_Schädel für den Schädelthron! Ia! Shub-Niggurath! Das Tor des Feindes liegt seitlich!_"
 
 Es gab einen lautlosen Aufprall, als sich ein Schlafzauber gegen Nevilles Schild verschwendete. Wenn andere Zauber abgefeuert wurden, hatten sie nicht getroffen.
 
-Neville sah den kurzen Blick der Angst auf Wayne Hopkins' Gesicht, als er neben zwei Gryffindors stand, die Neville nicht erkannte, und dann -.
+Neville sah den kurzen Blick der Angst auf Wayne Hopkins' Gesicht, als er neben zwei Gryffindors stand, die Neville nicht erkannte, und dann -
 
-\- Neville ließ das Simple Shield fallen und feuerte auf Wayne -.
+\- Neville ließ das einfache Schild fallen und feuerte auf Wayne -
 
-\- verpasst -.
+\- daneben -
 
-\- seine rasenden Beine gingen _gerade_ an der feindlichen Gruppierung vorbei und auf drei weitere Drachen zu, deren Zauberstäbe auf ihn zukamen, ihre Mäuler öffneten -.
+\- seine rasenden Beine gingen _gerade_ an der feindlichen Gruppierung vorbei und auf drei weitere Drachen zu, deren Zauberstäbe auf ihn zukamen, ihre Mäuler öffneten -
 
-\- ohne darüber nachzudenken, tauchte Neville auf den Waldboden hinunter, gerade als drei Stimmen "_Somnium!_"riefen.
+\- ohne darüber nachzudenken, tauchte Neville auf den Waldboden hinunter, gerade als drei Stimmen "_Somnium!_" riefen.
 
 Es tat weh, harte Steine und harte Äste gruben sich in Neville, als er sich abrollte. Es war nicht so schlimm, wie von seinem Besenstiel zu fallen, aber er war immer noch ziemlich hart auf dem Boden aufgeschlagen, und dann lag Neville mit plötzlicher Einsicht still und schloss seine Augen.
 
@@ -306,68 +306,67 @@ Es tat weh, harte Steine und harte Äste gruben sich in Neville, als er sich abr
 
 Mit einem Anflug von Genugtuung erkannte Neville, dass er es geschafft hatte, zwischen zwei Gruppen von Drachen zu gelangen, gerade als die eine Gruppe auf ihn geschossen hatte. Harry hatte davon gesprochen, dass dies eine Taktik sei, um dem Feind Angst vor dem Feuer zu machen, aber anscheinend funktionierte es noch ein bisschen besser als das.
 
-Und nicht nur das, die Drachen glaubten, dass sie ihn _erhalten_ hatten, denn sie sahen Neville fallen, als sie feuerten.
+Und nicht nur das, die Drachen glaubten, dass sie ihn _getroffen_ hatten, denn sie sahen Neville fallen, als sie feuerten.
 
 Neville zählte in seinem Kopf bis zwanzig, dann öffnete er die Augen einen Spalt.
 
-Die drei Drachen waren ihm sehr nahe, die Köpfe drehten sich schnell, während Schreie von "_Somnium!_"und _"Schädel für den Schädelthron!_"die Luft um sie herum erfüllten. Alle drei hatten jetzt Simple Shields oben.
+Die drei Drachen waren ihm sehr nahe, die Köpfe drehten sich schnell, während Schreie von "_Somnium!_" und "_Schädel für den Schädelthron!_" die Luft um sie herum erfüllten. Alle drei hatten jetzt ihre einfachen Schilde erhoben.
 
-Nevilles Zauberstab war immer noch in seiner Hand und es kostete nicht viel Mühe, ihn auf die Stiefel eines Jungen zu richten und "_Somnium"zu flüstern. _"
+Nevilles Zauberstab war immer noch in seiner Hand und es kostete nicht viel Mühe, ihn auf die Stiefel eines Jungen zu richten und "_Somnium_" zu flüstern.
 
 Neville schloss schnell seine Augen und entspannte seine Hand, als er hörte, wie der Junge zu Boden fiel.
 
-"_Woher kommt es?", schrie Justin Finch-Fletchleys Stimme und Neville hörte ein Rascheln auf dem laubbedeckten Waldboden, wie von zwei Drachen, die auf der Suche nach einem Feind herumwirbelten.
+"_Woher kam das_?", schrie Justin Finch-Fletchleys Stimme und Neville hörte ein Rascheln auf dem laubbedeckten Waldboden, wie von zwei Drachen, die auf der Suche nach einem Feind herumwirbelten.
 
-"_Reform ranks!_", brüllte Malfoys Stimme. "Lasst euch nicht von ihnen zerstreuen!"
+"_Reformiert die Reihen!_", brüllte Malfoys Stimme. "Lasst euch nicht von ihnen zerstreuen!"
 
 Nevilles Ohren hörten, wie die beiden Drachen tatsächlich über seinen liegenden Körper sprangen, als sie davonliefen.
 
-Neville öffnete die Augen, drückte sich etwas mühsam auf die Beine und richtete dann seinen Zauberstab und sagte den neuen Zauber, den General Potter ihnen allen beigebracht hatte. Sie konnten keine echten Illusionszauber machen, um den Feind zu verwirren, aber selbst in ihrem Alter konnten sie -.
+Neville öffnete die Augen, drückte sich etwas mühsam auf die Beine und richtete dann seinen Zauberstab und sagte den neuen Zauber, den General Potter ihnen allen beigebracht hatte. Sie konnten keine echten Illusionszauber machen, um den Feind zu verwirren, aber selbst in ihrem Alter konnten sie -
 
-"_Ventriliquo,_", flüsterte Neville, zeigte mit dem Zauberstab auf eine Seite von Justin und dem anderen Jungen und rief dann: "_Für Cthulhu und Ruhm!_"
+"_Ventriliquo_", flüsterte Neville, zeigte mit dem Zauberstab auf eine Seite von Justin und dem anderen Jungen und rief dann: "_Für Cthulhu und Ruhm!_"
 
 Justin und der andere Junge hielten abrupt inne und drehten ihre Schilde in Richtung der Stelle, an der Neville seinen Schlachtruf platziert hatte, und das war der Moment, in dem mehrere "_Somnium!_"-Rufe die Luft erfüllten und der andere Junge zu Boden fiel, bevor Neville mit dem Zielen fertig war.
 
-"Der letzte gehört mir!", schrie Neville und sprintete direkt auf Justin zu, der gemein zu ihm gewesen war, bis die älteren Hufflepuffs ihn zurechtwiesen. Neville war von seinen Kameraden umgeben und _das_ bedeutete -.
+"Der letzte gehört mir!", schrie Neville und sprintete direkt auf Justin zu, der gemein zu ihm gewesen war, bis die älteren Hufflepuffs ihn zurechtwiesen. Neville war von seinen Kameraden umgeben und _das_ bedeutete -
 
-"_Spezialangriff, Chaotischer Sprung!_ ", heulte Neville, während er rannte, und spürte, wie sein Körper leichter wurde, dann noch einmal leichter, als seine Kameraden ihre Zauberstäbe auf ihn richteten und leise den Schwebezauber wirkten, und Neville hob seine linke Hand und schnippte mit den Fingern, dann stieß er sich mit den Beinen so stark wie möglich vom Boden ab und _schwebte_ durch die Luft. Schieres Entsetzen malte Justins Gesicht, als Neville _über_ das Schild des anderen Jungen ging und seinen Zauberstab auf die unter ihm vorbeiziehende Gestalt richtete und "_Somnium!_"rief.
+"_Spezialangriff, Chaotischer Sprung!_", heulte Neville, während er rannte, und spürte, wie sein Körper leichter wurde, dann noch einmal leichter, als seine Kameraden ihre Zauberstäbe auf ihn richteten und leise den Schwebezauber wirkten, und Neville hob seine linke Hand und schnippte mit den Fingern, dann stieß er sich mit den Beinen so stark wie möglich vom Boden ab und _schwebte_ durch die Luft. Schieres Entsetzen malte sich Justins Gesicht ab, als Neville _über_ das Schild des anderen Jungen schwebte und seinen Zauberstab auf die unter ihm vorbeiziehende Gestalt richtete und "_Somnium!_" rief.
 
 Weil er sich danach gefühlt hatte, deshalb.
 
-Neville bekam seine Füße nicht ganz richtig herum und pflügte eher in den Boden, als er landete, aber zwei von drei der anderen Chaoslegionäre hatten es geschafft, ihre Zauberstäbe die ganze Zeit über auf ihn zu halten und er wurde nicht sehr hart getroffen.
+Neville bekam seine Füße nicht ganz richtig herum und pflügte eher in den Boden, als das er landete, aber zwei von drei der anderen Chaoslegionäre hatten es geschafft, ihre Zauberstäbe die ganze Zeit über auf ihn zu halten und er fiel nicht sehr hart.
 
-Und Neville kam keuchend auf die Beine. Er wusste, dass er sich bewegen sollte, die Leute schrien überall "Somnium!"-.
+Und Neville kam keuchend auf die Beine. Er wusste, dass er sich bewegen sollte, die Leute schrien überall "Somnium!"-
 
-"Ich bin Neville, der letzte Spross von Longbottom!", schrie Neville in den Himmel und hielt seinen Zauberstab gerade nach oben, als wolle er den strahlend blauen Himmel selbst herausfordern, denn er wusste, dass nach diesem Tag nichts mehr so sein würde wie zuvor. "_Neville of Chaos! Stell dich mir, wenn du da-_"
+"Ich bin Neville, der letzte Spross von Longbottom!", schrie Neville in den Himmel und hielt seinen Zauberstab gerade nach oben, als wolle er den strahlend blauen Himmel selbst herausfordern, denn er wusste, dass nach diesem Tag nichts mehr so sein würde wie zuvor. "_Neville von Chaos! Stell dich mir, wenn du da-_"
 
-(Als Neville danach aufwachte, erfuhr er, dass die Drachenarmee dies als Zeichen für einen Gegenangriff genommen hatte. ).
+(Als Neville danach aufwachte, erfuhr er, dass die Drachenarmee dies als Zeichen für einen Gegenangriff genommen hatte.)
 
 * * *
 
 Das Mädchen neben Harry sackte zu Boden, als es den für ihn bestimmten Schuss abbekam, und er konnte Mr. Goyles schadenfrohes Lachen aus der Ferne hören, als sein Besenstiel an ihnen vorbeisauste und die Luft so stark zerschnitt, dass sie in seinem Kielwasser hätte zerspringen müssen.
 
-"_Luminos!_", rief einer der Jungen neben Harry, der die magische Kraft nicht schnell genug wieder aufbauen konnte, um es vorhin zu tun, und Mr. Goyle wich ihm ohne Pause aus.
+"_Luminos!_", rief einer der Jungen neben Harry, der die magische Kraft nicht schnell genug wieder aufbauen konnte, um es vorher zu tun, und Mr. Goyle wich ihm ohne Pause aus.
 
 Das Chaos hatte jetzt nur noch sechs Soldaten und die Drachenarmee hatte zwei, und das einzige Problem war, dass einer dieser Soldaten unbesiegbar war und der andere drei Soldaten verbrauchte, nur um ihn in seinem Schild zu decken.
 
-Sie hatten durch Mr. Goyle mehr Soldaten verloren als durch alle anderen Drachen zusammen. Er wich so schnell durch die Luft aus, dass ihn niemand treffen konnte, und er konnte dabei auch noch _auf Leute schießen. _
+Sie hatten durch Mr. Goyle mehr Soldaten verloren als durch alle anderen Drachen zusammen. Er wich so schnell durch die Luft aus, dass ihn niemand treffen konnte, und er konnte dabei auch noch _auf Leute schießen_.
 
 Harry hatte an alle möglichen Möglichkeiten gedacht, Mr. Goyle aufzuhalten, aber keine davon war _sicher_ Selbst der Schwebezauber, um ihn zu verlangsamen (es war ein kontinuierlicher Strahl und viel einfacher zu zielen), wäre nicht sicher, weil er vom Besenstiel fallen könnte, Dinge in seinen Weg zu werfen wäre nicht sicher und es wurde immer schwieriger, sich daran zu erinnern, während Harrys Blut gefror.
 
-_Es ist ein Spiel. Du versuchst nicht, _ihn_ zu töten. Wirf nicht alle deine Zukunftspläne für ein Spiel weg... _
+_Es ist ein Spiel. Du versuchst nicht,_ ihn _zu töten. Wirf nicht alle deine Zukunftspläne für ein Spiel weg..._
 
-Harry konnte das Muster _sehen_, er konnte _sehen_, wie Mr. Goyle weben würde, er konnte _sehen_, wie und wann sie alle feuern mussten, um ein Netz von Schüssen zu erzeugen, dem Mr. Goyle nicht ausweichen konnte, aber er hatte es seinen Soldaten nicht schnell genug _erklären_ können, sie konnten ihre Schüsse nicht gut genug koordinieren und jetzt hatten sie nicht mehr genug Leute, um es zu tun -.
+Harry konnte das Muster _sehen_, er konnte _sehen_, wie Mr. Goyle schweben würde, er konnte _sehen_, wie und wann sie alle feuern mussten, um ein Netz von Schüssen zu erzeugen, bei dem Mr. Goyle nicht ausweichen konnte, aber er hatte es seinen Soldaten nicht schnell genug _erklären_ können, sie konnten ihre Schüsse nicht gut genug koordinieren und jetzt hatten sie nicht mehr genug Leute, um es zu tun -
 
-Ich weigere mich zu verlieren, nicht so, nicht meine ganze Armee an einen einzigen Soldaten!_
+_Ich weigere mich zu verlieren, nicht so, nicht meine ganze Armee an einen einzigen Soldaten!_
 
 Mr. Goyles Besenstiel drehte sich schneller, als irgendetwas hätte drehen können und begann, sich auf Harry und seine überlebende Truppe zuzubewegen. Er konnte spüren, wie sich der Junge neben ihm anspannte und sich bereit machte, sich vor seinen General zu werfen.
 
-_SCREW THIS. _
+_VERDAMMT!_
 
-Harrys Zauberstab hob sich und konzentrierte sich auf Mr. Goyle. Harrys Geist visualisierte das Muster, und Harrys Lippen öffneten sich und seine Stimme schrie -.
+Harrys Zauberstab hob sich und konzentrierte sich auf Mr. Goyle. Harrys Geist visualisierte das Muster, und Harrys Lippen öffneten sich und seine Stimme schrie -
 
-"_Luminos__luminos__luminos__luminos__luminos__luminos__luminos__luminos__-"
-_
+"_Luminos_ _luminos_ _luminos_ _luminos_ _luminos_ _luminos_ _luminos_ _luminos_-"
 
 * * *
 
@@ -383,13 +382,13 @@ Harry vermutete, dass er von irgendjemandem einen Vortrag darüber bekommen wür
 
 Dann machte es in Harrys Kopf Klick und er schaute auf den Stahlring am kleinen Finger seiner linken Hand hinunter und fluchte fast laut, als er sah, dass der winzige Diamant fehlte und ein Marshmallow in der Nähe der Stelle, wo er gefallen war, auf dem Boden lag.
 
-Er hatte diese Transformation siebzehn Tage lang durchgehalten und würde nun von vorne beginnen müssen.
+Er hatte diese Transformation siebzehn Tage lang durchgehalten und würde nun von vorne anfangen müssen.
 
 Es hätte schlimmer kommen können. Er hätte dies vierzehn Tage später tun können, _nach_ dem Professor McGonagall ihm die Erlaubnis gegeben hatte, den Felsen seines Vaters zu verwandeln. Das war eine sehr gute Lektion, um auf die einfache Art zu lernen.
 
-Notiz an mich selbst: Entferne den Ring immer vom Finger, bevor du die Magie vollständig aufbrauchst. _
+_Notiz an mich selbst: Entferne den Ring immer vom Finger, bevor du die Magie vollständig aufbrauchst._
 
-Harry drückte sich hoch und tat sich dabei ziemlich schwer. Deine Magie aufzubrauchen, erschöpft deine Muskeln nicht, aber um Bäume herumzuweichen, schon.
+Harry drückte sich hoch und tat sich dabei ziemlich schwer. Deine Magie aufzubrauchen, erschöpft deine Muskeln nicht, aber um Bäume herum auszuweichen, schon.
 
 Er taumelte zu der schillernden Halbkugel hinüber, in der sich Draco Malfoy befand, der seinen Zauberstab in die Höhe hielt, um den Schild zu stützen, und Harry kalt anlächelte.
 
@@ -405,11 +404,11 @@ Das Grinsen war aus Dracos Gesicht verschwunden, das nun hart und grimmig war.
 
 "Weißt du", sagte Harry leichthin, wohl wissend, dass keiner der anderen die wirkliche Botschaft, die zwischen ihnen ausgetauscht wurde, verstehen würde, "das zeigt nur, dass man immer alles hinterfragen sollte, was man seine Vorbilder tun sieht, und sich fragen, warum es getan wird und ob es in dem Zusammenhang für einen selbst auch Sinn macht, es zu tun. Vergiss übrigens nicht, diesen Ratschlag auch im echten Leben anzuwenden. Und danke für die sich langsam bewegenden, gehäuften Ziele."
 
-Denn Draco hatte diese Belehrung bereits erhalten und, so vermutete Harry, sie aus dem Verdacht heraus abgelehnt, dass Harry versuchte, seine Loyalitäten weiter von der Reinbluttradition weg zu verlagern. Was Harry natürlich _war. Aber dieses Beispiel wäre eine hervorragende Ausrede, um am nächsten Samstag zu behaupten, dass das Hinterfragen von Autorität eine rein praktische Technik für das wirkliche Leben sei. Und Harry würde auch die Experimente erwähnen, die er zuerst mit Einzelpersonen und dann mit Gruppen durchgeführt hatte, um zu überprüfen, ob seine Ideen über die Wichtigkeit der Geschwindigkeit tatsächlich _richtig_ waren, um den Punkt zu unterstreichen, dass Draco immer ein Auge darauf haben musste, die Methoden in der täglichen Praxis anzuwenden.
+Denn Draco hatte diese Belehrung bereits erhalten und, so vermutete Harry, sie aus dem Verdacht heraus abgelehnt, dass Harry versuchte, seine Loyalitäten weiter von der Reinbluttradition weg zu verlagern. Was Harry natürlich _tat_. Aber dieses Beispiel wäre eine hervorragende Ausrede, um am nächsten Samstag zu behaupten, dass das Hinterfragen von Autorität eine rein praktische Technik für das wirkliche Leben sei. Und Harry würde auch die Experimente erwähnen, die er zuerst mit Einzelpersonen und dann mit Gruppen durchgeführt hatte, um zu überprüfen, ob seine Ideen über die Wichtigkeit der Geschwindigkeit tatsächlich _richtig_ waren, um den Punkt zu unterstreichen, dass Draco immer ein Auge darauf haben musste, die Methoden in der täglichen Praxis anzuwenden.
 
 "Du hast _noch_ nicht gewonnen, General Potter!", knurrte Draco. "Vielleicht läuft uns die Zeit davon und Professor Quirrell wird es unentschieden nennen."
 
-Ein fairer und besorgniserregender Punkt. Der Krieg endete erst, als Professor Quirrell in seinem persönlichen Urteil entschied, dass eine Armee nach praktischen Maßstäben der realen Welt gewonnen hatte. Es gab keine _formale_ Siegbedingung, hatte Professor Quirrell erklärt, denn dann würde Harry herausfinden, wie man die Regeln ausspielen könnte. Harry musste zugeben, dass dies ein fairer Bulle war.
+Ein fairer und besorgniserregender Punkt. Der Krieg endete erst, wenn Professor Quirrell in seinem persönlichen Urteil entschied, dass eine Armee nach praktischen Maßstäben der realen Welt gewonnen hatte. Es gab keine _formale_ Siegbedingung, hatte Professor Quirrell erklärt, denn dann würde Harry herausfinden, wie man die Regeln ausspielen könnte. Harry musste zugeben, dass dies ein fairer Punkt war.
 
 Und Harry konnte Professor Quirrell nicht verübeln, dass er kein Ende ausrief, denn es war plausibel, dass der letzte Soldat der Drachenarmee alle fünf Überlebenden der Chaoslegion ausschalten konnte.
 
@@ -427,11 +426,11 @@ Harry kam der Gedanke, dass sie mit Wingardium Leviosa schwere Steine auf dem Sc
 
 "Also", sagte Harry. "Gibt es so etwas wie spezialisierte Schilddurchdringungszauber?"
 
-Das waren.
+Die gab es tatsächlich.
 
-Harry fragte, ob einer seiner Soldaten sie kannte.
+Harry fragte, ob einer seiner Soldaten einen kannte.
 
-Niemand hat das getan.
+Niemand kannte einen.
 
 Draco grinste wieder in sein Schild hinein.
 
@@ -439,7 +438,7 @@ Harry fragte, ob es irgendeine Art von Angriffszauber gäbe, der _nicht_ abprall
 
 Blitze, so schien es, wurden normalerweise von Schilden absorbiert, anstatt von ihnen abzuprallen.
 
-... Keiner wusste, wie man irgendeinen Blitzzauber wirken kann.
+... Keiner wusste, wie man irgendeinen Blitzzauber wirken konnte.
 
 Draco kicherte.
 
@@ -461,11 +460,11 @@ Aus Harrys Tasche kamen eine Autobatterie und ein Satz Starthilfekabel.
 
 ... Es war ja nicht so, dass er die Muggelwelt verlassen wollte, um eine neue Ära der magischen Forschung zu beginnen, und keine Möglichkeit der Stromerzeugung mitgenommen hätte.
 
-Kurz darauf hörten die Chaos Legionäre das Geräusch von schnappenden Fingern, gefolgt von einem knisternden Geräusch unter der Decke. Der Schild begann heller zu leuchten und Harrys Stimme sagte: "Lasst euch bitte nicht ablenken, Augen auf General Malfoy."
+Kurz darauf hörten die Chaos Legionäre das Geräusch von schnippenden Fingern, gefolgt von einem knisternden Geräusch unter der Decke. Der Schild begann heller zu leuchten und Harrys Stimme sagte: "Lasst euch bitte nicht ablenken, Augen auf General Malfoy."
 
 Die Anspannung war auf Dracos Gesicht zu sehen, zusammen mit der Wut, der Verärgerung und der Frustration.
 
-Harry lächelte ihn an und sagte: "Ich erzähle es dir später. _
+Harry lächelte ihn an und sagte: "Ich erzähle es dir später."
 
 Und das war der Moment, in dem eine Spirale aus grüner Energie aus dem Wald schoss und in Dracos Schild einschlug, das kreischte, als würden scharfe Glasscherben aneinander gerieben und Draco taumelte.
 
@@ -473,11 +472,11 @@ In plötzlicher, verzweifelter Panik nahm Harry die Überbrückungskabel von der
 
 Alle seine Soldaten waren noch da und blickten sich hektisch um.
 
-"_Contego,_"sagte Harry, und seine Soldaten folgten ihm, aber Harry wusste nicht einmal, in welche Richtung das Schild zeigen sollte. "Hat jemand gesehen, woher das kam?"Kopfschütteln. "Und General Malfoy, würden Sie mir bitte sagen, ob _Sie_ General Granger erwischt haben?"
+"_Contego,_" sagte Harry, und seine Soldaten folgten ihm, aber Harry wusste nicht einmal, in welche Richtung das Schild zeigen sollte. "Hat jemand gesehen, woher das kam?" Kopfschütteln. "Und General Malfoy, würde es Ihnen etwas ausmachen mir zu sagen, ob _Sie_ General Granger erwischt haben?"
 
-"Aber ja", sagte Draco säuerlich, "es stört mich."
+"Aber ja", sagte Draco säuerlich, "es macht mir etwas aus."
 
-_Oh, verdammt. _
+_Oh, verdammt._
 
 Harrys Gedanken begannen zu rechnen, Draco im Schild, Draco nun einigermaßen erschöpft, Harry ebenfalls erschöpft, Hermine im Wald wer-weiß-wo, Harry und vier andere Chaoten übrig...
 
@@ -487,12 +486,11 @@ Von irgendwoher kam das schrille Lachen eines Mädchens.
 
 Harry erstarrte.
 
-_Das war nicht Hermine. _
+_Das war nicht Hermine._
 
 Und das war der Moment, in dem der schreckliche, unheimliche, fröhliche Gesang begann, der von überall um sie herum kam.
 
-"Hab keine Angst, sei nicht traurig,
-Wir werden dir nur wehtun, wenn du böse bist... _"
+"_Hab keine Angst, sei nicht traurig, Wir werden dir nur wehtun, wenn du böse bist..._"
 
 "_Granger hat geschummelt!_", platzte Draco im Inneren des Schildes heraus. "Sie hat ihre Soldaten aufgeweckt! Warum macht Professor Quirrell nicht -"
 
@@ -506,7 +504,7 @@ Der Blick der entsetzten Erkenntnis breitete sich von Draco zu den Chaos Legion�
 
 Getarnte Gestalten tauchten zwischen den Bäumen auf.
 
-"Verbündete?"sagte Harry.
+"Verbündete?" sagte Harry.
 
 "Verbündete", sagte Draco.
 
@@ -514,31 +512,31 @@ Getarnte Gestalten tauchten zwischen den Bäumen auf.
 
 * * *
 
-General Granger überblickte das Schlachtfeld mit einem eindeutigen Gefühl der Zufriedenheit. Sie hatte nur noch neun Sonnenschein Soldiers, aber das war wahrscheinlich genug, um mit dem letzten Überlebenden der feindlichen Streitkräfte fertig zu werden, vor allem, wenn Parvati und Anthony und Ernie bereits ihre Zauberstäbe auf General Potter richteten, den sie lebendig (nun ja, bei Bewusstsein) hatte fangen lassen.
+General Granger überblickte das Schlachtfeld mit einem eindeutigen Gefühl der Zufriedenheit. Sie hatte nur noch neun Sonnenschein Soldaten, aber das war wahrscheinlich genug, um mit den letzten Überlebenden der feindlichen Streitkräfte fertig zu werden, vor allem, wenn Parvati und Anthony und Ernie bereits ihre Zauberstäbe auf General Potter richteten, der sich lebendig (nun ja, bei Bewusstsein) hatte fangen lassen.
 
 Es war schlecht, das wusste sie, aber sie hatte sich wirklich _wirklich_ freuen wollen.
 
 "Es gibt einen Trick, nicht wahr?", sagte Harry, wobei sich die Anspannung in seiner Stimme zeigte. "Es _muss_ ein Trick sein. Du kannst dich nicht einfach in einen perfekten General verwandeln. Nicht zu allem anderen auch noch. Du bist nicht dieser Slytherin! Du schreibst keine gruseligen Gedichte! Niemand ist in allem so gut!"
 
-General Granger blickte sich bei ihren Sonnenschein Soldiers um und sah dann wieder zu Harry. Wahrscheinlich haben das alle auf den Bildschirmen draußen verfolgt.
+General Granger blickte sich bei ihren Sonnenschein Soldaten um und sah dann wieder zu Harry. Wahrscheinlich haben das alle auf den Bildschirmen draußen verfolgt.
 
 Und General Granger sagte: "Ich kann alles machen, wenn ich hart genug lerne."
 
 "Oh, das ist einfach nur bu-"
 
-"_Somnium. _"
+"_Somnium._"
 
 Harry sackte mitten im Satz auf den Boden.
 
-"SUNSHINE WINS", intonierte die riesige Stimme von Professor Quirrell, die von überall und nirgends zu kommen schien.
+"Sonnenschein Gewinnt", intonierte die riesige Stimme von Professor Quirrell, die von überall und nirgends zu kommen schien.
 
 "Die Nettigkeit hat gesiegt!", rief General Granger.
 
-"_Hooray!_", riefen die Sonnenschein Soldiers. Sogar die Gryffindor-Jungs sagten es, und sie sagten es mit Stolz.
+"_Hurra!_", riefen die Sonnenschein Soldaten. Sogar die Gryffindor-Jungs sagten es, und sie sagten es mit Stolz.
 
 "Und was ist die Moral der heutigen Schlacht?", fragte General Granger.
 
-"_Wir können alles schaffen, wenn wir hart genug lernen!_ "
+"_Wir können alles schaffen, wenn wir nur hart genug lernen!_"
 
 Und die Überlebenden des Sonnenschein Regiments marschierten los in Richtung Siegesfeld und sangen dabei ihr Marschlied:.
 
@@ -547,6 +545,6 @@ Wir werden dir nur wehtun, wenn du böse bist,
 Und schicken dich in ein Zuhause, das wahrhaftig ist,
 Mit neuen Freunden, die über dich wachen,
 Sag ihnen, dass du geschickt wurdest
-Von Granger's Sonnenschein Regiment!_
+Von Granger's Sonnenschein Regiment!
 
-→ [Kapitel 301](Kapitel-301.md)
+→ [Kapitel 31](Kapitel-31.md)
