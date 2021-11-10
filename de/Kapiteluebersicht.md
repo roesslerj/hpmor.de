@@ -32,8 +32,8 @@ Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier ein
 - [Kapitel 28](Kapitel-28.md): Harry lernt etwas, was sonst niemand kann.
 - [Kapitel 29](Kapitel-29.md): Vorbereitungen für die 1. Schlacht.
 - [Kapitel 30](Kapitel-30.md): Die 1. Schlacht
-- [Kapitel 31](Kapitel-31.md): 
-- [Kapitel 32](Kapitel-32.md): 
+- [Kapitel 31](Kapitel-31.md): Nachspiel der 1. Schlacht
+- [Kapitel 32](Kapitel-32.md): Harry kauft Weihnachtsgeschenke
 - [Kapitel 33](Kapitel-33.md): 
 - [Kapitel 34](Kapitel-34.md): 
 - [Kapitel 35](Kapitel-35.md): 

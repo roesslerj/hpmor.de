@@ -113,6 +113,7 @@ async function run() {
       .replaceAll('Sunshine', 'Sonnenschein')
       .replaceAll('Sunny', 'Sonnenschein')
       .replaceAll('Chaotics', 'Chaotischen')
+      .replaceAll('Plot', 'Plan')
       .replaceAll('\{\\an8\}', '_')
       .concat(`\n\n→ [Kapitel ${nextChapter}](Kapitel-${nextChapter}.md)\n`);
     console.log("\n\n\n");

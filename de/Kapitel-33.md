@@ -12,15 +12,15 @@ Das Erschreckende daran war, wie schnell die ganze Sache außer Kontrolle gerate
 
 Die Atmosphäre in Hogwarts vor Yuletide war normalerweise hell und fröhlich. Die Große Halle war bereits in Grün und Rot geschmückt worden, nach einem Slytherin und einem Gryffindor, deren Yule-Hochzeit zu einem Symbol der Freundschaft über die Häuser und Loyalitäten hinweg geworden war, eine Tradition, die fast so alt war wie Hogwarts selbst und die sich sogar in Muggelländer verbreitet hatte.
 
-Die Schüler, die zu Abend aßen, blickten nervös über ihre Schultern, schickten böse Blicke an andere Tische oder stritten sich an manchen Tischen heftig. Man hätte die Atmosphäre vielleicht als _angespannt_ beschreiben können, aber der Ausdruck, der Minerva in den Sinn kam, war _fünf Grad der Vorsicht_ _
+Die Schüler, die zu Abend aßen, blickten nervös über ihre Schultern, schickten böse Blicke an andere Tische oder stritten sich an manchen Tischen heftig. Man hätte die Atmosphäre vielleicht als _angespannt_ beschreiben können, aber der Ausdruck, der Minerva in den Sinn kam, war _fünfter Grad der Vorsicht_.
 
 Nimm eine Schule, die in vier Häuser aufgeteilt ist...
 
 Füge nun in jedes Jahr drei Armeen im Krieg hinzu.
 
-Und die Parteinahme von Dragon und Sunshine und Chaos hatte sich über die Erstklässler hinaus ausgebreitet; sie waren die Armeen für diejenigen geworden, die keine Armeen hatten. Die Schüler trugen Armbinden mit Insignien des Feuers oder des Lächelns oder der erhobenen Hand und verhexten sich gegenseitig in den Gängen. Alle drei Erstklässler hatten ihnen gesagt, sie sollten aufhören - sogar Draco Malfoy hatte sie angehört und dann grimmig genickt - aber ihre vermeintlichen Anhänger hatten nicht auf sie gehört.
+Und die Parteinahme von Drachen und Sonnenschein und Chaos hatte sich über die Erstklässler hinaus ausgebreitet; sie waren die Armeen für diejenigen geworden, die keine Armeen hatten. Die Schüler trugen Armbinden mit Insignien des Feuers oder des Lächelns oder der erhobenen Hand und verhexten sich gegenseitig in den Gängen. Alle drei Erstklässler hatten ihnen gesagt, sie sollten aufhören - sogar Draco Malfoy hatte sie angehört und dann grimmig genickt - aber ihre vermeintlichen Anhänger hatten nicht auf sie gehört.
 
-Dumbledore blickte mit einem distanzierten Blick auf die Tische. "In jeder Stadt", zitierte der alte Zauberer leise, "ist die Bevölkerung schon seit langem in die Blaue und die Grüne Fraktion gespalten... Und sie kämpfen gegen ihre Gegner, ohne zu wissen, wofür sie sich in Gefahr begeben... So wächst in ihnen eine Feindseligkeit gegen ihre Mitmenschen heran, die keine Ursache hat und zu keiner Zeit aufhört oder verschwindet, denn sie gibt weder den Bindungen der Ehe noch der Verwandtschaft noch der Freundschaft Raum, und der Fall ist derselbe, auch wenn diejenigen, die sich in Bezug auf diese Farben unterscheiden, Brüder oder irgendeine andere Verwandtschaft sind. Ich für meinen Teil bin nicht in der Lage, dies etwas anderes als eine Krankheit der Seele zu nennen... _"
+Dumbledore blickte mit einem distanzierten Blick auf die Tische. "In jeder Stadt", zitierte der alte Zauberer leise, "ist die Bevölkerung schon seit langem in die Blaue und die Grüne Fraktion gespalten... Und sie kämpfen gegen ihre Gegner, ohne zu wissen, wofür sie sich in Gefahr begeben... So wächst in ihnen eine Feindseligkeit gegen ihre Mitmenschen heran, die keine Ursache hat und zu keiner Zeit aufhört oder verschwindet, denn sie gibt weder den Bindungen der Ehe noch der Verwandtschaft noch der Freundschaft Raum, und der Fall ist derselbe, auch wenn diejenigen, die sich in Bezug auf diese Farben unterscheiden, Brüder oder irgendeine andere Verwandtschaft sind. Ich für meinen Teil bin nicht in der Lage, dies etwas anderes als eine Krankheit der Seele zu nennen..."
 
 "Es tut mir leid", sagte Minerva, "ich weiß nicht -"
 
@@ -50,19 +50,19 @@ Und sie waren zu nahe an den Haupttisch gekommen, als dass Minerva noch etwas h�
 
 Das Erschreckende daran war, wie schnell die ganze Sache außer Kontrolle geraten war.
 
-Die erste Schlacht im Dezember war gewesen... chaotisch, oder so hatte Draco gehört.
+Die erste Schlacht war im Dezember gewesen... chaotisch, oder so hatte Draco gehört.
 
 Die zweite Schlacht war _verändert_ worden.
 
-Und der nächste würde _schlimmer_ sein, es sei denn, den dreien gemeinsam gelingt der letzte verzweifelte Versuch, ihn aufzuhalten.
+Und die nächste würde _schlimmer_ sein, es sei denn, den dreien gemeinsam gelingt der letzte verzweifelte Versuch, ihn aufzuhalten.
 
-"Professor Quirrell, das ist Wahnsinn!", sagte Draco barsch. "Das ist nicht mehr Slytherin, das ist einfach so. . _ _"Draco fand keine Worte mehr. Er winkte hilflos mit den Händen. "Du kannst unmöglich richtige Plots machen, wenn so viel los ist. In der letzten Schlacht hat einer meiner Soldaten seinen eigenen Selbstmord vorgetäuscht. Wir haben _Hufflepuffs_, die versuchen zu intrigieren, und sie denken, sie können es, aber sie _können es nicht. Die Dinge passieren jetzt einfach zufällig, es hat nichts damit zu tun, wer am cleversten ist oder welche Armee am besten kämpft, es ist... "Er konnte es nicht einmal beschreiben.
+"Professor Quirrell, das ist Wahnsinn!", sagte Draco barsch. "Das ist nicht mehr Slytherin, das ist einfach so..." Draco fand keine Worte mehr. Er winkte hilflos mit den Händen. "Man kannst unmöglich richtige Pläne machen, wenn so viel los ist. In der letzten Schlacht hat einer meiner Soldaten seinen eigenen Selbstmord vorgetäuscht. Wir haben _Hufflepuffs_, die versuchen zu intrigieren, und sie denken, sie könnten es, aber sie _können_ es nicht. Die Dinge passieren jetzt einfach zufällig, es hat nichts damit zu tun, wer am cleversten ist oder welche Armee am besten kämpft, es ist..." Er konnte es nicht einmal beschreiben.
 
 "Ich stimme Mr. Malfoy zu", sagte Granger im Tonfall von jemandem, der nicht damit gerechnet hatte, sich selbst jemals diese Worte sagen zu hören. "Verräter zuzulassen, funktioniert nicht, Professor Quirrell."
 
-Draco hatte versucht, jedem in seiner Armee zu verbieten, sich zu verschwören, außer ihm, und das hatte die Verschwörungen nur in den Untergrund getrieben, niemand wollte außen vor bleiben, wenn die Soldaten in _anderen_ Armeen sich verschwören konnten. Nachdem sie die letzte Schlacht kläglich verloren hatten, gab er schließlich nach und widerrief seinen Erlass. Doch da hatten seine Soldaten bereits begonnen, ihre eigenen Pläne in die Tat umzusetzen, ohne irgendeine zentrale Koordination.
+Draco hatte versucht, jedem in seiner Armee zu verbieten, sich zu verschwören, außer ihm, und das hatte die Verschwörungen nur in den Untergrund getrieben. Niemand wollte außen vor bleiben, wenn die Soldaten in _anderen_ Armeen sich verschwören konnten. Nachdem sie die letzte Schlacht kläglich verloren hatten, gab er schließlich nach und widerrief seinen Erlass. Doch da hatten seine Soldaten bereits begonnen, ihre eigenen Pläne in die Tat umzusetzen, ohne irgendeine zentrale Koordination.
 
-Nachdem er alle Pläne erfahren hatte, oder das, was seine Soldaten behaupteten, waren ihre Pläne, hatte Draco versucht, einen Plan zu entwerfen, um die letzte Schlacht zu gewinnen. Es hatte deutlich mehr als drei verschiedene Dinge gebraucht, um richtig zu sein, und Draco hatte _Incendio_ auf dem Papier und _Everto_ benutzt, um die Asche verschwinden zu lassen, denn wenn Vater es gesehen hätte, wäre er verstoßen worden.
+Nachdem er alle Pläne erfahren hatte, oder das, was seine Soldaten behaupteten, dass ihre Pläne, waren, hatte Draco versucht, einen Plan zu entwerfen, um die letzte Schlacht zu gewinnen. Es hatte deutlich mehr als drei verschiedene Dinge gebraucht, um richtig zu sein, und Draco hatte _Incendio_ auf auf Papier benutzt und _Everto_ benutzt, um die Asche verschwinden zu lassen, denn wenn Vater es gesehen hätte, wäre er verstoßen worden.
 
 Professor Quirrells Augenlider waren halb geschlossen, sein Kinn ruhte auf seinen Händen, während er sich nach vorne auf seinen Schreibtisch lehnte. "Und Sie, Mr. Potter?", fragte der Verteidigungsprofessor. "Bist du ebenfalls einverstanden?"
 
@@ -82,19 +82,19 @@ Professor Quirrell lächelte dünn, obwohl seine Augen noch halb geschlossen war
 
 Harry Potter hat viel zu schnell gelernt.
 
-Professor Quirrells Augen bewegten sich unter ihren Lidern, um Draco zu betrachten und dann Granger. "In Wahrheit, Mr. Malfoy, Miss Granger, könnte ich einfach nicht mit mir selbst leben, wenn ich das große Debakel vor seinem Höhepunkt beenden würde. Einer deiner Soldaten ist sogar ein Vierfachagent geworden."
+Professor Quirrells Augen bewegten sich unter ihren Lidern, um Draco zu betrachten und dann Granger. "In Wahrheit, Mr. Malfoy, Miss Granger, könnte ich einfach nicht mit mir selbst leben, wenn ich das große Debakel vor seinem Höhepunkt beenden würde. Einer ihrer Soldaten ist sogar ein Vierfachagent geworden."
 
-"_Quadruple?_", sagte Granger. "Aber es gibt nur drei Seiten im Krieg!"
+"_Ein Vierfachagent?_", sagte Granger. "Aber es gibt nur drei Seiten im Krieg!"
 
 "Ja", sagte Professor Quirrell, "das würdest du denken, nicht wahr? Ich bin mir nicht sicher, ob es jemals in der Geschichte einen Vierfachagenten oder eine Armee mit einem so hohen Anteil an echten und vermeintlichen Verrätern gegeben hat. Wir erforschen neue Gefilde, Miss Granger, und wir können jetzt nicht mehr umkehren."
 
-Draco verließ das Büro des Verteidigungsprofessors mit hart aufeinander knirschenden Zähnen und Granger schaute noch genervter neben ihm her.
+Draco verließ das Büro des Verteidigungsprofessors mit hart aufeinander knirschenden Zähnen und Granger lief noch genervter neben ihm her.
 
 "Ich kann nicht glauben, dass du das getan hast, Harry!", sagte Granger.
 
 "Tut mir leid", sagte Harry, wobei es überhaupt nicht nach Entschuldigung klang, seine Lippen waren zu einem fröhlichen, bösen Lächeln geschwungen. "Vergiss nicht, Hermine, es _ist_ nur ein Spiel, und warum sollten Generäle wie wir die einzigen sein, die sich verschwören dürfen? Und außerdem, was wollt ihr beide dagegen tun? Euch gegen mich verbünden?"
 
-Draco tauschte einen Blick mit Granger und wusste, dass sein eigenes Gesicht genauso angespannt war wie ihres. Harry hatte sich immer offener und schadenfroher auf Dracos Weigerung verlassen, mit einem Schlammblut gemeinsame Sache zu machen; und Draco wurde langsam _krank_, das gegen ihn verwendet zu bekommen. Wenn das noch länger so weiterging, _wollte_ er sich mit Granger verbünden, nur um Harry Potter zu vernichten und zu sehen, wie sehr dem Sohn eines Schlammbluts _das_ gefiel. _
+Draco tauschte einen Blick mit Granger und wusste, dass sein eigenes Gesicht genauso angespannt war wie ihres. Harry hatte sich immer offener und schadenfroher auf Dracos Weigerung verlassen, mit einem Schlammblut gemeinsame Sache zu machen; und Draco wurde langsam _krank_, das gegen ihn verwendet zu bekommen. Wenn das noch länger so weiterging, _wollte_ er sich mit Granger verbünden, nur um Harry Potter zu vernichten und zu sehen, wie sehr dem Sohn eines Schlammbluts _das_ gefiel.
 
 * * *
 
@@ -110,7 +110,7 @@ Die beiden waren nicht im Büro, sondern in einem anderen, verlassenen Klassenzi
 
 Ihre Frage hatte ein ironisches Lächeln auf das Gesicht der jungen Slytherin gezaubert. Blaise Zabini schien sie immer ein wenig zu verachten, aber er schien sie nicht aktiv abzulehnen; nichts im Vergleich zu der Verachtung, die er für Draco Malfoy hegte, oder dem Groll, den er für Harry Potter entwickelt hatte. Sie hatte sich zuerst Sorgen gemacht, dass Zabini sie verraten würde, aber der Junge schien verzweifelt zu zeigen, dass die anderen beiden Generäle nicht besser waren als er; und Hermine dachte, dass Zabini zwar wahrscheinlich froh wäre, sie an irgendjemanden _anderen_ zu verkaufen, aber er würde Malfoy oder Harry niemals gewinnen lassen.
 
-"Die meisten deiner Soldaten _sind_ immer noch loyal zu dir, da bin ich mir ziemlich sicher", sagte Zabini. "Es ist einfach so, dass niemand vom Spaß ausgeschlossen werden will. "Der verächtliche Gesichtsausdruck des Slytherins machte deutlich, was er von Leuten hielt, die Verschwörungen nicht ernst nahmen. "Sie denken also, sie können Doppelagenten sein und heimlich für unsere Seite arbeiten, während sie vorgeben, uns zu verraten."
+"Die meisten deiner Soldaten _sind_ immer noch loyal zu dir, da bin ich mir ziemlich sicher", sagte Zabini. "Es ist einfach so, dass niemand vom Spaß ausgeschlossen werden will." Der verächtliche Gesichtsausdruck des Slytherins machte deutlich, was er von Leuten hielt, die Verschwörungen nicht ernst nahmen. "Sie denken also, sie können Doppelagenten sein und heimlich für unsere Seite arbeiten, während sie vorgeben, uns zu verraten."
 
 "Und das würde auch für jeden in den _anderen_ Armeen gelten, der sagt, er wolle _unser_ Spion sein", sagte Hermine vorsichtig.
 
@@ -120,9 +120,9 @@ Hermine schloss für einen Moment die Augen. "Wir werden verlieren, nicht wahr?"
 
 "Hör zu", sagte Zabini geduldig, "du bist im Moment in Führung, was die Quirrell-Punkte angeht. Wir müssen nur diese letzte Schlacht nicht _komplett_ verlieren und du wirst genug Quirrell-Punkte haben, um den Weihnachtswunsch zu gewinnen."
 
-Professor Quirrell hatte angekündigt, dass der finale Kampf nach einem formalen Punktesystem ablaufen würde, was man ihm aufgetragen hatte, um spätere Vorwürfe zu vermeiden. Jedes Mal, wenn du jemanden erschossen hast, bekam der General deiner Armee zwei Quirrell-Punkte. Ein Gong würde durch das Schlachtfeld läuten (sie wussten noch nicht, wo sie kämpfen würden, obwohl Hermine wieder auf den Wald hoffte, wo Sunshine gut abschnitt) und sein Ton würde verraten, welche Armee die Punkte gewonnen hatte. Und wenn jemand vortäuschen würde, getroffen worden zu sein, würde der Gong trotzdem ertönen, und dann würde ein doppelter Gong später ertönen, nach keiner festgelegten Zeit, um den Rückzug zu begrüßen. Und wenn du den Namen einer Armee riefst, "Für Sonnenschein!"oder "Für Chaos!"oder "Für Drache!"schriest, wechselte es deine Loyalität zu dieser Armee...
+Professor Quirrell hatte angekündigt, dass der finale Kampf nach einem formalen Punktesystem ablaufen würde, was man ihm aufgetragen hatte, um spätere Vorwürfe zu vermeiden. Jedes Mal, wenn man jemanden erschossen hatte, bekam der General desjenigen Armee zwei Quirrell-Punkte. Ein Gong würde durch das Schlachtfeld läuten (sie wussten noch nicht, wo sie kämpfen würden, obwohl Hermine wieder auf den Wald hoffte, wo Sonnenschein gut abgeschnitten hatte) und der Ton würde verraten, welche Armee die Punkte gewonnen hatte. Und wenn jemand vortäuschen würde, getroffen worden zu sein, würde der Gong trotzdem ertönen, und dann würde ein doppelter Gong später ertönen, nach keiner festgelegten Zeit, um das zu korrigieren. Und wenn man den Namen einer Armee rief, "Für Sonnenschein!" oder "Für Chaos!" oder "Für Drache!", wechselte die Loyalität zu dieser Armee...
 
-Sogar Hermine war in der Lage gewesen, den Fehler in _diesem_ Regelwerk zu sehen. Aber Professor Quirrell hatte weiter verkündet, dass, wenn man ursprünglich Sunshine zugeteilt worden war, niemand einen im Namen von Sunshine erschießen konnte - oder besser gesagt, sie konnten es, aber dann verlor Sunshine einen einzigen Quirrell-Punkt, symbolisiert durch einen dreifachen Gong. Das hinderte dich daran, deine eigenen Soldaten für Punkte zu erschießen und entmutigte dich, Selbstmord zu begehen, bevor der Feind dich erwischt, aber du konntest immer noch Spione erschießen, wenn du es musstest.
+Sogar Hermine war in der Lage gewesen, den Fehler in _diesem_ Regelwerk zu sehen. Aber Professor Quirrell hatte weiter verkündet, dass, wenn man ursprünglich Sonnenschein zugeteilt worden war, niemand einen im Namen von Sonnenschein erschießen konnte - oder besser gesagt, sie konnten es, aber dann verlor Sonnenschein einen einzigen Quirrell-Punkt, symbolisiert durch einen dreifachen Gong. Das hinderte dich daran, deine eigenen Soldaten für Punkte zu erschießen und entmutigte dich, Selbstmord zu begehen, bevor der Feind dich erwischt, aber du konntest immer noch Spione erschießen, wenn du es musstest.
 
 Im Moment hatte Hermine zweihundertvierundvierzig Quirrell-Punkte, Malfoy hatte zweihundertneunzehn und Harry hatte zweihunderteinundzwanzig; und es gab vierundzwanzig Soldaten in jeder Armee.
 
@@ -142,7 +142,7 @@ Irgendetwas in Harry fühlte sich an, als ob er endlich nach Hause gekommen wär
 
 Vor ihm standen die vier Leutnants des Chaos, seine treuesten Gefolgsleute, von denen einer ein Verräter war.
 
-Dies. Das war, wie das Leben sein sollte.
+Das. Das war, wie das Leben sein sollte.
 
 "Wir sind versammelt", sagte Harry.
 
@@ -154,29 +154,29 @@ Dies. Das war, wie das Leben sein sollte.
 
 "Ganz mimosenhaft waren die Borogroves."
 
-"Und die mome raths outgrabe!"
+"Und die Mum Rats gruben sich aus!"
 
 Damit waren die Formalitäten abgeschlossen.
 
-"Was macht die Verwirrung?"sagte Harry in einem trockenen Flüsterton wie Imperator Palpatine.
+"Was macht die Verwirrung?" sagte Harry in einem trockenen Flüsterton wie Imperator Palpatine.
 
-"Es läuft gut, General Chaos", sagte Neville in dem Ton, den er immer für militärische Angelegenheiten benutzte, ein Ton, der so tief war, dass der Junge oft innehalten und husten musste. Der chaotische Leutnant war ordentlich in seine schwarze Schulrobe gekleidet, die mit dem Gelb des Hufflepuff-Hauses getrimmt war, und sein Haar war gescheitelt und gekämmt im üblichen Look für einen ernsten Jungen. Harry gefiel die Unstimmigkeit besser als jeder der Umhänge, die sie ausprobiert hatten. "Unsere Legionäre haben seit gestern Abend fünf neue Parzellen begonnen."
+"Es läuft gut, General Chaos", sagte Neville in dem Ton, den er immer für militärische Angelegenheiten benutzte. Ein Ton, der so tief war, dass der Junge oft innehalten und husten musste. Der chaotische Leutnant war ordentlich in seine schwarze Schulrobe gekleidet, die mit dem Gelb des Hufflepuff-Hauses getrimmt war, und sein Haar war gescheitelt und gekämmt im üblichen Look für einen ernsten Jungen. Harry gefiel die Unstimmigkeit besser als jeder der Umhänge, die sie ausprobiert hatten. "Unsere Legionäre haben seit gestern Abend fünf neue Parzellen begonnen."
 
-Harry lächelte böse. "Hat einer von ihnen eine Chance, zu funktionieren?"
+Harry lächelte böse. "Hat eine von ihnen eine Chance, zu funktionieren?"
 
 "Das glaube ich nicht", sagte Neville von Chaos. "Hier ist der Bericht."
 
 "Ausgezeichnet", sagte Harry und lachte kühl, als er Neville das Pergament aus der Hand nahm, wobei er sein Bestes gab, damit es so klang, als würde er an Staub ersticken. Das brachte die Gesamtzahl auf sechzig.
 
-Lass Draco _versuchen_, das zu erledigen. Lass es ihn _versuchen_
+Lass Draco _versuchen_, das zu verstehen. Lass es ihn _versuchen_.
 
 Und was Blaise Zabini betrifft...
 
 Harry lachte wieder, und dieses Mal gab er sich nicht einmal Mühe, böse zu klingen. Er musste sich wirklich jemandes Haustier Kneazle für seine Mitarbeitertreffen ausleihen, damit er eine Katze zum Streicheln hatte, während er dies tat.
 
-"Kann die Legion jetzt aufhören, Plots zu machen?", sagte Finnigan von Chaos. "Ich meine, haben wir nicht schon genug -"
+"Kann die Legion jetzt aufhören, Pläne zu machen?", sagte Finnigan von Chaos. "Ich meine, haben wir nicht schon genug -"
 
-"Nein", sagte Harry mit fester Stimme. "Wir können _nie_ genug Grundstücke haben."
+"Nein", sagte Harry mit fester Stimme. "Wir können _nie_ genug Parzellen haben."
 
 Professor Quirrell hatte es perfekt ausgedrückt. Sie trieben die Grenzen weiter, vielleicht weiter als jemals zuvor; und Harry hätte nicht damit leben können, wenn er sich jetzt umgedreht hätte.
 
@@ -192,7 +192,7 @@ Wenn er das nicht tun durfte, wenn er älter war, würde Harry einfach für imme
 
 Die Sonne tropfte durch die roten Vorhänge und schickte Blutstrahlen über den Boden hinter Harry Potters gepolstertem Stuhl in Erwachsenengröße, den er mit goldenem und silbernem Glitzer überzogen hatte und darauf bestand, ihn als seinen Thron zu bezeichnen.
 
-(Draco fühlte sich allmählich viel sicherer, dass er das Richtige getan hatte, als er beschloss, Harry Potter zu stürzen, bevor dieser die Welt übernehmen konnte. Draco konnte sich nicht einmal _vorstellen_, wie es sein würde, unter seiner Herrschaft zu leben. ).
+(Draco fühlte sich allmählich viel sicherer, dass er das Richtige getan hatte, als er beschloss, Harry Potter zu stürzen, bevor dieser die Welt übernehmen konnte. Draco konnte sich nicht einmal _vorstellen_, wie es sein würde, unter seiner Herrschaft zu leben.)
 
 "Guten Abend, Drachengeneral", sagte Harry Potter in einem kühlen Flüsterton. "Du bist genau so angekommen, wie ich es erwartet habe."
 
@@ -202,13 +202,13 @@ Und es war auch nicht Abend, aber mittlerweile wusste Draco es besser, als etwas
 
 "General Potter", sagte Draco mit so viel Würde, wie es ihm möglich war, "Sie wissen, dass unsere beiden Armeen zusammenarbeiten müssen, damit _jeder_ von uns Professor Quirrells Wunsch gewinnen kann, oder?"
 
-"Yesss", zischte Harry, als ob der Junge dachte, er sei ein Parselmouth. "Wir müssen zusammenarbeiten, um Sunshine zu zerstören, und erst dann den Kampf zwischen uns austragen. Aber wenn einer von uns den anderen früher verrät, könnte derjenige im späteren Kampf einen Vorteil erlangen. Und der Sunshine General, der das alles weiß, wird versuchen, jeden von uns in dem Glauben zu lassen, dass der andere sie verraten hat. Und du und ich, die wir das wissen, werden versucht sein, den anderen zu verraten und so zu tun, als sei es Grangers List. Und Granger weiß _das_ auch."
+"Jaaaaa", zischte Harry, als ob der Junge dachte, er sei ein Parselmund. "Wir müssen zusammenarbeiten, um Sonnenschein zu zerstören, und erst dann den Kampf zwischen uns austragen. Aber wenn einer von uns den anderen früher verrät, könnte derjenige im späteren Kampf einen Vorteil erlangen. Und der Sonnenschein General, der das alles weiß, wird versuchen, jeden von uns in dem Glauben zu lassen, dass der andere sie verraten hat. Und du und ich, die wir das wissen, werden versucht sein, den anderen zu verraten und so zu tun, als sei es Grangers List. Und Granger weiß _das_ auch."
 
 Draco nickte. So viel war klar. "Und... Wir wollen beide _nur_ gewinnen und es gibt niemanden, der einen von uns bestrafen würde, wenn wir überlaufen..."
 
 "Genau", sagte Harry Potter, sein Gesicht wurde nun ernst. "Wir sind mit einem _wahren_ Gefangenendilemma konfrontiert."
 
-Das Gefangenendilemma, nach Harrys Lehren, lief so ab: Zwei Gefangene waren in getrennten Zellen eingesperrt worden. Es gab Beweise gegen jeden Gefangenen, aber nur geringfügige Beweise, genug für eine Gefängnisstrafe von zwei Jahren pro Person. Jeder Gefangene könnte sich dafür entscheiden, den anderen zu verraten und vor Gericht gegen ihn auszusagen; und das würde ein Jahr von der eigenen Gefängnisstrafe abziehen, aber zwei Jahre zu der des anderen hinzufügen. Oder ein Gefangener könnte _kooperieren,_ indem er schweigt. Wenn also beide Gefangenen überliefen und jeder gegen den anderen aussagte, würden sie jeweils drei Jahre absitzen; wenn beide kooperierten oder schwiegen, würden sie jeweils zwei Jahre absitzen; aber wenn einer überlief und der andere kooperierte, würde der Überläufer ein Jahr und der Kooperierende vier Jahre absitzen.
+Das Gefangenendilemma, nach Harrys Lehren, lief so ab: Zwei Gefangene waren in getrennten Zellen eingesperrt. Es gab Beweise gegen jeden Gefangenen, aber nur geringfügige Beweise, genug für eine Gefängnisstrafe von zwei Jahren pro Person. Jeder Gefangene könnte sich dafür entscheiden, den anderen zu verraten und vor Gericht gegen ihn auszusagen; und das würde ein Jahr von der eigenen Gefängnisstrafe abziehen, aber zwei Jahre zu der des anderen hinzufügen. Oder ein Gefangener könnte _kooperieren_, indem er schweigt. Wenn also beide Gefangenen überliefen und jeder gegen den anderen aussagte, würden sie jeweils drei Jahre absitzen; wenn beide kooperierten oder schwiegen, würden sie jeweils zwei Jahre absitzen; aber wenn einer überlief und der andere kooperierte, würde der Überläufer ein Jahr und der Kooperierende vier Jahre absitzen.
 
 Und beide Gefangenen mussten ihre Entscheidung treffen, ohne die Wahl des anderen zu kennen, und keiner von beiden würde eine Chance bekommen, seine Entscheidung im Nachhinein zu ändern.
 
@@ -256,7 +256,7 @@ Draco hatte nicht gedacht, dass das funktionieren würde.
 
 Draco und Harry sprachen darüber hin und her. Sie hatten sich beide schon viel früher darauf geeinigt, dass das, was sie auf dem Schlachtfeld taten, im wirklichen Leben _nicht_ als gebrochenes Versprechen zählen würde - obwohl Draco ein wenig wütend darüber war, was Harry in Professor Quirrells Büro getan hatte, und das auch sagte.
 
-Aber wenn die beiden sich nicht auf Ehre oder Freundschaft verlassen konnten, _blieb_ noch die Frage, wie sie ihre Armeen dazu bringen konnten, zusammenzuarbeiten, um Sunshine zu besiegen, trotz allem, was Granger versuchen würde, sie zu trennen. Professor Quirrells Regeln machten es nicht verlockend, Sonnenschein die Soldaten der anderen Armee töten zu lassen - das erhöhte nur den Balken, den man selbst passieren musste - aber es verleitete jede Seite dazu, Kills zu stehlen, anstatt wie eine einzelne Armee zu agieren, oder einige der Soldaten der anderen Seite während der Verwirrung der Schlacht zu erschießen...
+Aber wenn die beiden sich nicht auf Ehre oder Freundschaft verlassen konnten, _blieb_ noch die Frage, wie sie ihre Armeen dazu bringen konnten, zusammenzuarbeiten, um Sonnenschein zu besiegen, trotz allem, was Granger versuchen würde, sie zu trennen. Professor Quirrells Regeln machten es nicht verlockend, Sonnenschein die Soldaten der anderen Armee töten zu lassen - das erhöhte nur den Balken, den man selbst passieren musste - aber es verleitete jede Seite dazu, Kills zu stehlen, anstatt wie eine einzelne Armee zu agieren, oder einige der Soldaten der anderen Seite während der Verwirrung der Schlacht zu erschießen...
 
 * * *
 
@@ -300,13 +300,13 @@ Draco trat ein paar Mal mit den Beinen, was ihn in eine höhere Position katapul
 
 Die Gespräche erstarben fast augenblicklich unter Dracos eisigem Blick und seine Soldaten sahen mit dankbaren Mienen der Angst und Sorge zu ihm auf.
 
-"Hör mir gut zu", sagte General Malfoy. Seine Stimme kam ein wenig tiefer, ein wenig blasig, _libsten mir vebwy caerbfully_, aber der Ton kam deutlich rüber. "Es gibt nur einen Weg, wie wir das gewinnen können. Wir müssen zusammen mit Chaos gegen Sunshine marschieren und Sunshine schlagen. _Dann_ kämpfen wir es mit Potter aus und gewinnen. Das _muss_ passieren, verstehst du? Egal, was sonst noch passiert, dieser Teil _muss_ so passieren -"
+"Hör mir gut zu", sagte General Malfoy. Seine Stimme kam ein wenig tiefer, ein wenig blasig, _libsten mir vebwy caerbfully_, aber der Ton kam deutlich rüber. "Es gibt nur einen Weg, wie wir das gewinnen können. Wir müssen zusammen mit Chaos gegen Sonnenschein marschieren und Sonnenschein schlagen. _Dann_ kämpfen wir es mit Potter aus und gewinnen. Das _muss_ passieren, verstehst du? Egal, was sonst noch passiert, dieser Teil _muss_ so passieren -"
 
 Und Draco erklärte den Plan, den er und Harry sich ausgedacht hatten.
 
 Erstaunte Blicke wurden unter den Soldaten ausgetauscht.
 
-"- und wenn einer von _deinen_ Plots dem in die Quere kommt", beendete Draco, "nachdem wir aus dem Wasser sind, werde ich dich in _Feuer_ setzen."
+"- und wenn einer von _deinen_ Plans dem in die Quere kommt", beendete Draco, "nachdem wir aus dem Wasser sind, werde ich dich in _Feuer_ setzen."
 
 Ein nervöser Chor von Yessirs ertönte.
 
@@ -316,7 +316,7 @@ Etwa die Hälfte seiner Soldaten _nickte offen_ und Draco markierte sie für den
 
 Natürlich waren alle privaten Befehle gefälscht, wie z.B. dass ein Drache einem anderen Drachen einen falschen Verräterauftrag anbieten sollte, und dass der zweite Drache im stillen Vertrauen angewiesen wurde, alles zu berichten, was der erste Drache sagte. Draco hatte jedem Drachen gesagt, dass der ganze Krieg von dieser einen Sache abhängen könnte und dass er hoffte, dass sie verstanden, dass dies wichtiger war als die Pläne, die sie zuvor gemacht hatten. Mit etwas Glück würde das alle Idioten bei Laune halten und vielleicht auch ein paar Spione aufscheuchen, wenn die Berichte nicht mit den Anweisungen übereinstimmen.
 
-Dracos wahrer Plan, um gegen das Chaos zu gewinnen... Nun, es war einfacher als das, das er verbrannt hatte, aber Vater hätte es trotzdem nicht gefallen. Trotz aller Bemühungen war Draco jedoch nicht in der Lage gewesen, an etwas Besseres zu denken. Es war ein Plot, der _unmöglich_ gegen irgendjemanden außer Harry Potter hätte funktionieren können. Tatsächlich war es ursprünglich Harrys Plan gewesen, so der Verräter, obwohl Draco das vermutet hatte, ohne dass es ihm gesagt wurde. Draco und der Verräter hatten es nur ein wenig verändert...
+Dracos wahrer Plan, um gegen das Chaos zu gewinnen... Nun, es war einfacher als das, das er verbrannt hatte, aber Vater hätte es trotzdem nicht gefallen. Trotz aller Bemühungen war Draco jedoch nicht in der Lage gewesen, an etwas Besseres zu denken. Es war ein Plan, der _unmöglich_ gegen irgendjemanden außer Harry Potter hätte funktionieren können. Tatsächlich war es ursprünglich Harrys Plan gewesen, so der Verräter, obwohl Draco das vermutet hatte, ohne dass es ihm gesagt wurde. Draco und der Verräter hatten es nur ein wenig verändert...
 
 * * *
 
@@ -340,15 +340,15 @@ Eine hohle, dröhnende Glocke hallte durch das Wasser und im selben Moment stür
 
 General Granger schluckte einen Kloß im Hals hinunter, als sie sie gehen sah. Sie riskierte dabei alles. Sie teilte ihre Armee auf, anstatt einfach zu versuchen, so viele feindliche Soldaten wie möglich mitzunehmen.
 
-Die Sache, die es zu begreifen galt, hatte Zabini ihr gesagt, war, dass keine Armee sich bewegen würde, bis sie einen Plan hatten, der sie den Sieg erwarten ließ. Sunshine konnte nicht nur planen, selbst zu gewinnen, sie mussten die beiden anderen Armeen dazu bringen, zu denken, dass sie gewinnen würden, bis es zu spät war.
+Die Sache, die es zu begreifen galt, hatte Zabini ihr gesagt, war, dass keine Armee sich bewegen würde, bis sie einen Plan hatten, der sie den Sieg erwarten ließ. Sonnenschein konnte nicht nur planen, selbst zu gewinnen, sie mussten die beiden anderen Armeen dazu bringen, zu denken, dass sie gewinnen würden, bis es zu spät war.
 
 Ernie und Ron sahen immer noch aus, als stünden sie unter Schock. Susan blickte den verschwindenden Soldaten mit einem berechnenden Blick nach. Ihre Armee, was davon übrig war, schaute nur verwirrt, Lichtspuren auf ihren Uniformen, während sie alle knapp unter der sonnenbeschienenen Oberfläche des Sees trieben.
 
 "_Nun_ was?", sagte Ron.
 
-"Jetzt warten wir", sagte Hermine, laut genug, dass alle Soldaten sie hören konnten. Es fühlte sich seltsam an, mit vollem Mund zu sprechen. Sie hatte ständig das Gefühl, irgendeine schreckliche Unhöflichkeit am Esstisch zu begehen und kurz davor zu sein, sich vollzusabbern. "Alle, die hier übrig geblieben sind, werden gezappt, aber das wäre sowieso passiert, wenn Dragon und Chaos sich gegen uns verbünden würden. Wir müssen einfach so viele von ihnen mitnehmen, wie wir können."
+"Jetzt warten wir", sagte Hermine, laut genug, dass alle Soldaten sie hören konnten. Es fühlte sich seltsam an, mit vollem Mund zu sprechen. Sie hatte ständig das Gefühl, irgendeine schreckliche Unhöflichkeit am Esstisch zu begehen und kurz davor zu sein, sich vollzusabbern. "Alle, die hier übrig geblieben sind, werden gezappt, aber das wäre sowieso passiert, wenn Drachen und Chaos sich gegen uns verbünden würden. Wir müssen einfach so viele von ihnen mitnehmen, wie wir können."
 
-"Ich habe einen Plan", sagte einer ihrer Sunshine Soldiers... Hannah, ihre Stimme war anfangs etwas schwer zu erkennen gewesen. "Es ist alles sehr kompliziert, aber ich weiß, wie wir Dragon und Chaos dazu bringen können, sich gegenseitig zu bekämpfen -"
+"Ich habe einen Plan", sagte einer ihrer Sonnenschein Soldiers... Hannah, ihre Stimme war anfangs etwas schwer zu erkennen gewesen. "Es ist alles sehr kompliziert, aber ich weiß, wie wir Drachen und Chaos dazu bringen können, sich gegenseitig zu bekämpfen -"
 
 "Ich auch!", sagte Fay. "Ich habe auch einen Plan! Siehst du, Neville Longbottom ist heimlich auf unserer Seite -"
 
@@ -358,7 +358,7 @@ Daphne Greengrass und ein paar andere Slytherins, die nicht mit Zabini gegangen 
 
 Hermine sah sie alle nur müde an.
 
-"Okay", sagte Hermine, als sich alles gelegt hatte, "habt ihr es alle verstanden? Alle eure Verschwörungen wurden von der Chaos Legion gefälscht, oder vielleicht einige von Dragon. Jeder, der Harry oder Malfoy _wirklich_ verraten wollte, ging direkt zu mir oder Zabini, nicht zu dir. Mach einfach weiter und vergleiche alle deine geheimen Plots und du wirst es selbst sehen. "Sie war vielleicht nicht so gut im Plotten wie Zabini, aber sie konnte immer verstehen, was ihre Offiziere ihr sagten, deshalb hatte Professor Quirrell sie zum General gemacht. "Mach dir also nicht die Mühe, irgendwelche Pläne zu schmieden, wenn die anderen Armeen hier ankommen. Kämpfe einfach, okay? Bitte?"
+"Okay", sagte Hermine, als sich alles gelegt hatte, "habt ihr es alle verstanden? Alle eure Verschwörungen wurden von der Chaos Legion gefälscht, oder vielleicht einige von Drachen. Jeder, der Harry oder Malfoy _wirklich_ verraten wollte, ging direkt zu mir oder Zabini, nicht zu dir. Mach einfach weiter und vergleiche alle deine geheimen Plans und du wirst es selbst sehen. "Sie war vielleicht nicht so gut im Planten wie Zabini, aber sie konnte immer verstehen, was ihre Offiziere ihr sagten, deshalb hatte Professor Quirrell sie zum General gemacht. "Mach dir also nicht die Mühe, irgendwelche Pläne zu schmieden, wenn die anderen Armeen hier ankommen. Kämpfe einfach, okay? Bitte?"
 
 "Aber", sagte Ernie mit einem Schock im Gesicht, "Neville ist in _Hufflepuff!_ Du sagst, dass er uns _belogen_ hat?"
 
@@ -376,9 +376,9 @@ Daphne lachte so sehr und so hilflos, dass die Ausatmungen sie kopfüber ins Was
 
 "Parvati war _total_ eine Spionin", sagte Daphne. "Sie kaufte im Spionage-Schuhladen ein und trug Spionage-Lippenstift, und eines Tages wird sie einen netten Spionage-Ehemann heiraten und eine Menge kleiner Spione haben."
 
-Und dann hallte ein Gongton durch das Wasser, der anzeigte, dass Sunshine gerade zwei Punkte erzielt hatte.
+Und dann hallte ein Gongton durch das Wasser, der anzeigte, dass Sonnenschein gerade zwei Punkte erzielt hatte.
 
-Kurz darauf folgte der dreifache Gong, als Dragon einen Punkt verlor.
+Kurz darauf folgte der dreifache Gong, als Drachen einen Punkt verlor.
 
 Verräter durften keine Generäle töten, nicht nach dem Desaster der ersten Schlacht im Dezember, als alle drei Generäle in der ersten Minute erschossen worden waren. Aber mit etwas Glück...
 
@@ -390,7 +390,7 @@ Wie zwei Fischschwärme schwammen die Armeen dahin.
 
 Neville Longbottom trat mit seinen Füßen in langsamen, gemessenen Bewegungen. Tauchen, immer in die Richtung tauchen, in die du dich gerade bewegst. Du wolltest dem Feind das kleinste Profil zeigen, ihn mit deinem Kopf oder deinen Füßen präsentieren. Du bist also immer getaucht, nach unten und mit dem Kopf voran, und der Feind war immer _unten. _
 
-Wie jeder Chaoslegionär in der Armee drehte sich Nevilles Kopf ständig, während er schwamm, schaute nach oben, unten, herum, zu jeder Seite. Sie hielten nicht nur Ausschau nach Sunshine Soldiers, sondern auch nach jedem Anzeichen, dass ein Chaos Legionär seinen Zauberstab gezogen hatte und im Begriff war, sie zu verraten. Normalerweise warteten die Verräter bis zu den Wirren der Schlacht, um ihren Zug zu machen, aber dieser frühe Gong hatte sie alle in Alarmbereitschaft versetzt.
+Wie jeder Chaoslegionär in der Armee drehte sich Nevilles Kopf ständig, während er schwamm, schaute nach oben, unten, herum, zu jeder Seite. Sie hielten nicht nur Ausschau nach Sonnenschein Soldiers, sondern auch nach jedem Anzeichen, dass ein Chaos Legionär seinen Zauberstab gezogen hatte und im Begriff war, sie zu verraten. Normalerweise warteten die Verräter bis zu den Wirren der Schlacht, um ihren Zug zu machen, aber dieser frühe Gong hatte sie alle in Alarmbereitschaft versetzt.
 
 ... Die Wahrheit war, dass Neville darüber traurig war. Im November war er ein Soldat in einer vereinten Armee gewesen, in der alle an einem Strang zogen und sich gegenseitig halfen, und jetzt beobachteten sie sich alle ständig auf die ersten Anzeichen von Verrat. Es mag für General Chaos mehr Spaß gemacht haben, aber für Neville war es nicht annähernd so lustig.
 
@@ -422,15 +422,15 @@ Warum? . .
 
 Dann rastete alles ein.
 
-Jedes Mal, wenn ein Soldat, der ursprünglich aus Sunshine stammte, von jemandem erschossen wurde, der den Namen Sunshine rief, würde sie einen Quirrell-Punkt verlieren. Wenn zwei Sunshine Soldiers von einer der beiden Armeen erschossen wurden, waren _beide_ feindlichen Armeen zwei Punkte näher dran, sie zu überholen, es war der gleiche Gewinn nur _geteilt_ Und wenn jemand einen anderen Soldaten _nicht_ im Namen von Sunshine erschossen hat, würde dieser Gong _nicht_ in dem Durcheinander verloren gehen...
+Jedes Mal, wenn ein Soldat, der ursprünglich aus Sonnenschein stammte, von jemandem erschossen wurde, der den Namen Sonnenschein rief, würde sie einen Quirrell-Punkt verlieren. Wenn zwei Sonnenschein Soldiers von einer der beiden Armeen erschossen wurden, waren _beide_ feindlichen Armeen zwei Punkte näher dran, sie zu überholen, es war der gleiche Gewinn nur _geteilt_ Und wenn jemand einen anderen Soldaten _nicht_ im Namen von Sonnenschein erschossen hat, würde dieser Gong _nicht_ in dem Durcheinander verloren gehen...
 
-Hermine war plötzlich sehr froh, dass Zabini nicht den offensichtlichen Plan verfolgt hatte, Ärger zwischen den anderen beiden Armeen zu verursachen, während sie Sunshine angriffen.
+Hermine war plötzlich sehr froh, dass Zabini nicht den offensichtlichen Plan verfolgt hatte, Ärger zwischen den anderen beiden Armeen zu verursachen, während sie Sonnenschein angriffen.
 
 Es war trotzdem entmutigend, dieses Gefühl, dass deine Chancen schwinden, dass dir die Hoffnung genommen wird.
 
 Die meisten von Hermines Soldaten schauten immer noch verwirrt, aber einige hatten Ausdrücke des dämmernden Entsetzens, als sie es bekamen.
 
-"Es ist alles in Ordnung", sagte Susan Bones fest. Die Köpfe drehten sich um, um den Sunshine Captain anzuschauen. "Unsere Aufgabe ist es, so viele von ihnen mitzunehmen wie wir können. Und vergiss nicht, Zabini hat alle Spione beseitigt! Wir müssen nicht auf der Hut sein, wie _sie_ es tun!"Das Mädchen lächelte trotzig und provozierte damit ein Lächeln von vielen der anderen Soldaten, sogar von Hermine selbst. "Es kann so sein, wie es im November war. Wir müssen einfach den Kopf hochhalten, unser Bestes geben und uns gegenseitig vertrauen -"
+"Es ist alles in Ordnung", sagte Susan Bones fest. Die Köpfe drehten sich um, um den Sonnenschein Captain anzuschauen. "Unsere Aufgabe ist es, so viele von ihnen mitzunehmen wie wir können. Und vergiss nicht, Zabini hat alle Spione beseitigt! Wir müssen nicht auf der Hut sein, wie _sie_ es tun!"Das Mädchen lächelte trotzig und provozierte damit ein Lächeln von vielen der anderen Soldaten, sogar von Hermine selbst. "Es kann so sein, wie es im November war. Wir müssen einfach den Kopf hochhalten, unser Bestes geben und uns gegenseitig vertrauen -"
 
 Daphne schoss auf sie.
 
@@ -446,7 +446,7 @@ Die beiden feindlichen Champions schossen aufeinander zu, wie Pfeile aus Bögen,
 
 (Weit weg am Seeufer wurden hundert Atemzüge gehalten. ).
 
-"_Regenbögen und Einhörner!_ "brüllte der Sunshine Captain.
+"_Regenbögen und Einhörner!_ "brüllte der Sonnenschein Captain.
 
 "_Die schwarze Ziege mit tausend Jungen!_ "
 
@@ -462,7 +462,7 @@ Neville sah den entsetzten Gesichtsausdruck von Captain Weasley, als der Schwebe
 
 "_Verflucht seist du, Longbottom!_", kreischte Ron Weasley, "_Kannst du nicht einmal ohne deine blöden Spezialattacken kämpfen -_"
 
-und schon war der Sunshine Captain auf die Seite gedreht und Neville schoss ihm ins Bein.
+und schon war der Sonnenschein Captain auf die Seite gedreht und Neville schoss ihm ins Bein.
 
 "Ich kämpfe nicht fair", sagte Neville zu der schlafenden Gestalt, "ich kämpfe wie Harry Potter."
 
@@ -492,7 +492,7 @@ Würdest du bitte die Klappe halten wegen dieses wertlosen Trümmerstücks, das 
 
 Die beiden Armeen trennten sich schnell und wurden wieder zu zwei Fischschwärmen.
 
-General Granger war siebzehn Punkte untergegangen und hatte drei Chaoten und zwei Drachen mitgenommen; und ein Chaot und zwei Drachen waren als Verräter erschossen worden. Sie hatte also netto sieben Punkte verloren, Harry einen, Draco zwei; damit hatte Sunshine zwanzig Punkte Vorsprung auf Dragon und siebzehn Punkte auf Chaos. Das Chaos könnte immer noch leicht gewinnen, wenn sie alle zwanzig verbliebenen Drachen auslöschen würden. Der Joker sind natürlich die sieben verbliebenen Sunshine Soldiers...
+General Granger war siebzehn Punkte untergegangen und hatte drei Chaoten und zwei Drachen mitgenommen; und ein Chaot und zwei Drachen waren als Verräter erschossen worden. Sie hatte also netto sieben Punkte verloren, Harry einen, Draco zwei; damit hatte Sonnenschein zwanzig Punkte Vorsprung auf Drachen und siebzehn Punkte auf Chaos. Das Chaos könnte immer noch leicht gewinnen, wenn sie alle zwanzig verbliebenen Drachen auslöschen würden. Der Joker sind natürlich die sieben verbliebenen Sonnenschein Soldiers...
 
 ... wenn man sie so nennen kann.
 
@@ -502,9 +502,9 @@ Die beiden Schwärme schwammen unruhig nebeneinander, die Soldaten in jeder Arme
 
 Die vertrauenswürdigen zwei Drittel der Armee nickten nicht, und das andere Drittel schaute nur verwirrt.
 
-Sonderbefehl Eins: Mach dir nicht die Mühe, in dieser Schlacht irgendwelche Codewörter zu rufen, gib dich nicht mit irgendwelchen Plots ab, die nicht speziell vom Kommandanten genehmigt wurden; schwimme einfach, schirme ab und feuere. _
+Sonderbefehl Eins: Mach dir nicht die Mühe, in dieser Schlacht irgendwelche Codewörter zu rufen, gib dich nicht mit irgendwelchen Plans ab, die nicht speziell vom Kommandanten genehmigt wurden; schwimme einfach, schirme ab und feuere. _
 
-Hermine und Draco hatten den ganzen Dezember über mit ihren Soldaten gekämpft und versucht, sie davon abzuhalten, sich selbst zu verschwören. Harry hatte seine Soldaten angestachelt und sie in den letzten beiden Schlachten bei ihren Plänen unterstützt... Dabei sagte er ihnen auch, dass er sie irgendwann darum bitten würde, ein oder zwei Plots auf Eis zu legen, womit sie alle bereitwillig einverstanden waren. So waren sie jetzt, in dieser kritischen Schlacht, glücklich, zu gehorchen.
+Hermine und Draco hatten den ganzen Dezember über mit ihren Soldaten gekämpft und versucht, sie davon abzuhalten, sich selbst zu verschwören. Harry hatte seine Soldaten angestachelt und sie in den letzten beiden Schlachten bei ihren Plänen unterstützt... Dabei sagte er ihnen auch, dass er sie irgendwann darum bitten würde, ein oder zwei Plans auf Eis zu legen, womit sie alle bereitwillig einverstanden waren. So waren sie jetzt, in dieser kritischen Schlacht, glücklich, zu gehorchen.
 
 Weder Hermine noch Draco hätten diesen Befehl erfolgreich geben können, da war sich Harry sicher. Es war der Unterschied zwischen deinen Soldaten, die dich als Verbündeten in ihren Verschwörungen sahen, und denen, die in dir einen Spielverderber sahen, der nicht wollte, dass sie Spaß haben. Die Auferlegung von Ordnung war gleichbedeutend mit der Eskalation des Chaos, und es funktionierte auch umgekehrt...
 
@@ -518,7 +518,7 @@ Die beiden Fischschwärme schwankten und zeigten unruhig auf ihre Stäbe.
 
 Es gab einen Moment des angehaltenen Atems.
 
-Dann schwammen die sieben Sunshine Soldiers nach oben, um sich der Drachenarmee anzuschließen.
+Dann schwammen die sieben Sonnenschein Soldiers nach oben, um sich der Drachenarmee anzuschließen.
 
 Es gab einen triumphalen Jubel der Drachenarmee.
 
@@ -570,7 +570,7 @@ Padma war seine Stellvertreterin; sie war klug und mächtig, und besser noch, si
 
 "Warte, bis wir alle hier sind", sagte Draco. Die Wahrheit war, dass er erst einmal zu Atem kommen musste. Das war das Problem, wenn man der General _und_ der mächtigste Zauberer war, man musste ständig Magie benutzen.
 
-Zabini kam als nächster. Er befehligte eine Truppe von zwei Sunnies und vier Drachen, von denen einer Gregory war, der ein Auge auf Zabini hatte. Draco traute Zabini nicht. Und weder Draco noch Zabini vertrauten den Sunnies genug, um sie zur Mehrheit einer Einheit zu machen; sie sollten entweder Draco direkt oder Granger gegenüber loyal sein, die mit dem Versprechen getäuscht worden war, dass die Drachen am Ende verraten würden, nachdem beide Streitkräfte dezimiert worden waren, genauso wie Harrys vertrauenswürdigere Chaoten mit dem Versprechen, dass sie falsche Schlafhexen abfeuern und später zur Unterstützung des Chaos wechseln würden, dazu gebracht werden sollten, nicht auf die Sunnies zu schießen; Aber es war möglich, dass einige der Sunnies dem Chaos gegenüber loyal waren und keine echten Schlafverhexungen abfeuerten, weshalb Dragon nicht so gewann, wie es ihr zahlenmäßiger Vorteil hätte zulassen sollen...
+Zabini kam als nächster. Er befehligte eine Truppe von zwei Sunnies und vier Drachen, von denen einer Gregory war, der ein Auge auf Zabini hatte. Draco traute Zabini nicht. Und weder Draco noch Zabini vertrauten den Sunnies genug, um sie zur Mehrheit einer Einheit zu machen; sie sollten entweder Draco direkt oder Granger gegenüber loyal sein, die mit dem Versprechen getäuscht worden war, dass die Drachen am Ende verraten würden, nachdem beide Streitkräfte dezimiert worden waren, genauso wie Harrys vertrauenswürdigere Chaoten mit dem Versprechen, dass sie falsche Schlafhexen abfeuern und später zur Unterstützung des Chaos wechseln würden, dazu gebracht werden sollten, nicht auf die Sunnies zu schießen; Aber es war möglich, dass einige der Sunnies dem Chaos gegenüber loyal waren und keine echten Schlafverhexungen abfeuerten, weshalb Drachen nicht so gewann, wie es ihr zahlenmäßiger Vorteil hätte zulassen sollen...
 
 Die nächste Einheit, die sich näherte, war dezimiert, drei Soldaten hielten Zauberstäbe auf zwei andere Soldaten, die mit leeren Händen schwammen.
 
@@ -584,9 +584,9 @@ Draco biss die Zähne zusammen. Mehr Probleme mit Verrätern. Er musste mit Prof
 
 "_Somnium,_"sagte Draco.
 
-Es gab die dreifache Glocke eines Ein-Punkt-Verlustes von Dragon, und dann begann Kellahs schlaffer Körper im Wasser davon zu treiben.
+Es gab die dreifache Glocke eines Ein-Punkt-Verlustes von Drachen, und dann begann Kellahs schlaffer Körper im Wasser davon zu treiben.
 
-Draco _hatte_ zu diesem Zeitpunkt das Wort "Rekursion"gehört und er erkannte einen Harry Potter Plot, wenn er einen sah.
+Draco _hatte_ zu diesem Zeitpunkt das Wort "Rekursion"gehört und er erkannte einen Harry Potter Plan, wenn er einen sah.
 
 (Leider hatte Draco _nicht_ von Autoimmunkrankheiten gehört, und der Gedanke kam ihm _nicht_ ohne weiteres, dass ein schlaues Virus seinen Angriff damit beginnen würde, Symptome einer Autoimmunkrankheit zu erzeugen, um den Körper dazu zu bringen, seinem eigenen Immunsystem zu misstrauen... ).
 
@@ -594,17 +594,17 @@ Draco _hatte_ zu diesem Zeitpunkt das Wort "Rekursion"gehört und er erkannte ei
 
 Und dann -.
 
-Es gab die Glocke von Sunshine, die zwei Punkte erzielte.
+Es gab die Glocke von Sonnenschein, die zwei Punkte erzielte.
 
-"_Was?_", sagten Draco und Zabini etwa gleichzeitig; ihre Köpfe schwenkten herum. Niemand schien getroffen worden zu sein, und alle Sunshine-Soldaten waren anwesend und erfasst. (Außer Parvati, die von einem noch unbekannten Verräter in Padmas Truppe erschossen wurde; und natürlich hatte Padma Parvati noch einmal erschossen, für den Fall, dass sie simulierte, also war sie es nicht... ).
+"_Was?_", sagten Draco und Zabini etwa gleichzeitig; ihre Köpfe schwenkten herum. Niemand schien getroffen worden zu sein, und alle Sonnenschein-Soldaten waren anwesend und erfasst. (Außer Parvati, die von einem noch unbekannten Verräter in Padmas Truppe erschossen wurde; und natürlich hatte Padma Parvati noch einmal erschossen, für den Fall, dass sie simulierte, also war sie es nicht... ).
 
-"Ein sonniger Verräter im Chaos?", fragte Zabini und klang verwirrt. "Aber alle, von denen ich wusste, dass sie während des Angriffs von Chaos auf Sunshine zuschlagen sollten -"
+"Ein sonniger Verräter im Chaos?", fragte Zabini und klang verwirrt. "Aber alle, von denen ich wusste, dass sie während des Angriffs von Chaos auf Sonnenschein zuschlagen sollten -"
 
 "Nein!", sagte Padma in einem Ton der plötzlichen Erkenntnis. "Das war _Chaos_, der einen Spion hinrichtet!"
 
 "_Was?_", sagte Zabini. "Aber warum -"
 
-Und Draco hat sie bekommen. Verdammt!_ "Weil Potter denkt, dass er sicher ist, wie sehr er Sunshine schlägt, aber nicht, wie sehr er _uns schlägt!_ Also will er keinen einzigen Punkt verlieren, wenn er einen Verräter hinrichtet! _Allgemeiner Befehl!_ Wenn du einen Verräter hinrichten musst, rufe zuerst Sunshine! Und vergiss nicht, danach wieder zu Dragon zu wechseln -"
+Und Draco hat sie bekommen. Verdammt!_ "Weil Potter denkt, dass er sicher ist, wie sehr er Sonnenschein schlägt, aber nicht, wie sehr er _uns schlägt!_ Also will er keinen einzigen Punkt verlieren, wenn er einen Verräter hinrichtet! _Allgemeiner Befehl!_ Wenn du einen Verräter hinrichten musst, rufe zuerst Sonnenschein! Und vergiss nicht, danach wieder zu Drachen zu wechseln -"
 
 * * *
 
@@ -614,7 +614,7 @@ Longbottoms Körper trieb chaotisch durch das Wasser, Arme und Beine waren durch
 
 In der Nähe befand sich Harry Potter, der nun von einer Prismenkugel geschützt wurde und sie alle grimmig ansah, während der letzte Splitter der Mondsichel langsam abnahm, irgendwo in der Ferne. Wenn Longbottom es geschafft hätte, einen weiteren Soldaten zu erschießen (Draco wusste, dass Harry dachte), wenn die beiden Chaoten es geschafft hätten, nur ein wenig länger durchzuhalten, hätten sie vielleicht _gewonnen_..
 
-Nachdem Draco seine Streitkräfte neu formiert hatte und erneut angriff, hatte die darauf folgende Schlacht und die Hinrichtung von Spionen in Sunshines Namen Sunshine genau einen Punkt vor Dragon und Chaos zurückgelassen. Nachdem Harry damit angefangen hatte, blieb Draco keine andere Wahl, als dem Beispiel zu folgen.
+Nachdem Draco seine Streitkräfte neu formiert hatte und erneut angriff, hatte die darauf folgende Schlacht und die Hinrichtung von Spionen in Sonnenscheins Namen Sonnenschein genau einen Punkt vor Drachen und Chaos zurückgelassen. Nachdem Harry damit angefangen hatte, blieb Draco keine andere Wahl, als dem Beispiel zu folgen.
 
 Aber jetzt waren sie General Chaos drei zu eins unterlegen, die Überlebenden der Drachenarmee und der letzte verbliebene Sunny-Verräter: Draco, und Padma, und Zabini.
 
@@ -662,7 +662,7 @@ _Granger: 255 / Malfoy: 252 / Potter: 254_
 
 Und Harry Potters Körper schwebte davon, sein Ausdruck von Schock und Entsetzen entspannte sich schnell in den Schlaf.
 
-"Wenn ich es mir recht überlege", sagte Parvati fröhlich, "dann eben Gryffindors für Sunshine."
+"Wenn ich es mir recht überlege", sagte Parvati fröhlich, "dann eben Gryffindors für Sonnenschein."
 
 Sie fing an zu lachen, so erfreut wie noch nie in ihrem Leben, sie hatte _endlich_ ihre Zwillingsschwester ermorden und ersetzen können und das wollte sie schon _immer_ tun, und dies war _perfekt_, es war alles _perfekt_ -.
 
@@ -672,7 +672,7 @@ Sie fing an zu lachen, so erfreut wie noch nie in ihrem Leben, sie hatte _endlic
 
 "_Was?_ ", sagte Parvati.
 
-"Tut mir leid", sagte Zabini und sah nicht ganz aufrichtig entschuldigend aus, "aber ich kann mir nicht ganz _sicher_ sein, dass du für Sunshine bist. Also befehle ich dir, dass ich dich erschießen darf."
+"Tut mir leid", sagte Zabini und sah nicht ganz aufrichtig entschuldigend aus, "aber ich kann mir nicht ganz _sicher_ sein, dass du für Sonnenschein bist. Also befehle ich dir, dass ich dich erschießen darf."
 
 "_Halt dich fest!_", sagte Parvati. "Wir sind nur einen Punkt vor dem Chaos! Wenn du mich jetzt erschießt -"
 
@@ -686,7 +686,7 @@ Parvati starrte ihn an, ihre Augen verengten sich. "General Malfoy hat gesagt, d
 
 "Nö", sagte Zabini.
 
-Parvati starrte ihn an und versuchte zu denken, aber sie war nicht wirklich gut im Plotten; Zabini hatte gesagt, der Plan sei, den Punktestand von Chaos und Dragon heimlich so ausgeglichen wie möglich zu halten, damit sie Sunshines Namen benutzen würden, um ihre Verräter hinzurichten, anstatt auch nur einen einzigen Punkt zu verlieren, und das hatte _funktioniert_.. Zweck... Sie hatte das Gefühl, dass ihr etwas fehlte, sie war keine Slytherin...
+Parvati starrte ihn an und versuchte zu denken, aber sie war nicht wirklich gut im Planten; Zabini hatte gesagt, der Plan sei, den Punktestand von Chaos und Drachen heimlich so ausgeglichen wie möglich zu halten, damit sie Sonnenscheins Namen benutzen würden, um ihre Verräter hinzurichten, anstatt auch nur einen einzigen Punkt zu verlieren, und das hatte _funktioniert_.. Zweck... Sie hatte das Gefühl, dass ihr etwas fehlte, sie war keine Slytherin...
 
 "Warum erschieße _ich_ dich nicht im Namen des Drachen?", sagte Parvati.
 
@@ -698,7 +698,7 @@ Sie starrte ihn einen langen Moment lang an.
 
 Und dann -.
 
-"_Somni-_", begann sie zu sagen und merkte dann, dass sie nicht _für Dragon_ gesagt hatte, und unterbrach sich hektisch -.
+"_Somni-_", begann sie zu sagen und merkte dann, dass sie nicht _für Drachen_ gesagt hatte, und unterbrach sich hektisch -.
 
 * * *
 
@@ -708,7 +708,7 @@ _Granger: 255 / Malfoy: 254 / Potter: 254_
 
 Überall am Seeufer hielten die Menschen den Atem an.
 
-Sunshine lag mit genau einem Punkt Vorsprung vor Dragon und Chaos.
+Sonnenschein lag mit genau einem Punkt Vorsprung vor Drachen und Chaos.
 
 Blaise Zabini konnte sich entweder im Namen des Drachen oder des Chaos erschießen, oder die Dinge einfach so lassen, wie sie waren.
 
