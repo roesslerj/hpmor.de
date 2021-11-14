@@ -34,7 +34,7 @@ Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier ein
 - [Kapitel 30](Kapitel-30.md): Die 1. Schlacht
 - [Kapitel 31](Kapitel-31.md): Nachspiel der 1. Schlacht
 - [Kapitel 32](Kapitel-32.md): Harry kauft Weihnachtsgeschenke
-- [Kapitel 33](Kapitel-33.md): 
+- [Kapitel 33](Kapitel-33.md): Die letzte Schlacht vor Weihnachten – mit Verrätern
 - [Kapitel 34](Kapitel-34.md): 
 - [Kapitel 35](Kapitel-35.md): 
 - [Kapitel 36](Kapitel-36.md): 
@@ -46,7 +46,7 @@ Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier ein
 - [Kapitel 42](Kapitel-42.md): 
 - [Kapitel 43](Kapitel-43.md): 
 - [Kapitel 44](Kapitel-44.md): 
-- [Kapitel 45](Kapitel-45.md): 
+- [Kapitel 45](Kapitel-45.md): Patronus 2.0
 - [Kapitel 46](Kapitel-46.md): 
 - [Kapitel 47](Kapitel-47.md): 
 - [Kapitel 48](Kapitel-48.md): 

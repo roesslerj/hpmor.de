@@ -78,7 +78,7 @@ async function run() {
     const filename = `de/Kapitel-${chapter}.md`;
     const en_filename = path.join(__dirname, 'en', file);
     const text = fs.readFileSync(en_filename, 'utf8');
-    const nextChapter = chapter + 1;
+    const nextChapter = parseInt(chapter) + 1;
     const translated = await (await translateText(text))
       .replaceAll('. . .', '...')
       .replaceAll('* * *.', '* * *')
@@ -114,6 +114,9 @@ async function run() {
       .replaceAll('Sunny', 'Sonnenschein')
       .replaceAll('Chaotics', 'Chaotischen')
       .replaceAll('Plot', 'Plan')
+      .replaceAll('Headmasters', 'Schulleiters')
+      .replaceAll('Soldiers', 'Soldaten')
+      .replaceAll('Breaking Drill', 'Brechbohrer')
       .replaceAll('\{\\an8\}', '_')
       .concat(`\n\n→ [Kapitel ${nextChapter}](Kapitel-${nextChapter}.md)\n`);
     console.log("\n\n\n");

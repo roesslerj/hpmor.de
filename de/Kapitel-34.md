@@ -6,7 +6,7 @@ Aber Minerva fühlte sich jetzt ein wenig besser. Es hatte einen kurzen Moment g
 
 Und die explosive Stimmung war schnell einer kollektiven Stimmung gewichen, die man vielleicht mit dem Satz beschreiben könnte: _Gib uns eine Pause!_
 
-Blaise Zabini hatte sich im Namen von Sunshine erschossen, und der Endstand war 254 zu 254 zu 254 gewesen.
+Blaise Zabini hatte sich im Namen von Sonnenschein erschossen, und der Endstand war 254 zu 254 zu 254 gewesen.
 
 * * *
 
@@ -18,7 +18,7 @@ Hinter der Bühne, die darauf wartete, nach oben zu kommen, starrten sich drei K
 
 "Und was wollt _ihr_ dagegen tun?", schnauzte Harry Potter. "Professor Quirrell hat schon gesagt, dass er Spione nicht verbieten will!"
 
-"Wir werden sie _für_ ihn verbieten", sagte Draco grimmig. Er hatte noch nicht einmal verstanden, was er mit den Worten meinte, als er sie sagte, aber der bloße Akt des Sprechens schien einen Plan zu kristallisieren -.
+"Wir werden sie _für_ ihn verbieten", sagte Draco grimmig. Er hatte noch nicht einmal verstanden, was er mit den Worten meinte, als er sie sagte, aber der bloße Akt des Sprechens schien einen Plan zu kristallisieren.
 
 * * *
 
@@ -44,35 +44,35 @@ Es gab einen Aufschrei der Überraschung bei den zuschauenden Schülern.
 
 "Sehr gut", sagte ihr Verteidigungsprofessor und lächelte. "Ihr habt lange genug gebraucht, aber man muss euch trotzdem gratulieren, dass ihr vor allen anderen Generälen daran gedacht habt."
 
-Es dauerte einen Moment, bis ich das begriffen hatte -.
+_Es dauerte einen Moment, bis sie das begriffen hatten._
 
-"In Zukunft, Mr. Malfoy, Miss Granger, bevor Sie mit einer Bitte in mein Büro kommen, überlegen Sie, ob es für Sie einen Weg gibt, sie ohne meine Hilfe zu erfüllen. Ich werde Quirrell dieses Mal keine Punkte abziehen, aber das nächste Mal kannst du damit rechnen, die vollen fünfzig zu verlieren. "Professor Quirrell grinste amüsiert. "Und was haben Sie dazu zu sagen, Mr. Potter?"
+"In Zukunft, Mr. Malfoy, Miss Granger, bevor Sie mit einer Bitte in mein Büro kommen, überlegen Sie, ob es für Sie einen Weg gibt, sie ohne meine Hilfe zu erfüllen. Ich werde dieses Mal keine Quirrell Punkte abziehen, aber das nächste Mal können sie damit rechnen, die vollen fünfzig zu verlieren. "Professor Quirrell grinste amüsiert. "Und was haben Sie dazu zu sagen, Mr. Potter?"
 
-Harry Potters Blick ging zu Granger, dann zu Draco. Sein Gesicht wirkte ruhig; obwohl Draco sicher war, dass _kontrolliert_ der bessere Ausdruck gewesen wäre.
+Harry Potters Blick ging zu Hermine, dann zu Draco. Sein Gesicht wirkte ruhig; obwohl Draco sicher war, dass _kontrolliert_ der bessere Ausdruck gewesen wäre.
 
 Schließlich sprach Harry Potter, seine Stimme war ruhig. "Die Chaos Legion nimmt immer noch gerne Verräter auf. Wir sehen uns auf dem Schlachtfeld."
 
-Draco wusste, dass der Schock auf seinem eigenen Gesicht zu sehen war; es gab erstauntes Gemurmel von den zuschauenden Schülern und als Draco einen Blick auf die erste Reihe warf, sah er, dass sogar Harrys Chaotics verblüfft aussahen.
+Draco wusste, dass der Schock auf seinem eigenen Gesicht zu sehen war; es gab erstauntes Gemurmel von den zuschauenden Schülern und als Draco einen Blick auf die erste Reihe warf, sah er, dass sogar Harrys Chaoten verblüfft aussahen.
 
 Grangers Gesicht war wütend und wurde immer wütender. "Mr. Potter", sagte sie in einem scharfen Ton, als würde sie sich für eine Lehrerin halten, "_versuchen_ Sie etwa, unausstehlich zu sein?"
 
-"Ganz sicher nicht", sagte Harry Potter ruhig. "Ich werde dich nicht zwingen, es jedes Mal zu tun. Schlage mich einmal, und ich bleibe geschlagen. Aber Drohungen sind nicht immer genug, General of Sunshine. Du hast mich nicht gebeten, mich dir anzuschließen, sondern hast einfach versucht, deinen Willen durchzusetzen; und manchmal musst du den Feind tatsächlich besiegen, um ihm deinen Willen aufzudrängen. Du siehst, ich bin skeptisch, dass Hermine Granger, der hellste akademische Stern von Hogwarts, und Draco, Sohn von Lucius, Spross des edlen und uralten Hauses Malfoy, zusammenarbeiten können, um ihren gemeinsamen Feind, Harry Potter, zu besiegen. "Ein amüsiertes Lächeln ging über Harry Potters Gesicht. "Vielleicht mache ich einfach das, was Draco mit Zabini versucht hat, und schreibe einen Brief an Lucius Malfoy und schaue, was _er_ darüber denkt."
+"Ganz sicher nicht", sagte Harry Potter ruhig. "Ich werde dich nicht zwingen, es jedes Mal zu tun. Schlage mich einmal, und ich bleibe geschlagen. Aber Drohungen sind nicht immer genug, General von Sonnenschein. Du hast mich nicht gebeten, mich dir anzuschließen, sondern hast einfach versucht, deinen Willen durchzusetzen; und manchmal musst du den Feind tatsächlich besiegen, um ihm deinen Willen aufzudrängen. Du siehst, ich bin skeptisch, dass Hermine Granger, der hellste akademische Stern von Hogwarts, und Draco, Sohn von Lucius, Spross des edlen und uralten Hauses Malfoy, zusammenarbeiten können, um ihren gemeinsamen Feind, Harry Potter, zu besiegen." Ein amüsiertes Lächeln ging über Harry Potters Gesicht. "Vielleicht mache ich einfach das, was Draco mit Zabini versucht hat, und schreibe einen Brief an Lucius Malfoy und schaue, was _er_ darüber denkt."
 
 "_Harry!_", keuchte Granger und sah absolut entsetzt aus, und auch im Publikum gab es Keuchen.
 
-Draco kontrollierte die Wut, die ihn durchströmte. Das war ein _dummer_ Zug von Harry gewesen, das in der Öffentlichkeit zu sagen. Wenn Harry es einfach _getan_ hätte, hätte es vielleicht funktioniert, daran hatte Draco gar nicht gedacht, aber _jetzt_, wenn Vater das tat, würde es aussehen, als würde er Harry in die Hände spielen -.
+Draco kontrollierte die Wut, die ihn durchströmte. Das war ein _dummer_ Zug von Harry gewesen, das in der Öffentlichkeit zu sagen. Wenn Harry es einfach _getan_ hätte, hätte es vielleicht funktioniert, daran hatte Draco gar nicht gedacht, aber _jetzt_, wenn Vater das tat, würde es aussehen, als würde er Harry in die Hände spielen.
 
 "Wenn du glaubst, dass mein Vater, Lord Malfoy, so einfach von _dir_ manipuliert werden kann", sagte Draco kalt, "dann erwartet dich eine Überraschung, Harry Potter."
 
 Und Draco erkannte, als die Worte seinen Mund verließen, dass er gerade _seinen eigenen Vater_ in die Ecke gedrängt hatte, mehr oder weniger ohne es zu wollen. Vater würde das wahrscheinlich nicht mögen, nicht das kleinste bisschen, aber jetzt wäre es unmöglich für ihn, das zu sagen... Draco würde sich dafür entschuldigen müssen, es _war_ ein ehrliches Versehen gewesen, aber es war seltsam zu denken, dass er es überhaupt getan hatte.
 
-"Dann mach weiter und besiege den bösen General Chaos", sagte Harry und sah immer noch amüsiert aus. "Ich kann nicht gegen eure beiden Armeen gewinnen - nicht wenn ihr _wirklich_ zusammenarbeitet. Aber ich frage mich, ob ich dich vielleicht vorher trennen kann."
+"Dann mach weiter und besiege den bösen General Chaos", sagte Harry und sah immer noch amüsiert aus. "Ich kann nicht gegen eure beiden Armeen gewinnen - nicht wenn ihr _wirklich_ zusammenarbeitet. Aber ich frage mich, ob ich euch vielleicht vorher trennen kann."
 
 "Das wirst du nicht, und wir _zerquetschen_ dich!", sagte Draco Malfoy.
 
 Und neben ihm nickte Hermine Granger entschlossen.
 
-"Nun", sagte Professor Quirrell, nachdem sich das verblüffte Schweigen eine Weile hingezogen hatte. "Das war _nicht_ so, wie ich erwartet hatte, dass dieses spezielle Gespräch verlaufen würde. "Der Verteidigungsprofessor hatte einen ziemlich verblüfften Gesichtsausdruck. "Ehrlich gesagt, Mr. Potter, habe ich erwartet, dass Sie sofort und mit einem Lächeln einwilligen und dann verkünden, dass Sie meine beabsichtigte Lektion längst durchschaut haben, aber beschlossen haben, sie nicht für andere zu verderben. In der Tat, ich habe meine Rede entsprechend geplant, Mr. Potter."
+"Nun", sagte Professor Quirrell, nachdem sich das verblüffte Schweigen eine Weile hingezogen hatte. "Das war _nicht_ so, wie ich erwartet hatte, dass dieses spezielle Gespräch verlaufen würde." Der Verteidigungsprofessor hatte einen ziemlich verblüfften Gesichtsausdruck. "Ehrlich gesagt, Mr. Potter, habe ich erwartet, dass Sie sofort und mit einem Lächeln einwilligen und dann verkünden, dass Sie meine beabsichtigte Lektion längst durchschaut haben, aber beschlossen haben, sie nicht für andere zu verderben. In der Tat, ich habe meine Rede entsprechend geplant, Mr. Potter."
 
 Harry Potter zuckte nur mit den Schultern. "Das tut mir leid", sagte er und sagte nichts weiter.
 
@@ -80,19 +80,19 @@ Harry Potter zuckte nur mit den Schultern. "Das tut mir leid", sagte er und sagt
 
 Und Professor Quirrell wandte sich von den drei Kindern ab und richtete sich am Podium auf, um sich an die ganze zuschauende Menge zu wenden; seine gewohnte Miene der distanzierten Belustigung fiel wie eine fallende Maske ab und als er wieder sprach, war seine Stimme lauter als zuvor.
 
-"Wenn Harry Potter nicht gewesen wäre", sagte Professor Quirrell, seine Stimme so knackig und kalt wie der Dezember, "hätte Du-Weißt-Schon-Wer gewonnen."
+"Wenn Harry Potter nicht gewesen wäre", sagte Professor Quirrell, seine Stimme so knackig und kalt wie der Dezember, "hätte Ihr-Wißt-Schon-Wer gewonnen."
 
 Die Stille war augenblicklich, und total.
 
 * * *
 
-"Mach keinen Fehler", sagte Professor Quirrell. "Der Dunkle Lord _hat_ gewonnen. Es gab immer weniger Auroren, die es wagten, sich ihm entgegenzustellen, die Vigilanten, die sich ihm entgegenstellten, wurden gejagt. Ein Dunkler Lord und vielleicht fünfzig Todesser _gewannen_ gegen ein Land von Tausenden. Das ist mehr als lächerlich! Es gibt keine Noten, die niedrig genug sind, dass ich diese Inkompetenz benoten kann!"
+"Macht keinen Fehler", sagte Professor Quirrell. "Der Dunkle Lord _hatte_ gewonnen. Es gab immer weniger Auroren, die es wagten, sich ihm entgegenzustellen, die Vigilanten, die sich ihm entgegenstellten, wurden gejagt. Ein Dunkler Lord und vielleicht fünfzig Todesser _gewannen_ gegen ein Land von Tausenden. Das ist mehr als lächerlich! Es gibt keine Noten, die niedrig genug sind, dass ich diese Inkompetenz benoten kann!"
 
 Auf dem Gesicht von Schulleiter Dumbledore lag ein Stirnrunzeln, auf den Gesichtern der Zuhörer Verwunderung, und die völlige Stille ging weiter.
 
-"Verstehst du jetzt, wie es passiert ist? Du hast es heute gesehen. Ich habe Verräter zugelassen und den Generälen keine Möglichkeit gegeben, sie zurückzuhalten. Du hast das Ergebnis gesehen. Clevere Intrigen und cleverer Verrat, bis sich der letzte Soldat auf dem Schlachtfeld erschoss! Du kannst _unmöglich_ bezweifeln, dass alle drei dieser Armeen von _jedem_ äußeren Feind, der in sich geeint war, hätten besiegt werden können."
+"Versteht ihr jetzt, wie es passiert ist? Ihr habt es heute gesehen. Ich habe Verräter zugelassen und den Generälen keine Möglichkeit gegeben, sie zu bestrafen. Ihr habt das Ergebnis gesehen. Clevere Intrigen und cleverer Verrat, bis sich der letzte Soldat auf dem Schlachtfeld selbst erschoss! Ihr könnt _unmöglich_ bezweifeln, dass alle drei dieser Armeen von _jedem_ äußeren Feind, der in sich geeint war, hätten besiegt werden können."
 
-Professor Quirrell lehnte sich am Podium nach vorne, seine Stimme war nun von einer grimmigen Intensität erfüllt. Seine rechte Hand streckte sich aus, die Finger offen und gespreizt. "Division ist Schwäche", sagte der Verteidigungsprofessor. Seine Hand schloss sich zu einer festen Faust. "Einigkeit ist Stärke. Der Dunkle Lord verstand das gut, ungeachtet seiner anderen Torheiten; und er _nutzte_ dieses Verständnis, um die eine einfache Erfindung zu machen, die ihn zum schrecklichsten Dunklen Lord der Geschichte machte. Deine Eltern standen einem Dunklen Lord gegenüber. Und fünfzig Todesser, die sich vollkommen einig waren, weil sie wussten, dass jeder Bruch ihrer Loyalität mit dem Tod bestraft werden würde, dass jede Nachlässigkeit oder Inkompetenz mit Schmerzen bestraft werden würde. Keiner konnte dem Griff des Dunklen Lords entkommen, sobald er sein Zeichen nahm. Und die Todesser stimmten zu, dieses schreckliche Mal zu nehmen, weil sie wussten, dass sie, sobald sie es genommen hatten, _vereinigt_ sein würden und einem geteilten Land gegenüberstehen würden. Ein Dunkler Lord und fünfzig Todesser hätten ein ganzes Land besiegt, durch die Macht des Dunklen Mal."
+Professor Quirrell lehnte sich am Podium nach vorne, seine Stimme war nun von einer grimmigen Intensität erfüllt. Seine rechte Hand streckte sich aus, die Finger offen und gespreizt. "Division ist Schwäche", sagte der Verteidigungsprofessor. Seine Hand schloss sich zu einer festen Faust. "Einigkeit ist Stärke. Der Dunkle Lord verstand das gut, ungeachtet seiner anderen Torheiten; und er _nutzte_ dieses Verständnis, um die eine einfache Erfindung zu machen, die ihn zum schrecklichsten Dunklen Lord der Geschichte machte. Deine Eltern standen einem Dunklen Lord gegenüber. Und fünfzig Todesser, die sich vollkommen einig waren, weil sie wussten, dass jeder Bruch ihrer Loyalität mit dem Tod bestraft werden würde, dass jede Nachlässigkeit oder Inkompetenz mit Schmerzen bestraft werden würden. Keiner konnte dem Griff des Dunklen Lords entkommen, sobald er sein Zeichen annahm. Und die Todesser stimmten zu, dieses schreckliche Mal anzunehmen, weil sie wussten, dass sie, sobald sie es angenommen hatten, _vereinigt_ sein würden und einem geteilten Land gegenüberstehen würden. Ein Dunkler Lord und fünfzig Todesser hätten ein ganzes Land besiegt, durch die Macht des Dunklen Mals."
 
 Professor Quirrells Stimme war düster und hart. "Deine Eltern _konnten_ sich in gleicher Weise wehren. Das taten sie nicht. Es gab einen Mann namens Yermy Wibble, der die Nation dazu aufrief, eine Wehrpflicht einzuführen, obwohl er nicht genug Visionen hatte, um ein Mark of Britain vorzuschlagen. Yermy Wibble wusste, was mit ihm geschehen würde; er hoffte, dass sein Tod andere inspirieren würde. Also nahm der Dunkle Lord seine Familie mit, um sie zu schützen. Ihre leeren Häute verbreiteten nichts als Angst, und niemand wagte es, noch einmal zu sprechen. Und deine Eltern hätten die Konsequenzen ihrer verachtenswerten Feigheit zu spüren bekommen, wenn sie nicht von einem einjährigen Jungen gerettet worden wären. "Professor Quirrells Gesicht zeigte volle Verachtung. "Ein Dramatiker hätte das ein _dei ex machina_ genannt, denn sie haben nichts getan, um ihre Rettung zu verdienen. Derjenige, der nicht genannt werden darf, hat es vielleicht nicht verdient zu gewinnen, aber deine Eltern haben es auf jeden Fall verdient zu verlieren."
 
