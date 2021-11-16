@@ -86,4 +86,4 @@ Harry nickte, trank seinen Tee aus und erhob sich zur gleichen Zeit wie Professo
 
 "Wenn ich das täte, Mr. Potter", sagte Professor Quirrell und zuckte mit den Schultern, "wäre ich dann noch _hier?_ "
 
-→ [Kapitel 401](Kapitel-401.md)
+→ [Kapitel 41](Kapitel-41.md)

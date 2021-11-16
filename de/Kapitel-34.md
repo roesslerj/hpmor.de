@@ -244,6 +244,6 @@ Es herrschte eine verwirrte Stille.
 
 Dann wandte sich der Verteidigungsprofessor wieder an die zuschauenden Schüler. "Ehrlich gesagt, habe ich kein Vertrauen in deine Fähigkeit, die Lektion des heutigen Tages zu lernen. Geht nach Hause und genießt die Zeit mit euren Familien, oder was von ihnen übrig ist, solange sie noch leben. Meine eigene Familie ist schon lange durch die Hand des Dunklen Lords gestorben. Ich sehe euch alle, wenn der Unterricht wieder beginnt."
 
-In der darauf folgenden sprachlosen Stille, Professor Quirrell wandte sich bereits zum Verlassen der Bühne, hörte Draco die Stimme des Verteidigungsprofessors, leise und nicht mehr verstärkt, sagen: "Aber Sie, Mr. Potter, möchte ich jetzt sprechen. "
+In der darauf folgenden sprachlosen Stille, Professor Quirrell wandte sich bereits zum Verlassen der Bühne, hörte Draco die Stimme des Verteidigungsprofessors, leise und nicht mehr verstärkt, sagen: "Aber Sie, Mr. Potter, möchte ich jetzt sprechen."
 
-→ [Kapitel 341](Kapitel-341.md)
+→ [Kapitel 35](Kapitel-35.md)

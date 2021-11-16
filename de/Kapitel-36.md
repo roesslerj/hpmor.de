@@ -286,4 +286,4 @@ Als die Kinder zurückgebracht wurden, sagte Hermine in einem eisigen Ton, dass 
 
 Das bedeutete, dass alles genau so war, wie es sein sollte, und sie setzten sich alle wieder hin, um ihr Weihnachtsessen zu beenden.
 
-→ [Kapitel 361](Kapitel-361.md)
+→ [Kapitel 37](Kapitel-37.md)

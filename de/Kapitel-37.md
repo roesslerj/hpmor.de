@@ -74,4 +74,4 @@ Sie überquerten die Grenze zwischen Heiligabend und dem ersten Weihnachtsfeiert
 
 Und wie versprochen, schliefen Harrys Eltern tief und fest, bis Harry wieder in seinem Zimmer war und der Verteidigungsprofessor gegangen war.
 
-→ [Kapitel 371](Kapitel-371.md)
+→ [Kapitel 38](Kapitel-38.md)

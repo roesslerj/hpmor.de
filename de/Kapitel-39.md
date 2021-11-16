@@ -424,4 +424,4 @@ Der Junge stand ganz gerade, das Kinn hoch und stolz erhoben, und sagte: "Es gib
 
 Der Junge verbeugte sich mit schwerer Ironie vor ihm und ging, und die Eichentür schlug mit einem dumpfen Knall hinter ihm zu.
 
-→ [Kapitel 391](Kapitel-391.md)
+→ [Kapitel 40](Kapitel-40.md)

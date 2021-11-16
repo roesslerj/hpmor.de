@@ -239,4 +239,4 @@ Harry lehnte sich müde in dem kleinen Klappstuhl zurück, der unten in der Höh
 
 Harry hatte Draco noch nie zuvor in einer so hohen Tonlage vor Entsetzen aufschreien hören.
 
-→ [Kapitel 381](Kapitel-381.md)
+→ [Kapitel 39](Kapitel-39.md)

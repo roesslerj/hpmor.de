@@ -130,7 +130,7 @@ Es war ein furchtbar trauriges Gefühl, aber keines, das auch nur einen Hauch vo
 
 * * *
 
-_Nachspiel: Blaise Zabini. _
+_Nachspiel: Blaise Zabini._
 
 Blaise schlenderte mit vorsichtiger, selbst auferlegter Langsamkeit durch die Gänge, sein Herz schlug wild, während er versuchte, sich zu beruhigen -.
 
@@ -274,4 +274,4 @@ Und sagte nach ein paar weiteren Sekunden: "Dein Vater wird dieses Weihnachten w
 
 Wenn er und Granger Professor Quirrell besonders höflich bitten und einige ihrer Quirrell-Punkte einsetzen würden, dürften die beiden vielleicht etwas Interessanteres mit General Chaos machen, als ihn einzuschläfern.
 
-→ [Kapitel 351](Kapitel-351.md)
+→ [Kapitel 36](Kapitel-36.md)
