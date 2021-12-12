@@ -4,15 +4,15 @@ Sie waren in das Büro des Verteidigungsprofessors gegangen und Professor Quirre
 
 Die Stimme des Verteidigungsprofessors war sehr ruhig und das verunsicherte Harry ein gutes Stück mehr, als wenn Professor Quirrell geschrien hätte.
 
-"Ich versuche", sagte Professor Quirrell leise, "der Tatsache Rechnung zu tragen, dass du jung bist. Dass ich selbst, im gleichen Alter, ein ganz außergewöhnlicher Narr war. Du sprichst mit erwachsenem Stil und mischst dich in erwachsene Spiele ein, und manchmal vergesse ich, dass du nur ein Eindringling bist. Ich hoffe, Mr. Potter, dass deine kindische Einmischung dich nicht gerade getötet, dein Land ruiniert und den nächsten Krieg verloren hat."
+"Ich versuche", sagte Professor Quirrell leise, "der Tatsache Rechnung zu tragen, dass du jung bist. Dass ich selbst, im gleichen Alter, ein ganz außergewöhnlicher Narr war. Du sprichst auf erwachsenen Art und mischst dich in erwachsene Spiele ein, und manchmal vergesse ich, dass du nur ein Eindringling bist. Ich hoffe, Mr. Potter, dass deine kindische Einmischung dich nicht gerade getötet, dein Land ruiniert und den nächsten Krieg verloren hat."
 
-Es war sehr schwer für Harry, seine Atmung zu kontrollieren. "Professor Quirrell, ich habe viel weniger gesagt, als ich eigentlich sagen wollte, aber ich musste etwas sagen. Deine Vorschläge sind äußerst beunruhigend für jeden, der auch nur die geringste Vertrautheit mit der Geschichte der Muggel im letzten Jahrhundert hat. Die italienischen Faschisten, einige sehr böse Menschen, haben ihren Namen von den _Fasces_, einem Bündel von zusammengebundenen Ruten, um die Idee zu symbolisieren, dass Einigkeit Stärke ist -"
+Es war sehr schwer für Harry, seine Atmung zu kontrollieren. "Professor Quirrell, ich habe viel weniger gesagt, als ich eigentlich sagen wollte, aber ich musste etwas sagen. Ihre Vorschläge sind äußerst beunruhigend für jeden, der auch nur die geringste Vertrautheit mit der Geschichte der Muggel im letzten Jahrhundert hat. Die italienischen Faschisten, einige sehr böse Menschen, haben ihren Namen von den _Fasces_, einem Bündel von zusammengebundenen Ruten, um die Idee zu symbolisieren, dass Einigkeit Stärke ist -"
 
 "Die bösen italienischen Faschisten glaubten also, dass Einheit stärker ist als Spaltung", sagte Professor Quirrell. Schärfe begann sich in seine Stimme zu schleichen. "Vielleicht haben sie auch geglaubt, dass der Himmel blau ist, und sich dafür eingesetzt, dass dir keine Steine auf den Kopf fallen."
 
-Umgekehrte Dummheit ist keine Intelligenz; der dümmste Mensch der Welt mag sagen, dass die Sonne scheint, aber das macht es nicht dunkel draußen... "Gut, du hast recht, das war ein ad hominem Argument, es ist nicht falsch, _weil_ die Faschisten es gesagt haben. Aber Professor Quirrell, du kannst nicht jeden in einem Land das Zeichen eines Diktators annehmen lassen! Das ist ein einzelner Punkt des Versagens! Ich will es mal so ausdrücken. Angenommen, der Feind imperiusiert einfach denjenigen, der die Markierung kontrolliert -"
+Umgekehrte Dummheit ist keine Intelligenz; der dümmste Mensch der Welt mag sagen, dass die Sonne scheint, aber das macht es nicht dunkel draußen... "Gut, Sie haben recht, das war ein ad hominem Argument, es ist nicht falsch, _weil_ die Faschisten es gesagt haben. Aber Professor Quirrell, Sie können nicht jeden in einem Land das Zeichen eines Diktators annehmen lassen! Das konzentriert alles auf eine Schwachstelle! Ich will es mal so ausdrücken. Angenommen, der Feind imperiert einfach denjenigen, der die Markierung kontrolliert -"
 
-"Mächtige Zauberer sind nicht so leicht zu imperieren", sagte Professor Quirrell trocken. "Und wenn ihr keinen würdigen Anführer findet, seid ihr auf jeden Fall verloren. Aber es gibt würdige Leiter; die Frage ist, ob die Menschen ihnen folgen werden."
+"Mächtige Zauberer sind nicht so leicht zu imperieren", sagte Professor Quirrell trocken. "Und wenn ihr keinen würdigen Anführer findet, seid ihr auf jeden Fall verloren. Aber es gibt würdige Anfürhrer; die Frage ist, ob die Menschen ihnen folgen werden."
 
 Harry fuhr sich frustriert mit den Händen durch sein Haar. Er wollte eine Auszeit einlegen und Professor Quirrell dazu bringen, _The Rise and Fall of the Third Reich_ zu lesen und dann das Gespräch von vorne zu beginnen. "Ich nehme nicht an, dass, wenn ich behaupten würde, dass die Demokratie eine bessere Regierungsform ist als die Diktatur -"
 
@@ -30,7 +30,7 @@ Harry starrte grimmig in die Augen von Professor Quirrell, der ohne zu blinzeln 
 
 "Ich bin kein Freund von Albus Dumbledore", sagte Harry, eine Kälte in der Stimme, die zu der von Professor Quirrell passte. "Aber er ist kein Kind, und er schien meine Bedenken nicht für kindisch zu halten, und auch nicht, dass ich darauf hätte warten sollen, sie auszusprechen."
 
-"Oh", sagte Professor Quirrell, "du richtest dich also nach dem Schulleiter, was?"und stand hinter seinem Schreibtisch auf.
+"Oh", sagte Professor Quirrell, "du richtest dich also nach dem Schulleiter, was?" und stand hinter seinem Schreibtisch auf.
 
 * * *
 
@@ -44,13 +44,13 @@ Er kann nichts gegen mich tun, ich muss nur daran denken -_
 
 Blaise wusste, dass er unter seinen Roben schwitzte und dass die Feuchtigkeit bereits auf seiner Stirn zu sehen sein würde. "Ich bekam die Chance zu zeigen, dass ich besser bin als alle drei Generäle, und ich habe sie genutzt. Eine Menge Leute hassen mich jetzt, aber es gibt auch viele Slytherins, die mich dafür lieben werden. Wie kommst du darauf, dass ich -"
 
-"Sie haben sich den Plan für den heutigen Kampf nicht ausgedacht, Mr. Zabini. Sag mir, wer es war."
+"Sie haben sich den Plan für den heutigen Kampf nicht ausgedacht, Mr. Zabini. Sagen Sie mir, wer es war."
 
-Blaise schluckte schwer. "Nun... Ich meine, in diesem Fall... dann weißt du schon, wer es war, oder? Der einzige, der so verrückt ist, ist Dumbledore. Und er wird mich beschützen, wenn du versuchst, etwas zu tun."
+Blaise schluckte schwer. "Nun... Ich meine, in diesem Fall... dann wissen Sie schon, wer es war, oder? Der einzige, der so verrückt ist, ist Dumbledore. Und er wird mich beschützen, wenn Sie versuchen, etwas zu tun."
 
-"In der Tat. Sag mir den Preis. "Die Augen des Verteidigungsprofessors waren immer noch hart.
+"In der Tat. Sag mir den Preis." Die Augen des Verteidigungsprofessors waren immer noch hart.
 
-"Es ist meine Cousine Kimberly", sagte Blaise, schluckte erneut und versuchte, seine Stimme zu kontrollieren. "Sie ist echt, und sie wird wirklich gemobbt", überprüfte Potter das, er war nicht dumm. Nur Dumbledore hat gesagt, dass er die Tyrannen dazu angestiftet hat, nur wegen des Plans, und wenn ich für _ihn_ arbeiten würde, würde es ihr hinterher gut gehen, aber wenn ich _mit_ Potter gehen würde, könnte Kimberly in noch mehr Schwierigkeiten geraten!"
+"Es ist meine Cousine Kimberly", sagte Blaise, schluckte erneut und versuchte, seine Stimme zu kontrollieren. "Sie ist echt, und sie wird wirklich gemobbt". Potter würde das überprüfen, er war nicht dumm. "Dumbledore hat gesagt, dass er die Tyrannen dazu angestiftet hat, nur wegen des Plans, und wenn ich für _ihn_ arbeiten würde, würde es ihr hinterher gut gehen, aber wenn ich für _Potter_ arbeiten würde, könnte Kimberly in noch mehr Schwierigkeiten geraten!"
 
 Professor Quirrell schwieg für einen langen Moment.
 
@@ -58,11 +58,11 @@ Professor Quirrell schwieg für einen langen Moment.
 
 "Sonnenschein", sagte Blaise.
 
-Professor Quirrell nickte. "Wie ich dachte. "Der Verteidigungsprofessor seufzte. "In Ihrer zukünftigen Karriere, Mr. Zabini, empfehle ich Ihnen, sich nicht an so komplizierten Plänen zu versuchen. Sie haben die Tendenz zu scheitern."
+Professor Quirrell nickte. "Wie ich dachte." Der Verteidigungsprofessor seufzte. "In Ihrer zukünftigen Karriere, Mr. Zabini, empfehle ich Ihnen, sich nicht an so komplizierten Plänen zu versuchen. Sie haben die Tendenz zu scheitern."
 
-"Ähm, eigentlich habe ich das dem Schulleiter gesagt", sagte Blaise, "und er sagte, dass es deshalb wichtig sei, mehr als eine Handlung auf einmal zu haben."
+"Ähm, eigentlich habe ich das dem Schulleiter gesagt", sagte Blaise, "und er sagte, dass es deshalb wichtig sei, mehr als einen Plan auf einmal zu haben."
 
-Professor Quirrell fuhr sich mit einer müden Hand über die Stirn. "Es ist ein Wunder, dass der Dunkle Lord vom Kampf gegen _ihn nicht verrückt geworden ist. Du kannst zu deinem Treffen mit dem Schulleiter gehen, Mr. Zabini. Ich werde nichts darüber sagen, aber sollte der Schulleiter irgendwie herausfinden, dass wir miteinander gesprochen haben, erinnere dich an mein ständiges Angebot, dir so viel Schutz zu geben, wie ich kann. Du bist entlassen."
+Professor Quirrell fuhr sich mit einer müden Hand über die Stirn. "Es ist ein Wunder, dass der Dunkle Lord vom Kampf gegen _ihn_ nicht verrückt geworden ist. Du kannst zu deinem Treffen mit dem Schulleiter gehen, Mr. Zabini. Ich werde nichts darüber sagen, aber sollte der Schulleiter irgendwie herausfinden, dass wir miteinander gesprochen haben, erinnere dich an mein ständiges Angebot, dir so viel Schutz zu geben, wie ich kann. Du bist entlassen."
 
 Blaise wartete nicht auf ein weiteres Wort, drehte sich einfach um und floh.
 
@@ -70,11 +70,11 @@ Blaise wartete nicht auf ein weiteres Wort, drehte sich einfach um und floh.
 
 Professor Quirrell wartete eine Zeit lang und sagte dann: "Fahren Sie fort, Mr. Potter."
 
-Harry riss sich den Umhang der Unsichtbarkeit vom Kopf und stopfte ihn in seinen Beutel. Er zitterte vor so viel Wut, dass er kaum sprechen konnte. "Er _was?_ Er hat _was?_ gemacht"
+Harry riss sich den Umhang der Unsichtbarkeit vom Kopf und stopfte ihn in seinen Beutel. Er zitterte vor so viel Wut, dass er kaum sprechen konnte. "Er hat _was_? Er hat _was_ gemacht?"
 
-"Sie hätten es selbst herausfinden müssen, Mr. Potter", sagte Professor Quirrell milde. "Du musst lernen, deine Sicht zu trüben, bis du den Wald vor lauter Bäumen nicht mehr sehen kannst. Jeder, der die Geschichten über dich gehört hat und nicht wusste, dass du der mysteriöse Junge-der-lebt bist, konnte leicht auf deinen Besitz eines Unsichtbarkeitsmantels schließen. Treten wir von diesen Ereignissen zurück, verwischen wir ihre Details, und was beobachten wir? Es gab eine große Rivalität zwischen den Schülern, und ihr Wettkampf endete in einem perfekten Unentschieden. So etwas passiert nur in Geschichten, Mr. Potter, und es gibt eine Person in dieser Schule, die in Geschichten denkt. Es gab eine seltsame und komplizierte Handlung, die du eigentlich als untypisch für den jungen Slytherin, dem du gegenüberstandest, hättest erkennen müssen. Aber es gibt eine Person in dieser Schule, die sich mit so ausgeklügelten Plans beschäftigt, und sein Name ist nicht Zabini. Und ich habe dich gewarnt, dass es einen Vierfach-Agenten gibt; du wusstest, dass Zabini mindestens ein Dreifach-Agent ist, und du hättest eine hohe Wahrscheinlichkeit vermuten müssen, dass er es ist. Nein, ich werde den Kampf nicht für ungültig erklären. Ihr habt alle drei den Test nicht bestanden und gegen euren gemeinsamen Feind verloren."
+"Sie hätten es selbst herausfinden müssen, Mr. Potter", sagte Professor Quirrell milde. "Du musst lernen, deine Sicht zu trüben, bis du den Wald vor lauter Bäumen nicht mehr sehen kannst. Jeder, der die Geschichten über dich gehört hat und nicht wusste, dass du der mysteriöse Junge-der-lebt bist, konnte leicht auf deinen Besitz eines Unsichtbarkeitsmantels schließen. Treten wir von diesen Ereignissen zurück, verwischen wir ihre Details, und was beobachten wir? Es gab eine große Rivalität zwischen den Schülern, und ihr Wettkampf endete in einem perfekten Unentschieden. So etwas passiert nur in Geschichten, Mr. Potter, und es gibt eine Person in dieser Schule, die in Geschichten denkt. Es gab einen seltsamen und komplizierte Plan, die du eigentlich als untypisch für den jungen Slytherin, dem du gegenüberstandest, hättest erkennen müssen. Aber es gibt eine Person in dieser Schule, die sich mit so ausgeklügelten Plans beschäftigt, und sein Name ist nicht Zabini. Und ich habe dich gewarnt, dass es einen Vierfach-Agenten gibt; du wusstest, dass Zabini mindestens ein Dreifach-Agent ist, und du hättest eine hohe Wahrscheinlichkeit vermuten müssen, dass er es ist. Nein, ich werde den Kampf nicht für ungültig erklären. Ihr habt alle drei den Test nicht bestanden und gegen euren gemeinsamen Feind verloren."
 
-Harry kümmerte sich zu diesem Zeitpunkt nicht um Tests. "Dumbledore _erpresste_ Zabini, indem er _seinen Cousin bedrohte?_ Nur um unseren Kampf unentschieden enden zu lassen? _Warum?_ "
+Harry kümmerte sich zu diesem Zeitpunkt nicht um Tests. "Dumbledore _erpresste_ Zabini, indem er _seinen Cousin bedrohte?_ Nur um unseren Kampf unentschieden enden zu lassen? _Warum?_"
 
 Professor Quirrell lachte freudlos. "Vielleicht dachte der Schulleiter, dass die Rivalität gut für seinen Lieblingshelden war und wollte, dass sie weitergeht. Für das Allgemeinwohl, du verstehst. Oder vielleicht war er einfach nur verrückt. Sehen Sie, Mr. Potter, jeder weiß, dass Dumbledores Wahnsinn eine Maske ist, dass er gesund ist und vorgibt, wahnsinnig zu sein. Sie sind stolz auf diese clevere Einsicht, und da sie die geheime Erklärung kennen, hören sie auf zu suchen. Es kommt ihnen nicht in den Sinn, dass es _auch_ möglich ist, eine Maske hinter der Maske zu haben, geisteskrank zu sein, die vorgibt, gesund zu sein, die vorgibt, geisteskrank zu sein. Und ich fürchte, Mr. Potter, dass ich anderweitig dringende Geschäfte zu erledigen habe und abreisen muss; aber ich würde Ihnen dringend raten, sich nicht von Albus Dumbledore inspirieren zu lassen, wenn Sie einen Krieg führen. Bis später, Mr. Potter."
 
@@ -82,11 +82,11 @@ Der Verteidigungsprofessor neigte ironisch den Kopf und schritt dann in die glei
 
 * * *
 
-_Nachspiel: Harry Potter. _
+_Nachspiel: Harry Potter._
 
 Harry stapfte langsam in Richtung des Ravenclaw-Schlafsaals, die Augen nicht auf Wände, Gemälde oder andere Schüler gerichtet; er ging Treppen hinauf und Rampen hinunter, ohne zu verlangsamen, zu beschleunigen oder zu bemerken, wo er hintrat.
 
-Er hatte mehr als eine Minute nach Professor Quirrells Abgang gebraucht, um zu erkennen, dass seine einzige Informationsquelle über Dumbledores Verwicklung (a) Blaise Zabini war, dem er ein absoluter Idiot sein müsste, um ihm wieder zu vertrauen, und (b) Professor Quirrell, der leicht ein KomPlant in Dumbledores Stil hätte fabrizieren können, und der auch denken könnte, dass ein wenig Schülerrivalität eine feine Sache sei; und der, wenn man zurücktritt und die Details verwischt, gerade vorgeschlagen hatte, das Land in eine magische Diktatur zu verwandeln.
+Er hatte mehr als eine Minute nach Professor Quirrells Abgang gebraucht, um zu erkennen, dass seine einzige Informationsquelle über Dumbledores Verwicklung (a) Blaise Zabini war, dem er ein absoluter Idiot sein müsste, um ihm wieder zu vertrauen, und (b) Professor Quirrell, der leicht einen Komplize in Dumbledores Stil hätte fabrizieren können, und der auch denken könnte, dass ein wenig Schülerrivalität eine feine Sache sei; und der, wenn man zurücktritt und die Details verwischt, gerade vorgeschlagen hatte, das Land in eine magische Diktatur zu verwandeln.
 
 Und es war auch möglich, dass Dumbledore derjenige war, der hinter Zabini stand, und dass Professor Quirrell aufrichtig versucht hatte, das Dunkle Mal in natura zu bekämpfen und die Wiederholung einer Vorstellung zu verhindern, die er als erbärmlich ansah. Sie versuchten sicherzustellen, dass Harry nicht alleine gegen den Dunklen Lord kämpfte, während alle anderen sich verängstigt versteckten und versuchten, sich aus der Schusslinie zu halten und darauf zu warten, dass Harry sie rettete.
 
@@ -100,7 +100,7 @@ Es war, das wusste er, die Art von Dingen, die Helden nachtragend und verbittert
 
 Zum Teufel damit. Harry war sehr dafür, dass sich alle anderen aus der Gefahr heraushielten, während der Junge-der-lebt den Dunklen Lord alleine zur Strecke brachte, plus oder minus einer kleinen Anzahl von Begleitern. Wenn der nächste Konflikt mit dem Dunklen Lord zu einem zweiten Zaubererkrieg führen würde, der viele Menschen tötet und ein ganzes Land verwickelt, würde das bedeuten, dass Harry _bereits_ versagt hat.
 
-Und wenn danach ein Krieg zwischen Zauberern und Muggeln ausbrach, war es egal, wer gewann, Harry hätte schon versagt, indem er es so weit kommen ließ. Außerdem, wer hat gesagt, dass sich die Gesellschaften nicht friedlich integrieren können, wenn die Geheimhaltung unweigerlich zusammenbricht? (Obwohl Harry die trockene Stimme von Professor Quirrell in seinem Kopf hören konnte, die ihn fragte, ob er ein Narr sei, und all die offensichtlichen Dinge sagte... ) Und wenn Magier und Muggel nicht in Frieden leben könnten, dann würde Harry Magie und Wissenschaft kombinieren und herausfinden, wie man alle Zauberer auf den Mars oder sonst wohin evakuieren könnte, anstatt einen Krieg ausbrechen zu lassen.
+Und wenn danach ein Krieg zwischen Zauberern und Muggeln ausbrach, war es egal, wer gewann, Harry hätte schon versagt, indem er es so weit kommen ließ. Außerdem, wer hat gesagt, dass sich die Gesellschaften nicht friedlich integrieren können, wenn die Geheimhaltung unweigerlich zusammenbricht? (Obwohl Harry die trockene Stimme von Professor Quirrell in seinem Kopf hören konnte, die ihn fragte, ob er ein Narr sei, und all die offensichtlichen Dinge sagte...) Und wenn Magier und Muggel nicht in Frieden leben könnten, dann würde Harry Magie und Wissenschaft kombinieren und herausfinden, wie man alle Zauberer auf den Mars oder sonst wohin evakuieren könnte, anstatt einen Krieg ausbrechen zu lassen.
 
 Denn wenn es zu einem Vernichtungskrieg käme...
 
@@ -148,21 +148,21 @@ In der kleinen, schattigen Ecke lag ein schwarzer Mantel, der so breit und walle
 
 Der breite schwarze Hut neigte sich und richtete sich auf, als ob der Kopf darunter nicken würde. "Ausgezeichnet", sagte das nicht identifizierbare Flüstern. "Die Belohnung, die ich dir versprochen habe, ist bereits auf dem Weg zu deiner Mutter, per Eule."
 
-Blaise zögerte, aber seine Neugierde fraß ihn auf. "Darf ich jetzt fragen, warum du Ärger zwischen Professor Quirrell und Dumbledore verursachen willst?"Der Schulleiter hatte nichts mit den Gryffindor-Tyrannen zu tun, von denen Blaise wusste. Außerdem hatte der Schulleiter Kimberly nicht nur geholfen, sondern auch angeboten, dass Professor Binns ihm in Geschichte der Zauberei hervorragende Noten geben würde, wenn er leere Pergamente für seine Hausaufgaben abgäbe, obwohl er trotzdem zum Unterricht erscheinen und so tun müsste, als würde er sie abgeben. Eigentlich hätte Blaise alle drei Generäle umsonst verraten, auch seinen Cousin, aber er hatte keine Notwendigkeit gesehen, das zu sagen.
+Blaise zögerte, aber seine Neugierde fraß ihn auf. "Darf ich jetzt fragen, warum du Ärger zwischen Professor Quirrell und Dumbledore verursachen willst?" Der Schulleiter hatte nichts mit den Gryffindor-Tyrannen zu tun, von denen Blaise wusste. Außerdem hatte der Schulleiter Kimberly nicht nur geholfen, sondern auch angeboten, dass Professor Binns ihm in Geschichte der Zauberei hervorragende Noten geben würde, wenn er leere Pergamente für seine Hausaufgaben abgäbe, obwohl er trotzdem zum Unterricht erscheinen und so tun müsste, als würde er sie abgeben. Eigentlich hätte Blaise alle drei Generäle umsonst verraten, auch seinen Cousin, aber er hatte keine Notwendigkeit gesehen, das zu sagen.
 
 Der breite schwarze Hut neigte sich zu einer Seite, als wolle er einen fragenden Blick vermitteln. "Sag mir, Freund Blaise, ist es dir aufgefallen, dass Verräter, die so oft verraten, oft ein böses Ende nehmen?"
 
 "Nö", sagte Blaise und blickte direkt in den schwarzen Nebel unter dem Hut. "Jeder weiß, dass den Schülern in Hogwarts niemals etwas _wirklich_ Schlimmes passiert."
 
-Mr. Hat und Cloak gaben ein flüsterndes Glucksen von sich. "In der Tat", sagte das Geflüster. "Die Ermordung eines Schülers vor fünf Jahrzehnten ist die Ausnahme, die die Regel bestätigt, da Salazar Slytherin sein Monster auf einer höheren Ebene als der Schulleiter selbst in die alten Zauberstäbe eingegeben haben soll."
+Mr. Hut und Mantel gaben ein flüsterndes Glucksen von sich. "In der Tat", sagte das Geflüster. "Die Ermordung eines Schülers vor fünf Jahrzehnten ist die Ausnahme, die die Regel bestätigt, da Salazar Slytherin sein Monster auf einer höheren Ebene als der Schulleiter selbst in die alten Zauberstäbe eingegeben haben soll."
 
-Blaise starrte auf den schwarzen Nebel, der nun begann, sich ein wenig unwohl zu fühlen. Aber es müsste schon ein Hogwarts-Professor sein, um etwas Bedeutendes mit ihm anzustellen, ohne Alarm auszulösen. Quirrell und Snape waren die einzigen Professoren, die so etwas tun würden, und Quirrell würde sich nicht darum scheren, _sich_ selbst zu verarschen, und Snape würde keinen seiner eigenen Slytherins verletzen... würde er?.
+Blaise starrte auf den schwarzen Nebel, der nun begann, sich ein wenig unwohl zu fühlen. Aber es müsste schon ein Hogwarts-Professor sein, um etwas Bedeutendes mit ihm anzustellen, ohne Alarm auszulösen. Quirrell und Snape waren die einzigen Professoren, die so etwas tun würden, und Quirrell würde sich nicht darum scheren, _sich_ selbst zu verarschen, und Snape würde keinen seiner eigenen Slytherins verletzen... oder doch?
 
 "Nein, Freund Blaise", flüsterte der schwarze Nebel, "ich wollte dir nur raten, so etwas niemals in deinem Erwachsenenleben zu versuchen. So viel Verrat würde sicherlich zu mindestens einer Rache führen."
 
 "Meine _Mutter_ hat sich nie gerächt", sagte Blaise stolz. "Auch wenn sie _sieben_ Ehemänner geheiratet hat und jeder einzelne von ihnen auf mysteriöse Weise gestorben ist und ihr viel Geld hinterlassen hat."
 
-"Wirklich?", flüsterte er. "Wie auch immer, hat sie den siebten überredet, sie zu heiraten, nachdem er gehört hat, was mit den ersten sechs passiert ist?"
+"Wirklich?", flüsterte er. "Wie hat sie den siebten überredet, sie zu heiraten, nachdem er gehört hat, was mit den ersten sechs passiert ist?"
 
 "Das habe ich Mama gefragt", sagte Blaise, "und sie sagte, ich könne es nicht wissen, bis ich alt genug sei, und ich fragte sie, wie alt alt genug sei, und sie sagte, älter als sie."
 
@@ -172,13 +172,13 @@ Blaise wich unruhig zurück und fühlte einen seltsamen Widerwillen, sich umzudr
 
 Der Hut kippte. "Ach, komm schon, kleiner Slytherin. Wenn du wirklich Harry Potter oder Draco Malfoy ebenbürtig wärst, hättest du bereits erkannt, dass meine angedeuteten Drohungen nur dazu dienten, dein Schweigen vor Albus sicherzustellen. Hätte ich vorgehabt zu schaden, hätte ich nichts angedeutet; hätte ich nichts gesagt, _dann_ hättest du dir Sorgen machen müssen."
 
-Blaise richtete sich auf, fühlte sich ein wenig beleidigt und nickte Mr. Hat und Cloak zu; dann drehte er sich entschlossen um und schritt zu seinem Treffen mit dem Schulleiter.
+Blaise richtete sich auf, fühlte sich ein wenig beleidigt und nickte Mr. Hut und Mantel zu; dann drehte er sich entschlossen um und schritt zu seinem Treffen mit dem Schulleiter.
 
-Er hatte bis zum Schluss gehofft, dass jemand anderes auftauchen würde und ihm die Chance geben würde, Mr. Hat and Cloak zu verraten.
+Er hatte bis zum Schluss gehofft, dass jemand anderes auftauchen würde und ihm die Chance geben würde, Mr. Hut und Mantel zu verraten.
 
-Aber dann hatte Mama nicht sieben verschiedene Ehemänner zur _gleichen Zeit betrogen. Wenn man es _so_ betrachtet, ging es ihm immer noch besser als ihr.
+Aber dann hatte Mama nicht sieben verschiedene Ehemänner zur _gleichen Zeit_ betrogen. Wenn man es _so_ betrachtet, ging es ihm immer noch besser als ihr.
 
-Und Blaise Zabini ging weiter auf das Büro des Schulleiters zu, lächelnd, zufrieden damit, ein Fünffachagent zu sein -.
+Und Blaise Zabini ging weiter auf das Büro des Schulleiters zu, lächelnd, zufrieden damit, ein Fünffachagent zu sein.
 
 Für einen Moment stolperte der Junge, doch dann richtete er sich auf und schüttelte das seltsame Gefühl der Orientierungslosigkeit ab.
 
@@ -186,7 +186,7 @@ Und Blaise Zabini ging weiter auf das Büro des Schulleiters zu, lächelnd, zufr
 
 * * *
 
-_Nachspiel: Hermine Granger. _
+_Nachspiel: Hermine Granger_
 
 Der Bote hat sich ihr erst genähert, als sie alleine war.
 
@@ -194,7 +194,7 @@ Hermine verließ gerade die Mädchentoilette, in der sie sich manchmal zum Nachd
 
 Sie stieß einen kleinen Schrei aus, bevor sie realisierte, dass die Katze mit der Stimme von Professor McGonagall gesprochen hatte.
 
-Trotzdem war sie nicht erschrocken, nur erschrocken; die Katze war hell und strahlend und schön, glühend mit einem weißen, silbernen Glanz wie mondfarbenes Sonnenlicht, und sie konnte sich nicht vorstellen, Angst zu haben.
+Trotzdem war sie nicht ängstlich, nur erschrocken; die Katze war hell und strahlend und schön, glühend mit einem weißen, silbernen Glanz wie mondfarbenes Sonnenlicht, und sie konnte sich nicht vorstellen, Angst zu haben.
 
 "Was bist du?", fragte Hermine.
 
@@ -208,7 +208,7 @@ Professor McGonagalls Gesicht sah besorgt, nicht streng aus, als Hermine sich vo
 
 "Miss Granger", sagte Professor McGonagall, "lassen Sie mich zunächst sagen, dass ich bereits weiß, dass der Schulleiter Sie gebeten hat, diesen Wunsch zu äußern -"
 
-"Er _hat_ es dir gesagt?", platzte Hermine erschrocken heraus. Der Schulleiter hatte gesagt, dass niemand sonst es wissen sollte!
+"Er hat es Ihnen _gesagt_?", platzte Hermine erschrocken heraus. Der Schulleiter hatte gesagt, dass niemand sonst es wissen sollte!
 
 Professor McGonagall hielt inne, sah Hermine an und gab ein trauriges kleines Kichern von sich. "Es ist gut zu sehen, dass Mr. Potter dich nicht zu sehr korrumpiert hat. Miss Granger, du sollst nicht _etwas_ zugeben, nur weil ich sage, dass ich es weiß. Zufälligerweise hat mir der Schulleiter _nicht_ gesagt, ich kenne ihn einfach zu gut."
 
@@ -216,17 +216,17 @@ Hermine wurde jetzt wütend rot.
 
 "Es ist in Ordnung, Miss Granger!", sagte Professor McGonagall hastig. "Du bist ein Ravenclaw in deinem ersten Jahr, niemand erwartet, dass du ein Slytherin bist."
 
-Das hat _wirklich_ gestochen.
+Das tat _wirklich_ weh.
 
 "Na schön", sagte Hermine etwas säuerlich, "dann werde ich Harry Potter um Slytherin-Unterricht bitten."
 
-"Das _war_ nicht das, was ich wollte... ", sagte Professor McGonagall und ihre Stimme verstummte. "Miss Granger, ich mache mir Sorgen darüber, _weil_ junge Ravenclaw-Mädchen keine Slytherins sein sollten! Wenn der Schulleiter dich bittet, dich auf etwas einzulassen, womit du dich nicht wohlfühlst, Miss Granger, ist es wirklich in Ordnung, nein zu sagen. Und wenn du dich unter Druck gesetzt fühlst, sag dem Schulleiter bitte, dass du mich gerne dabei hättest, oder dass du mich vorher fragen möchtest."
+"Das _war_ nicht das, was ich wollte...", sagte Professor McGonagall und ihre Stimme verstummte. "Miss Granger, ich mache mir Sorgen darüber, _weil_ junge Ravenclaw-Mädchen keine Slytherins sein sollten! Wenn der Schulleiter dich bittet, dich auf etwas einzulassen, womit du dich nicht wohlfühlst, Miss Granger, ist es wirklich in Ordnung, nein zu sagen. Und wenn du dich unter Druck gesetzt fühlst, sag dem Schulleiter bitte, dass du mich gerne dabei hättest, oder dass du mich vorher fragen möchtest."
 
-Hermine's Augen waren sehr groß. "Macht der Schulleiter Dinge, die falsch sind?"
+Hermine's Augen wurden sehr groß. "Macht der Schulleiter Dinge, die falsch sind?"
 
 Professor McGonagall sah daraufhin ein wenig traurig aus. "Nicht mit Absicht, Miss Granger, aber ich denke... Nun, es ist wahrscheinlich _wahr_, dass der Schulleiter manchmal Schwierigkeiten hat, sich daran zu erinnern, wie es ist, ein Kind zu sein. Schon als Kind war er sicher brillant und stark im Kopf und im Herzen, mit genug Mut für drei Gryffindors. Manchmal verlangt der Schulleiter zu viel von seinen jungen Schülern, Miss Granger, oder ist nicht vorsichtig genug, um sie nicht zu verletzen. Er ist ein guter Mann, aber manchmal gehen seine Verschwörungen zu weit."
 
-"Aber es ist _gut_ für Schüler, stark zu sein und Mut zu haben", sagte Hermine. "Deshalb hast du Gryffindor für mich vorgeschlagen, nicht wahr?"
+"Aber es ist _gut_ für Schüler, stark zu sein und Mut zu haben", sagte Hermine. "Deshalb haben Sie Gryffindor für mich vorgeschlagen, nicht wahr?"
 
 Professor McGonagall lächelte verschmitzt. "Vielleicht war ich nur egoistisch, weil ich dich für mein eigenes Haus haben wollte. Hat dir der Sprechende Hut angeboten - nein, ich hätte nicht fragen sollen."
 
@@ -242,13 +242,13 @@ Professor McGonagall presste ihre Hände über ihre Augen. Als sie sie wegnahm, 
 
 _Nachspiel, Draco Malfoy:_
 
-Keiner von ihnen wollte an diesem Samstag wirklich etwas Kompliziertes machen, nicht nachdem sie zuvor eine Schlacht geschlagen hatten. Draco saß also gerade in einem unbenutzten Klassenzimmer und versuchte, ein Buch namens _Thinking Physics zu lesen. UNTRANSLATED: _ It was one of the most fascinating things that Draco had ever read in his life, at least the parts he could understand, at least when the _accursed idiot_ who refused to let his books out of his sight could manage to _shut up_ and let Draco _concentrate_ -.
+Keiner von ihnen wollte an diesem Samstag wirklich etwas Kompliziertes machen, nicht nachdem sie zuvor eine Schlacht geschlagen hatten. Draco saß also gerade in einem unbenutzten Klassenzimmer und versuchte, ein Buch namens _Thinking Physics_ zu lesen. Es war eines der faszinierendsten Dinge, die Draco je in seinem Leben gelesen hatte, zumindest die Teile, die er verstehen konnte, zumindest wenn der _verfluchte Idiot_, der sich weigerte, seine Bücher aus den Augen zu lassen, es schaffte, _die Klappe zu halten_ und Draco sich _konzentrieren_ zu lassen.
 
-"Hermine Granger ist ein _muuudbloood_", sang Harry Potter von dort, wo er an einem nahegelegenen Schreibtisch saß und ein weitaus fortgeschritteneres Buch von sich las.
+"Hermine Granger ist ein _Schlaaaaammbluuuut_", sang Harry Potter von dort, wo er an einem nahegelegenen Schreibtisch saß und ein weitaus fortgeschritteneres Buch von sich las.
 
 "Ich weiß, was du vorhast", sagte Draco ruhig, ohne von den Seiten aufzublicken. "Es wird nicht funktionieren. Wir sind immer noch dabei, dich zu zermalmen."
 
-"Ein _Maaaalfoy_ arbeitet mit einem _Muuudbloood_, was werden die _Freunde_ deines Vaters denken -"
+"Ein _Maaaalfoy_ arbeitet mit einem _Schlaaaaammbluuuut_, was werden die _Freunde_ deines Vaters denken -"
 
 "Sie werden denken, dass Malfoys nicht so leicht zu manipulieren sind, wie _du_ zu glauben scheinst, _Potter!_"
 
@@ -258,15 +258,15 @@ Der Verteidigungsprofessor war verrückter als Dumbledore, kein zukünftiger Ret
 
 Dracos Finger wurden weiß, wo sie das Buch umklammerten. Geschlagen und bespuckt zu werden, konnte unmöglich so viel Selbstbeherrschung erfordern, und wenn er sich nicht bald an Harry rächte, würde er etwas Belastendes tun -.
 
-"Und was _wolltest_ du beim ersten Mal?", fragte Draco.
+"Und was _wolltest_ du bei Deinem ersten Wunsch?", fragte Draco.
 
 Harry sagte nichts, also blickte Draco von seinem Buch auf und fühlte einen Stich böser Genugtuung bei dem traurigen Blick auf Harrys Gesicht.
 
 "Ähm", sagte Harry. "Viele Leute haben mich das gefragt, aber ich glaube nicht, dass Professor Quirrell gewollt hätte, dass ich darüber spreche."
 
-Draco legte einen ernsten Blick auf sein eigenes Gesicht. "Du kannst mit _mir_ darüber sprechen. Es ist wahrscheinlich nicht wichtig im Vergleich zu den anderen Geheimnissen, die du mir erzählt hast, und wozu sind Freunde sonst da?"_Das stimmt, ich bin dein Freund! Fühl dich schuldig!_
+Draco legte einen ernsten Blick auf sein eigenes Gesicht. "Du kannst mit _mir_ darüber sprechen. Es ist wahrscheinlich nicht wichtig im Vergleich zu den anderen Geheimnissen, die du mir erzählt hast, und wozu sind Freunde sonst da?" _Das stimmt, ich bin dein Freund! Fühl dich schuldig!_
 
-"Es war nicht wirklich so interessant", sagte Harry mit offensichtlich künstlicher Leichtigkeit. "Ich wünschte nur, Professor Quirrell würde nächstes Jahr wieder Kampfmagie unterrichten. _"
+"Es war nicht wirklich so interessant", sagte Harry mit offensichtlich künstlicher Leichtigkeit. "Ich wünschte nur, Professor Quirrell würde nächstes Jahr wieder Kampfmagie unterrichten."
 
 Harry seufzte und schaute wieder auf sein Buch hinunter.
 
