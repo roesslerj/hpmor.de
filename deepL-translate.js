@@ -118,6 +118,7 @@ async function run() {
       .replaceAll('Soldiers', 'Soldaten')
       .replaceAll('Breaking Drill', 'Brechbohrer')
       .replaceAll('\{\\an8\}', '_')
+      .replaceAll('Jungen, der lebte', 'Jungen-der-lebt')
       .concat(`\n\n→ [Kapitel ${nextChapter}](Kapitel-${nextChapter}.md)\n`);
     console.log("\n\n\n");
     console.log(`Writing translated chapter ${chapter} into file ${filename} with ${errorCnt} errors.\n`);

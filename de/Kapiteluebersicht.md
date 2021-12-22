@@ -23,7 +23,7 @@ Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier ein
 - [Kapitel 19](Kapitel-19.md): Professor Quirrell lehrt Harry zu verlieren.
 - [Kapitel 20](Kapitel-20.md): Professor Quirrell und Harry unterhalen sich, und Professor Quirrell gewährt Harry einen Blick auf das Universum.
 - [Kapitel 21](Kapitel-21.md): Harry und Draco treffen sich heimlich.
-- [Kapitel 22](Kapitel-22.md): Harry und Hermine forschen zusammen. Harry trifft sicher wieder mit Draco.
+- [Kapitel 22](Kapitel-22.md): Harry und Hermine forschen zusammen. Harry trifft sich wieder mit Draco.
 - [Kapitel 23](Kapitel-23.md): Harry und Draco forschen zusammen.
 - [Kapitel 24](Kapitel-24.md): Harry und Draco versöhnen sich und schmieden Pläne.
 - [Kapitel 25](Kapitel-25.md): Rita Skeeter wird hereingelegt.
@@ -35,9 +35,9 @@ Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier ein
 - [Kapitel 31](Kapitel-31.md): Nachspiel der 1. Schlacht
 - [Kapitel 32](Kapitel-32.md): Harry kauft Weihnachtsgeschenke
 - [Kapitel 33](Kapitel-33.md): Die letzte Schlacht vor Weihnachten – mit Verrätern
-- [Kapitel 34](Kapitel-34.md): 
-- [Kapitel 35](Kapitel-35.md): 
-- [Kapitel 36](Kapitel-36.md): 
+- [Kapitel 34](Kapitel-34.md): Siegerehrung und Ansprachen
+- [Kapitel 35](Kapitel-35.md): Nachspiele der letzten Schlacht vor Weihnachten
+- [Kapitel 36](Kapitel-36.md): Winterferien und Weihnachtsessen bei den Grangers
 - [Kapitel 37](Kapitel-37.md): 
 - [Kapitel 38](Kapitel-38.md): 
 - [Kapitel 39](Kapitel-39.md): 
