@@ -1,32 +1,32 @@
-# Kapitel 39: So tun, als sei man weise, Teil 1.
+# Kapitel 39: So tun, als sei man weise, Teil 1
 
-Pfeife. Zecke. Bzzzt. Ding. Glorp. Pop. Splat. Läuten. Toot. Puste. Im Internet. Blase. Piep. Aufprall. Knistern. Whoosh. Aufzug. Pffft. Zirpen.
+Pfeif. Zack. Bzzzt. Ding. Glorp. Pop. Platsch. Läut. Klingel. Pust. Piep. Knall. Knister. Whoosh. Pffft. Zirp.
 
-Professor Flitwick hatte Harry an jenem Montag während des Zauberkunstunterrichts stillschweigend ein gefaltetes Pergament gereicht. Auf dem Zettel stand, dass Harry den Schulleiter besuchen sollte, wann es ihm passte, und zwar so, dass es niemand sonst bemerken würde, vor allem nicht Draco Malfoy oder Professor Quirrell. Sein einmaliges Passwort für den Wasserspeier wäre "Squeamish Ossifrage" Dazu gab es eine bemerkenswert kunstvolle Tuschezeichnung von Professor Flitwick, der ihn streng anstarrte und dessen Augen ab und zu blinzelten; unten auf dem Zettel stand dreimal unterstrichen der Satz DON'T GET INTO TROUBLE.
+Professor Flitwick hatte Harry an jenem Montag während des Zauberkunstunterrichts stillschweigend ein gefaltetes Pergament gereicht. Auf dem Zettel stand, dass Harry den Schulleiter besuchen sollte, wann es ihm passte, und zwar so, dass es niemand sonst bemerken würde, vor allem nicht Draco Malfoy oder Professor Quirrell. Sein einmaliges Passwort für den Wasserspeier wäre "Heikle Ossifrage" Dazu gab es eine bemerkenswert kunstvolle Tuschezeichnung von Professor Flitwick, der ihn streng anstarrte und dessen Augen ab und zu blinzelten; unten auf dem Zettel stand dreimal unterstrichen der Satz "GERATE NICHT IN ÄRGER!".
 
-Und so hatte Harry den Transformationsunterricht beendet, mit Hermine gelernt, zu Abend gegessen, mit seinen Leutnants gesprochen und sich schließlich, als die Uhr neun schlug, unsichtbar gemacht, war auf sechs Uhr zurückgeworfen worden und stapfte müde in Richtung des Wasserspeiers, der sich drehenden Wendeltreppe, der Holztür, des Raums voller kleiner fummeliger Dinge und der silberbärtigen Gestalt des Schulleiters.
+Und so hatte Harry den Transformationsunterricht beendet, mit Hermine gelernt, zu Abend gegessen, mit seinen Leutnants gesprochen und sich schließlich, als die Uhr neun schlug, unsichtbar gemacht, war auf sechs Uhr zurückgegangen und stapfte müde in Richtung des Wasserspeiers, der sich drehenden Wendeltreppe, der Holztür, des Raums voller kleiner fummeliger Dinge und der silberbärtigen Gestalt des Schulleiters.
 
-Diesmal sah Dumbledore sehr ernst aus, das übliche Lächeln fehlte und er trug einen Schlafanzug in einem dunkleren und nüchternen Lila als sonst.
+Diesmal sah Dumbledore sehr ernst aus, das übliche Lächeln fehlte und er trug einen Schlafanzug in einem dunkleren und nüchternernen Lila als sonst.
 
 "Danke, dass du gekommen bist, Harry", sagte der Schulleiter. Der alte Zauberer erhob sich von seinem Thron und begann, langsam durch den Raum und die seltsamen Geräte zu gehen. "Hast du die Notizen von der gestrigen Begegnung mit Lucius Malfoy dabei?"
 
-"Noten?", platzte Harry heraus.
+"Notizen?", platzte Harry heraus.
 
 "Sicherlich hast du es aufgeschrieben... ", sagte der alte Zauberer und seine Stimme verstummte.
 
 Harry war das ziemlich peinlich. Ja, wenn du dich gerade durch ein mysteriöses Gespräch voller wichtiger Andeutungen gefummelt hast, die du nicht verstehst, wäre es das _verflucht Naheliegendste_, alles sofort aufzuschreiben, bevor die Erinnerung verblasst, damit du es später herausfinden kannst.
 
-"In Ordnung", sagte der Schulleiter, "dann aus dem Gedächtnis."
+"In Ordnung", sagte der Schulleiter, "dann also aus dem Gedächtnis."
 
-Harry rezitierte verlegen, so gut er konnte, und war schon fast halb fertig, als ihm klar wurde, dass es nicht klug war, dem möglicherweise verrückten Schulleiter einfach alles zu erzählen, zumindest nicht, ohne vorher darüber _nachzudenken_, aber dann war Lucius _definitiv_ ein Bösewicht und Dumbledores Gegner, also war es wahrscheinlich _eine_ gute Idee, es ihm zu sagen, und Harry hatte schon angefangen zu reden und es war zu spät, die Dinge jetzt zu berechnen...
+Harry rezitierte verlegen, so gut er konnte, und war schon fast halb fertig, als ihm klar wurde, dass es nicht klug war, dem möglicherweise verrückten Schulleiter einfach alles zu erzählen, zumindest nicht, ohne vorher darüber _nachzudenken_, aber dann war Lucius _definitiv_ ein Bösewicht und Dumbledores Gegner, also _war_ es wahrscheinlich eine gute Idee, es ihm zu sagen, und Harry hatte schon angefangen zu reden und es war zu spät, die Dinge jetzt zu berechnen...
 
 Harry beendete seine Erinnerungen aufrichtig.
 
 Dumbledores Gesicht wurde immer abweisender, je weiter Harry fortfuhr, und am Ende hatte er einen uralten Blick, eine Strenge in der Luft.
 
-"Nun", sagte Dumbledore. "Ich schlage vor, du sorgst dafür, dass der Erbe von Malfoy nicht zu Schaden kommt. Und ich werde dasselbe tun. "Der Schulleiter runzelte die Stirn und trommelte mit den Fingern lautlos auf die tiefschwarze Oberfläche eines Schildes, auf dem das Wort _Leliel stand. Und ich denke, es wäre äußerst klug, wenn du von nun an jeglichen Kontakt mit Lord Malfoy vermeiden würdest."
+"Nun", sagte Dumbledore. "Ich schlage vor, du sorgst dafür, dass der Erbe von Malfoy nicht zu Schaden kommt. Und ich werde dasselbe tun." Der Schulleiter runzelte die Stirn und trommelte mit den Fingern lautlos auf die tiefschwarze Oberfläche eines Schildes, auf dem das Wort _Leliel_ stand. "Und ich denke, es wäre äußerst klug, wenn du von nun an jeglichen Kontakt mit Lord Malfoy vermeiden würdest."
 
-"Hast du Eulen von ihm für mich abgefangen?", fragte Harry.
+"Haben Sie Eulen von ihm für mich abgefangen?", fragte Harry.
 
 Der Schulleiter schaute Harry einen langen Moment lang an und nickte dann zögernd.
 
@@ -34,7 +34,7 @@ Aus irgendeinem Grund war Harry nicht so empört, wie er es hätte sein sollen. 
 
 Nicht so wie der Schulleiter, der Zabini erpresst... Dafür hatten sie nur Zabinis Wort, und Zabini war äußerst unzuverlässig. Tatsächlich war es schwer zu verstehen, warum Zabini nicht einfach die Geschichte erzählte, die ihm die meiste Sympathie von Professor Quirrell einbrachte...
 
-"Wie wäre es, wenn ich, anstatt zu protestieren, sage, dass ich deinen Standpunkt verstehe", sagte Harry, "und du weiterhin meine Eulen abfängst, aber du mir sagst, von wem?"
+"Wie wäre es, wenn ich, anstatt zu protestieren, sage, dass ich Ihren Standpunkt verstehe", sagte Harry, "und Sie weiterhin meine Eulen abfangen, aber mir sagen, von wem?"
 
 "Ich fürchte, ich habe eine Menge Eulen für dich abgefangen", sagte Dumbledore nüchtern. "Du bist eine Berühmtheit, Harry, und du würdest jeden Tag Dutzende von Briefen erhalten, einige davon von weit außerhalb dieses Landes, wenn ich sie nicht zurückweisen würde."
 
@@ -56,7 +56,7 @@ Harry schaute auf seine Schuhe hinunter. Er _sollte_ darauf bestehen, die Briefe
 
 Es stellte sich heraus, dass Professor Quirrell von seinen Schülerinnen und Schülern verlangte, dass sie sich mit einem echten Dementor messen sollten, nachdem sie die Worte und Gesten für den Patronus-Zauber gelernt hatten.
 
-"Professor Quirrell ist nicht in der Lage, den Patronus-Zauber selbst zu wirken", sagte Dumbledore, während er langsam durch die Geräte schritt. "Das ist nie ein gutes Zeichen. Aber er hat mir diese Tatsache _freiwillig_ mitgeteilt, als er verlangte, dass jeder Schüler, der den Patronus-Zauber lernen wollte, von einem externen Lehrer unterrichtet werden sollte; er bot mir an, die Kosten selbst zu tragen, wenn ich das nicht tun würde. Das hat mich sehr beeindruckt. Aber jetzt besteht er darauf, einen Dementor mitzubringen"
+"Professor Quirrell ist nicht in der Lage, den Patronus-Zauber selbst zu wirken", sagte Dumbledore, während er langsam durch die Geräte schritt. "Das ist nie ein gutes Zeichen. Aber er hat mir diese Tatsache _freiwillig_ mitgeteilt, als er verlangte, dass jeder Schüler, der den Patronus-Zauber lernen wollte, von einem externen Lehrer unterrichtet werden sollte; er bot mir an, die Kosten selbst zu tragen, wenn ich das nicht tun würde. Das hat mich sehr beeindruckt. Aber jetzt besteht er darauf, einen Dementor mitzubringen."
 
 "Schulleiter", sagte Harry leise, "Professor Quirrell glaubt _sehr_ stark an Schießversuche unter realistischen Kampfbedingungen. Einen echten Dementor herbeizuschaffen, ist _vollkommen_ typisch für ihn."
 
@@ -64,27 +64,27 @@ Jetzt warf der Schulleiter Harry einen seltsamen Blick zu.
 
 "In der Rolle?", sagte der alte Zauberer.
 
-"Ich meine", sagte Harry, "das passt ganz gut zu der Art, wie Professor Quirrell sich normalerweise verhält... "Harry brach ab. Warum _hat_ er es so formuliert?
+"Ich meine", sagte Harry, "das passt ganz gut zu der Art, wie Professor Quirrell sich normalerweise verhält..." Harry brach ab. Warum _hat_ er es so formuliert?
 
-Der Schulleiter nickte. "Du hast also dasselbe Gefühl wie ich: dass es eine Ausrede ist. Eine sehr _vernünftige_ Ausrede, um sicher zu sein; mehr, als dir vielleicht klar ist. Oft gelingt es Zauberern, die scheinbar nicht in der Lage sind, einen Patronus-Zauber zu wirken, in der Gegenwart eines echten Dementors, der von keinem einzigen Lichtflackern zu einem vollständigen körperlichen Patronus wird. Warum das so ist, weiß niemand, aber es ist so."
+Der Schulleiter nickte. "Du hast also dasselbe Gefühl wie ich: dass es eine Ausrede ist. Eine sehr _vernünftige_ Ausrede, um sicher zu sein; mehr, als dir vielleicht klar ist. Oft gelingt es Zauberern, die scheinbar nicht in der Lage sind, einen Patronus-Zauber zu wirken, dies in der Gegenwart eines echten Dementors. Warum das so ist, weiß niemand, aber es ist so."
 
-Harry runzelte die Stirn. "Dann verstehe ich wirklich nicht, warum du verdächtig bist -"
+Harry runzelte die Stirn. "Dann verstehe ich wirklich nicht, warum Sie skeptisch sind -"
 
-Der Schulleiter breitete seine Hände wie in Hilflosigkeit aus. "Harry, der _Verteidigungsprofessor_ hat mich gebeten, die dunkelste aller Kreaturen durch die Tore von Hogwarts zu lassen. Ich _muss_ verdächtig sein. "Der Schulleiter seufzte. "Und doch wird der Dementor in einem mächtigen Käfig bewacht werden, ich selbst werde immer da sein, um ihn zu beobachten - ich kann mir nicht vorstellen, dass man ihm etwas Böses antun könnte. Aber vielleicht bin ich auch nur unfähig, es zu sehen. Und deshalb frage ich dich."
+Der Schulleiter breitete seine Hände in Hilflosigkeit aus. "Harry, der _Verteidigungsprofessor_ hat mich gebeten, die dunkelste aller Kreaturen durch die Tore von Hogwarts zu lassen. Ich _muss_ skeptisch sein." Der Schulleiter seufzte. "Und doch wird der Dementor in einem mächtigen Käfig bewacht werden, ich selbst werde immer da sein, um ihn zu beobachten - ich kann mir nicht vorstellen, dass man mit ihm etwas Böses tun könnte. Aber vielleicht bin ich auch nur unfähig, das zu sehen. Und deshalb frage ich dich."
 
 Harry starrte den Schulleiter mit offenem Mund an. Er war so schockiert, dass er sich nicht einmal geschmeichelt fühlte.
 
-"_Mich?_ ", sagte Harry.
+"_Mich?_", sagte Harry.
 
 "Ja", sagte Dumbledore und lächelte leicht. "Ich versuche mein Bestes, meine Feinde vorauszusehen, ihre bösen Gedanken zu erfassen und ihre bösen Gedanken vorherzusagen. Aber _ich_ wäre nie auf die Idee gekommen, die Knochen eines Hufflepuffs zu Waffen zu schleifen."
 
 Ob Harry das jemals überleben würde?
 
-"Mr. Direktor", sagte Harry müde, "ich weiß, dass es sich nicht gut anhört, aber mal ganz im Ernst: Ich bin nicht böse, ich bin nur sehr kreativ -"
+"Herr Direktor", sagte Harry müde, "ich weiß, dass es sich nicht gut anhört, aber mal ganz im Ernst: Ich bin nicht böse, ich bin nur sehr kreativ -"
 
-"Ich habe nicht gesagt, dass du böse bist", sagte Dumbledore ernst. "Es gibt Leute, die sagen, das Böse zu begreifen, bedeutet, böse zu werden; aber sie tun nur so, als ob sie weise wären. Vielmehr ist es das Böse, das die Liebe nicht kennt und sich die Liebe nicht vorzustellen wagt, und das die Liebe niemals verstehen kann, ohne aufzuhören, böse zu sein. Und ich vermute, dass du dich besser in die Gedanken der dunklen Zauberer/innen hineinversetzen kannst, als ich es je konnte, und trotzdem selbst die Liebe kennst. Also, Harry. "Die Augen des Schulleiters waren aufmerksam. "Wenn du an Professor Quirrells Stelle wärst, welche Untaten könntest du begehen, nachdem du mich dazu gebracht hast, einen Dementor auf das Gelände von Hogwarts zu lassen?"
+"Ich habe nicht gesagt, dass du böse bist", sagte Dumbledore ernst. "Es gibt Leute, die sagen, das Böse zu begreifen, bedeutet, böse zu werden; aber sie tun nur so, als ob sie weise wären. Vielmehr ist es das Böse, das die Liebe nicht kennt und sich die Liebe nicht vorzustellen wagt, und das die Liebe niemals verstehen kann, ohne aufzuhören, böse zu sein. Und ich vermute, dass du dich besser in die Gedanken der dunklen Zauberer/innen hineinversetzen kannst, als ich es je konnte, und trotzdem selbst die Liebe kennst. Also, Harry." Die Augen des Schulleiters waren aufmerksam. "Wenn du an Professor Quirrells Stelle wärst, welche Untaten könntest du begehen, nachdem du mich dazu gebracht hast, einen Dementor auf das Gelände von Hogwarts zu lassen?"
 
-"Warte", sagte Harry und stapfte etwas benommen zu dem Stuhl vor dem Schreibtisch des Schulleiters und setzte sich. Diesmal war es ein großer und bequemer Stuhl, kein Holzschemel, und Harry fühlte sich umhüllt, als er sich hineinsetzte.
+"Warten Sie", sagte Harry und stapfte etwas benommen zu dem Stuhl vor dem Schreibtisch des Schulleiters und setzte sich. Diesmal war es ein großer und bequemer Stuhl, kein Holzschemel, und Harry fühlte sich umhüllt, als er sich hineinsetzte.
 
 Dumbledore hat ihn gebeten, Professor Quirrell zu überlisten.
 
@@ -104,7 +104,7 @@ Das war das erste Mal, dass jemand _das_ zu Harry gesagt hatte.
 
 Harry unterdrückte den Schauer, der ihn bei diesem Namen durchfuhr, und sah den Schulleiter nachdenklich an.
 
-_Wie viel weiß er? . . ?_
+_Wie viel weiß er?_
 
 Der Schulleiter hatte Harry im Griff seiner geheimnisvollen dunklen Seite gesehen, so tief, wie Harry jemals in sie versunken war. Harry erinnerte sich immer noch daran, wie es war, unsichtbar in der Zeit zuzusehen, wie sein früheres Ich gegen die älteren Slytherins antrat; der Junge mit der Narbe auf der Stirn, der sich nicht wie die anderen verhielt. Natürlich hätte der Schulleiter etwas Seltsames an dem Jungen in seinem Büro bemerkt...
 
@@ -118,21 +118,21 @@ Aber es war auch klar, dass der Schulleiter nicht zufrieden sein würde, bevor H
 
 Und natürlich _würde_ Harry zu seiner dunklen Seite übergehen und die Sache aus dieser Richtung durchdenken, nur um ehrlich zu sein und für den Fall der Fälle.
 
-"Erzähl mir", sagte Harry, "alles darüber, wie der Dementor hereingebracht und wie er bewacht werden soll."
+"Erzählen Sie mir", sagte Harry, "alles darüber, wie der Dementor hereingebracht und wie er bewacht werden soll."
 
 Dumbledores Augenbrauen hoben sich für einen Moment, dann begann der alte Zauberer zu sprechen.
 
 Der Dementor würde von einem Aurorentrio auf das Gelände von Hogwarts gebracht werden, das dem Schulleiter persönlich bekannt ist und einen körperlichen Patronus-Zauber wirken kann. Am Rande des Geländes wurden sie von Dumbledore empfangen, der den Dementor durch die Hogwarts-Schutzmauer schickte.
 
-Harry fragte, ob der Pass dauerhaft oder nur vorübergehend sei - ob jemand denselben Dementor am nächsten Tag einfach wieder herbringen könne.
+Harry fragte, ob der Durchgang dauerhaft oder nur vorübergehend sei - ob jemand denselben Dementor am nächsten Tag einfach wieder herbringen könne.
 
-Der Passierschein war vorübergehend (antwortete der Schulleiter mit einem zustimmenden Nicken), und die Erklärung ging weiter: Der Dementor befände sich in einem Käfig aus massivem Titan, nicht verformt, sondern echt geschmiedet; mit der Zeit würde die Anwesenheit eines Dementors das Metall zu Staub korrodieren, aber nicht an einem einzigen Tag.
+Der Durchgang war vorübergehend (antwortete der Schulleiter mit einem zustimmenden Nicken), und die Erklärung ging weiter: Der Dementor befände sich in einem Käfig aus massivem Titan, nicht verformt, sondern echt geschmiedet; mit der Zeit würde die Anwesenheit eines Dementors das Metall zu Staub korrodieren, aber nicht an einem einzigen Tag.
 
-Die Schülerinnen und Schüler, die darauf warteten, dass sie an der Reihe waren, hielten sich weit hinter dem Dementor auf, hinter zwei körperlichen Patronen, die jeweils von zwei der drei Auroren betreut wurden. Dumbledore würde mit seinem Patronus beim Käfig des Dementors warten. Ein einzelner Schüler würde sich dem Dementor nähern, Dumbledore würde seinen Patronus auflösen und der Schüler würde versuchen, seinen eigenen Patronus-Zauber zu wirken. Wenn er versagt, würde Dumbledore seinen Patronus wiederherstellen, bevor der Schüler bleibende Schäden erleiden könnte. Der frühere Duellchampion Professor Flitwick würde auch anwesend sein, wenn Schüler in der Nähe sind, nur um die Sicherheit zu erhöhen.
+Die Schülerinnen und Schüler, die darauf warteten, dass sie an der Reihe waren, hielten sich weit hinter dem Dementor auf, hinter zwei körperlichen Patronus Zaubern, die jeweils von zwei der drei Auroren betreut wurden. Dumbledore würde mit seinem Patronus beim Käfig des Dementors warten. Ein einzelner Schüler würde sich dem Dementor nähern, Dumbledore würde seinen Patronus auflösen und der Schüler würde versuchen, seinen eigenen Patronus-Zauber zu wirken. Wenn er versagte, würde Dumbledore seinen Patronus wiederherstellen, bevor der Schüler bleibende Schäden erleiden könnte. Der frühere Duellchampion Professor Flitwick würde auch anwesend sein, wenn Schüler in der Nähe sind, nur um die Sicherheit zu erhöhen.
 
-"Warum wartest ausgerechnet _du_ bei dem Dementor?", fragte Harry. "Ich meine, solltest nicht du und ein Auror -"
+"Warum warten ausgerechnet _Sie_ bei dem Dementor?", fragte Harry. "Ich meine, sollten nicht Sie und ein Auror -"
 
-Der Schulleiter schüttelte den Kopf. "Sie konnten der wiederholten Einwirkung des Dementors nicht standhalten, jedes Mal, wenn ich meinen Patronus auflöste."
+Der Schulleiter schüttelte den Kopf. "Sie könnten der wiederholten Einwirkung des Dementors nicht standhalten, jedes Mal, wenn ich meinen Patronus auflöste."
 
 Und wenn Dumbledores Patronus aus irgendeinem Grund fehlschlug, während einer der Schüler noch in der Nähe des Dementors war, zauberte der dritte Auror einen weiteren körperlichen Patronus und schickte ihn, um den Schüler zu schützen...
 
@@ -140,7 +140,7 @@ Harry stocherte und stocherte, aber er konnte keine Lücke in der Sicherung entd
 
 Also holte Harry tief Luft, sank weiter in den Stuhl, schloss die Augen und erinnerte sich:.
 
-_"Und das wird sein... fünf Punkte? Nein, lasst uns zehn Punkte aus Ravenclaw für Backchat machen. "_
+_"Und das wird sein... fünf Punkte? Nein, lasst uns zehn Punkte aus Ravenclaw für Wiederspruch machen."_
 
 Die Kälte kam jetzt langsamer, widerwilliger, Harry hatte in letzter Zeit nicht viel von seiner dunklen Seite gefordert...
 
@@ -150,35 +150,35 @@ Und dann dachte er an den Dementor.
 
 Und es war offensichtlich.
 
-"Der Dementor ist eine Ablenkung", sagte Harry. Die Kälte in seiner Stimme war klar, denn das war es, was Dumbledore wollte und erwartete. "Eine große, auffällige Bedrohung, aber im Endeffekt überschaubar und leicht zu verteidigen. Während deine ganze Aufmerksamkeit also auf den Dementor gerichtet ist, findet die eigentliche Handlung woanders statt."
+"Der Dementor ist eine Ablenkung", sagte Harry. Die Kälte in seiner Stimme war klar, denn das war es, was Dumbledore wollte und erwartete. "Eine große, auffällige Bedrohung, aber im Endeffekt überschaubar und leicht zu verteidigen. Während Ihre ganze Aufmerksamkeit also auf den Dementor gerichtet ist, findet die eigentliche Handlung woanders statt."
 
-Dumbledore starrte Harry einen Moment lang an und nickte dann langsam. "Ja... ", sagte der Schulleiter. "Und ich glaube, ich weiß, wovon es eine Ablenkung sein könnte, wenn Professor Quirrell es böse meint... Danke, Harry."
+Dumbledore starrte Harry einen Moment lang an und nickte dann langsam. "Ja...", sagte der Schulleiter. "Und ich glaube, ich weiß, wovon es eine Ablenkung sein könnte, wenn Professor Quirrell es böse meint... Danke, Harry."
 
 Der Schulleiter starrte Harry immer noch an, mit einem seltsamen Blick in diesen alten Augen.
 
 "Was?", sagte Harry leicht verärgert, denn die Kälte lag ihm noch im Blut.
 
-"Ich habe noch eine Frage an den jungen Mann", sagte der Schulleiter. "Das ist etwas, was ich mich schon lange frage, aber noch nicht begreifen kann. _Warum?_ "In seiner Stimme lag ein Hauch von Schmerz. "Warum sollte sich jemand absichtlich zu einem Monster machen? Warum das Böse um des Bösen willen tun? Warum Voldemort?"
+"Ich habe noch eine Frage an den jungen Mann", sagte der Schulleiter. "Das ist etwas, was ich mich schon lange frage, aber noch nicht begreifen kann. _Warum?_" In seiner Stimme lag ein Hauch von Schmerz. "Warum sollte sich jemand absichtlich zu einem Monster machen? Warum das Böse um des Bösen willen tun? Warum Voldemort?"
 
 * * *
 
-Zirren, bzzzt, tick; ding, puff, splat... _
+Zirr, bzzzt, tick; ding, puff, platsch, spläschhh...
 
 Harry starrte den Schulleiter überrascht an.
 
-"Woher soll ich das wissen?", sagte Harry. "Soll ich den Dunklen Lord auf magische Weise verstehen, weil ich der Held bin, oder was?
+"Woher soll ich das wissen?", sagte Harry. "Soll ich den Dunklen Lord auf magische Weise verstehen, weil ich der Held bin, oder was?"
 
-"_Ja!_ ", sagte Dumbledore. "Mein eigener großer Feind war Grindelwald, und _ihn_ verstand ich wirklich sehr gut. Grindelwald war mein dunkler Spiegel, der Mann, der ich so leicht hätte sein können, wenn ich der Versuchung nachgegeben hätte, zu glauben, dass ich ein guter Mensch und deshalb immer im Recht sei. _For the greater good_, das war sein Slogan; und er glaubte wirklich daran, auch wenn er sich wie ein verwundetes Tier über ganz Europa hermachte. Und ihn habe ich am Ende besiegt. Aber dann kam Voldemort, um alles zu zerstören, was ich in Großbritannien beschützt hatte. "Der Schmerz war jetzt deutlich in Dumbledores Stimme zu hören und auf seinem Gesicht zu sehen. "Er hat Taten begangen, die bei weitem schlimmer waren als Grindelwalds schlimmste, Horror um des Horrors willen. Ich habe alles geopfert, nur um ihn zurückzuhalten, und ich verstehe immer noch nicht, _warum!_ _Warum_, Harry? Warum hat er das getan? Er war nie mein auserkorener Feind, sondern deiner, also wenn du irgendeine Vermutung hast, Harry, dann sag es mir bitte! _Warum?_ "
+"_Ja!_", sagte Dumbledore. "Mein eigener großer Feind war Grindelwald, und _ihn_ verstand ich wirklich sehr gut. Grindelwald war mein dunkler Spiegel, der Mann, der ich so leicht hätte sein können, wenn ich der Versuchung nachgegeben hätte, zu glauben, dass ich ein guter Mensch und deshalb immer im Recht sei. _Für das Allgemeinwohl_, das war sein Slogan; und er glaubte wirklich daran, auch wenn er sich wie ein verwundetes Tier über ganz Europa hermachte. Und ihn habe ich am Ende besiegt. Aber dann kam Voldemort, um alles zu zerstören, was ich in Großbritannien beschützt hatte." Der Schmerz war jetzt deutlich in Dumbledores Stimme zu hören und auf seinem Gesicht zu sehen. "Er hat Taten begangen, die bei weitem schlimmer waren als Grindelwalds schlimmste, Horror um des Horrors willen. Ich habe alles geopfert, nur um ihn zurückzuhalten, und ich verstehe immer noch nicht, _warum!_ _Warum_, Harry? Warum hat er das getan? Er war nie mein auserkorener Feind, sondern deiner, also wenn du irgendeine Vermutung hast, Harry, dann sag es mir bitte! _Warum?_"
 
 Harry starrte auf seine Hände hinunter. Die Wahrheit war, dass Harry noch nichts über den Dunklen Lord gelesen hatte, und im Moment hatte er nicht die geringste Ahnung. Und irgendwie schien das keine Antwort zu sein, die der Schulleiter hören wollte. "Vielleicht zu viele dunkle Rituale? Am Anfang dachte er, er würde nur ein einziges machen, aber das hat einen Teil seiner guten Seite geopfert, und das hat ihn weniger widerwillig gemacht, andere dunkle Rituale durchzuführen, also hat er in einem positiven Rückkopplungskreislauf immer mehr Rituale gemacht, bis er am Ende ein ungeheuer mächtiges Monster war -"
 
-"Nein!"Jetzt klang die Stimme des Schulleiters gequält. "Das kann ich nicht glauben, Harry! Da muss doch noch mehr dahinterstecken!"
+"Nein!" Jetzt klang die Stimme des Schulleiters gequält. "Das kann ich nicht glauben, Harry! Da muss doch noch mehr dahinterstecken!"
 
-_Warum sollte das so sein?_, dachte Harry, aber er sagte es nicht, denn es war klar, dass der Schulleiter dachte, das Universum sei eine Geschichte und habe eine Handlung, und dass große Tragödien nur aus ebenso großen, bedeutsamen Gründen geschehen durften. "Es tut mir leid, Mr. Direktor. Der dunkle Herrscher scheint mir kein besonders dunkler Spiegel zu sein, ganz und gar nicht. Es gibt nichts, was ich auch nur im Geringsten verlockend fände, die Häute von Yermy Wibbles Familie an die Wand zu nageln."
+_Warum sollte das so sein?_, dachte Harry, aber er sagte es nicht, denn es war klar, dass der Schulleiter dachte, das Universum sei eine Geschichte und habe eine Handlung, und dass große Tragödien nur aus ebenso großen, bedeutsamen Gründen geschehen durften. "Es tut mir leid, Herr Direktor. Der dunkle Herrscher scheint mir kein besonders dunkler Spiegel zu sein, ganz und gar nicht. Es gibt nichts, was ich auch nur im Geringsten verlockend fände, die Häute von Yermy Wibbles Familie an die Wand zu nageln."
 
 "Hast du _keine_ Weisheit zu teilen?", sagte Dumbledore. In der Stimme des alten Zauberers lag ein Flehen, fast ein Betteln.
 
-_Das Böse passiert,_ dachte Harry, _es bedeutet nichts und lehrt uns nichts, außer dass wir nicht böse sein sollen? Der Dunkle Lord war wahrscheinlich nur ein selbstsüchtiger Mistkerl, dem es egal war, wen er verletzte, oder ein Idiot, der dumme, vermeidbare Fehler machte, die sich ausweiteten. Es gibt kein Schicksal, das hinter den Übeln dieser Welt steht; wenn Hitler die Architekturschule hätte besuchen dürfen, wie er es wollte, wäre die ganze Geschichte Europas anders verlaufen; wenn wir in einem Universum leben würden, in dem schreckliche Dinge nur aus guten Gründen passieren dürfen, würden sie gar nicht erst passieren. _
+_Das Böse passiert_, dachte Harry, _es bedeutet nichts und lehrt uns nichts, außer dass wir nicht böse sein sollen? Der Dunkle Lord war wahrscheinlich nur ein selbstsüchtiger Mistkerl, dem es egal war, wen er verletzte, oder ein Idiot, der dumme, vermeidbare Fehler machte, die sich ausweiteten. Es gibt kein Schicksal, das hinter den Übeln dieser Welt steht; wenn Hitler die Architekturschule hätte besuchen dürfen, wie er es wollte, wäre die ganze Geschichte Europas anders verlaufen; wenn wir in einem Universum leben würden, in dem schreckliche Dinge nur aus guten Gründen passieren dürfen, würden sie gar nicht erst passieren._
 
 Und nichts davon war offensichtlich das, was der Schulleiter hören wollte.
 
@@ -192,7 +192,7 @@ Irgendwie herrschte sogar inmitten all des Surren und Tickens eine Art Stille.
 
 Das kam ein bisschen weiser rüber, als Harry beabsichtigt hatte.
 
-"Du bist vielleicht sehr weise, Harry... ", sagte der Schulleiter langsam. "Ich wünsche es mir... dass ich von meinen Freunden definiert werden könnte. "Der Schmerz in seiner Stimme war tiefer geworden.
+"Du bist vielleicht sehr weise, Harry...", sagte der Schulleiter langsam. "Ich wünsche es mir... dass ich von meinen Freunden definiert werden könnte." Der Schmerz in seiner Stimme war tiefer geworden.
 
 Harrys Gedanken suchten hastig nach etwas anderem, das er sagen konnte, um die ungewollte Wucht des Schlags abzumildern -.
 
@@ -202,33 +202,33 @@ Harrys Gedanken suchten hastig nach etwas anderem, das er sagen konnte, um die u
 
 Harry starrte auf seine eigenen Hände, die in seinem Schoß lagen. Vielleicht sollte er einfach die Klappe halten, solange er noch die Nase vorn hat.
 
-"Aber du _hast_ meine Frage beantwortet", sagte Dumbledore leiser, als wäre er bei sich selbst. "Ich hätte wissen müssen, dass das der Schlüssel eines Slytherins ist. Für seinen Ehrgeiz, alles um seines Ehrgeizes willen; und _das_ weiß ich, wenn auch nicht _warum_.. "Eine Zeit lang starrte Dumbledore ins Leere, dann richtete er sich auf und seine Augen schienen sich wieder auf Harry zu richten.
+"Aber du _hast_ meine Frage beantwortet", sagte Dumbledore leiser, als wäre er bei sich selbst. "Ich hätte wissen müssen, dass das der Schlüssel eines Slytherins ist. Für seinen Ehrgeiz, alles um seines Ehrgeizes willen; und _das_ weiß ich, wenn auch nicht _warum_." Eine Zeit lang starrte Dumbledore ins Leere, dann richtete er sich auf und seine Augen schienen sich wieder auf Harry zu richten.
 
-"Und du, Harry", sagte der Schulleiter, "du nennst dich einen _Wissenschaftler?_ "In seiner Stimme schwang Überraschung und leichte Missbilligung mit.
+"Und du, Harry", sagte der Schulleiter, "du nennst dich einen _Wissenschaftler?_" In seiner Stimme schwang Überraschung und leichte Missbilligung mit.
 
-"Du magst die Wissenschaft nicht?", sagte Harry ein wenig müde. Er hatte gehofft, dass Dumbledore sich mehr für Muggelsachen interessieren würde.
+"Sie mögen die Wissenschaft nicht?", sagte Harry ein wenig müde. Er hatte gehofft, dass Dumbledore sich mehr für Muggelsachen interessieren würde.
 
 "Ich nehme an, es ist für diejenigen nützlich, die keinen Zauberstab haben", sagte Dumbledore und runzelte die Stirn. "Aber es scheint eine seltsame Sache zu sein, über die man sich definiert. Ist Wissenschaft so wichtig wie Liebe? Wie Freundlichkeit? Wie Freundschaft? Ist es die Wissenschaft, die dich zu Minerva McGonagall hinreißt? Ist es die Wissenschaft, die dich für Hermine Granger empfänglich macht? Wird es die Wissenschaft sein, der du dich zuwendest, wenn du versuchst, Wärme in Draco Malfoys Herz zu entfachen?"
 
-Das Traurige daran ist, dass du wahrscheinlich denkst, du hättest gerade ein unglaublich kluges Totschlagargument vorgebracht. _
+_Das Traurige daran ist, dass du wahrscheinlich denkst, du hättest gerade ein unglaublich kluges Totschlagargument vorgebracht._
 
-Wie formuliere ich die Erwiderung so, dass sie auch noch unglaublich weise klingt? . .
+_Wie formuliere ich die Erwiderung so, dass sie auch noch unglaublich weise klingt?_
 
-"Du bist kein Ravenclaw", sagte Harry mit ruhiger Würde, "und deshalb ist es dir vielleicht nicht in den Sinn gekommen, dass es auch ein Akt der Gnade sein könnte, die Wahrheit zu respektieren und sie alle Tage deines Lebens zu suchen."
+"Sie sind kein Ravenclaw", sagte Harry mit ruhiger Würde, "und deshalb ist es Ihnen vielleicht nicht in den Sinn gekommen, dass es auch ein Akt der Gnade sein könnte, die Wahrheit zu respektieren und sie alle Tage Ihres Lebens zu suchen."
 
-Die Augenbrauen des Schulleiters hoben sich. Und dann seufzte er. "Wie bist du so weise geworden, so jung... ?"Der alte Zauberer klang traurig, als er das sagte. "Vielleicht wird es sich für dich als wertvoll erweisen."
+Die Augenbrauen des Schulleiters hoben sich. Und dann seufzte er. "Wie bist du so weise geworden, so jung... ?" Der alte Zauberer klang traurig, als er das sagte. "Vielleicht wird es sich für dich als wertvoll erweisen."
 
-Nur, um alte Zauberer zu beeindrucken, die zu sehr von sich selbst beeindruckt sind", dachte Harry. Es war nicht so, dass Harry _gelogen_ hätte, aber Dumbledore schien viel zu beeindruckt von Harrys Fähigkeit, Dinge so zu formulieren, dass sie tiefgründig klangen, anstatt sie in einfaches Englisch zu fassen, wie es Richard Feynman mit _seiner_ Weisheit getan hatte...
+"Nur, um alte Zauberer zu beeindrucken, die zu sehr von sich selbst beeindruckt sind", dachte Harry. Es war nicht so, dass Harry _gelogen_ hätte, aber Dumbledore schien viel zu beeindruckt von Harrys Fähigkeit, Dinge so zu formulieren, dass sie tiefgründig klangen, anstatt sie in einfaches Englisch zu fassen, wie es Richard Feynman mit _seiner_ Weisheit getan hatte...
 
 "Liebe ist wichtiger als Weisheit", sagte Harry, nur um die Grenzen von Dumbledores Toleranz für offensichtliche Klischees auszutesten, die er durch bloße Musteranpassung ohne jede detaillierte Analyse vervollständigte.
 
 Der Schulleiter nickte ernst und sagte: "In der Tat."
 
-Harry erhob sich aus dem Stuhl und streckte seine Arme aus. Dann gehe ich besser los und liebe etwas, das mir helfen wird, den Dunklen Lord zu besiegen. Und wenn du mich das nächste Mal um einen Rat bittest, werde ich dich einfach umarmen -_
+_Harry erhob sich aus dem Stuhl und streckte seine Arme aus. Dann gehe ich besser los und liebe etwas, das mir helfen wird, den Dunklen Lord zu besiegen. Und wenn du mich das nächste Mal um einen Rat bittest, werde ich dich einfach umarmen._
 
 "Heute hast du mir sehr geholfen, Harry", sagte der Schulleiter. "Und so gibt es noch eine letzte Sache, die ich den jungen Mann fragen möchte."
 
-_Großartig. _
+_Großartig._
 
 "Sag mir, Harry", sagte der Schulleiter (und jetzt klang seine Stimme einfach nur verwundert, obwohl immer noch ein Hauch von Schmerz in seinen Augen lag), "warum fürchten die dunklen Zauberer den Tod so sehr?"
 
@@ -236,27 +236,27 @@ _Großartig. _
 
 * * *
 
-Rauschen, Zischen, Läuten; glorp, pop, bubble -.
+Rausch, Zisch, Läut, Plopp, Blubber, Stöhn, Furz...
 
-"_Was?_ ", sagte Dumbledore.
+"_Was?_", sagte Dumbledore.
 
 "Der Tod ist schlecht", sagte Harry und verwarf die Weisheit zugunsten einer klaren Kommunikation. "Sehr schlecht. Äußerst schlecht. Angst vor dem Tod zu haben, ist wie die Angst vor einem großen Monster mit giftigen Zähnen. Das macht eigentlich sehr viel Sinn und deutet nicht darauf hin, dass du ein psychologisches Problem hast."
 
 Der Schulleiter starrte ihn an, als ob er sich gerade in eine Katze verwandelt hätte.
 
-"Okay", sagte Harry, "lass es mich so formulieren. Willst du _sterben_? Denn wenn ja, gibt es eine Muggel-Hotline, die sich Selbstmordprävention nennt.
+"Okay", sagte Harry, "lassen Sie es mich so formulieren. Wollen Sie _sterben_? Denn wenn ja, gibt es eine Muggel-Hotline, die sich Selbstmordprävention nennt."
 
 "Wenn es Zeit ist", sagte der alte Zauberer leise. "Nicht vorher. Ich würde nie versuchen, den Tag zu beschleunigen oder ihn abzulehnen, wenn er kommt."
 
-Harry runzelte ernsthaft die Stirn. "Das hört sich nicht so an, als ob du einen starken Lebenswillen hättest, Schulleiter!"
+Harry runzelte ernsthaft die Stirn. "Das hört sich nicht so an, als ob Sie einen starken Lebenswillen hätten, Schulleiter!"
 
-"Harry... "Die Stimme des alten Zauberers klang allmählich etwas hilflos, und er war zu einer Stelle geschritten, an der sein silberner Bart unbemerkt in ein gläsernes Goldfischglas gewandert war und langsam eine grünliche Färbung annahm, die an den Haaren hochkroch. "Ich glaube, ich habe mich nicht klar ausgedrückt. Dunkle Zauberer sind nicht erpicht darauf zu leben. Sie _fürchten den Tod. Sie strecken sich nicht nach dem Licht der Sonne aus, sondern fliehen vor dem Anbruch der Nacht in unendlich dunklere Höhlen, die sie selbst geschaffen haben, ohne Mond und Sterne. Sie wollen nicht das Leben, sondern die _Unsterblichkeit_, und sie sind so versessen darauf, sie zu erreichen, dass sie ihre Seele opfern! Willst du _für immer_ leben, Harry?"
+"Harry... " Die Stimme des alten Zauberers klang allmählich etwas hilflos, und er war zu einer Stelle geschritten, an der sein silberner Bart unbemerkt in ein gläsernes Goldfischglas gewandert war und langsam eine grünliche Färbung annahm, die an den Haaren hochkroch. "Ich glaube, ich habe mich nicht klar ausgedrückt. Dunkle Zauberer sind nicht erpicht darauf zu leben. Sie _fürchten den Tod_. Sie strecken sich nicht nach dem Licht der Sonne aus, sondern fliehen vor dem Anbruch der Nacht in unendlich dunklere Höhlen, die sie selbst geschaffen haben, ohne Mond und Sterne. Sie wollen nicht das Leben, sondern die _Unsterblichkeit_, und sie sind so versessen darauf, sie zu erreichen, dass sie ihre Seele opfern! Willst du _für immer_ leben, Harry?"
 
-"Ja, und du auch", sagte Harry. "Ich möchte noch einen Tag leben. Morgen werde ich noch einen weiteren Tag leben wollen. Deshalb will ich ewig leben, Beweis durch Induktion auf die positiven ganzen Zahlen. Wenn du nicht sterben willst, bedeutet das, dass du für immer leben willst. Wenn du nicht ewig leben willst, bedeutet das, dass du sterben willst. Du musst das eine oder das andere tun... Ich komme hier nicht durch, oder? "
+"Ja, und Sie auch", sagte Harry. "Ich möchte noch einen Tag leben. Morgen werde ich noch einen weiteren Tag leben wollen. Deshalb will ich ewig leben, Beweis durch Induktion auf die positiven ganzen Zahlen. Wenn du nicht sterben willst, bedeutet das, dass du für immer leben willst. Wenn du nicht ewig leben willst, bedeutet das, dass du sterben willst. Du musst das eine oder das andere tun... Ich komme hier nicht zu Ihnen durch, oder?"
 
 Die beiden Kulturen starrten sich über eine große Kluft der Unvereinbarkeit hinweg an.
 
-"Ich habe hundertzehn Jahre gelebt", sagte der alte Zauberer leise (er nahm seinen Bart aus der Schüssel und schüttelte ihn, um die Farbe herauszuschütteln). "Ich habe viele Dinge gesehen und getan, von denen ich wünschte, ich hätte sie nie gesehen oder getan. Und doch bereue ich es nicht, am Leben zu sein, denn zu sehen, wie meine Schüler wachsen, ist eine Freude, die mich nicht müde macht. Aber ich würde mir nicht wünschen, so lange zu leben, bis es soweit ist! Was würdest du mit der Ewigkeit machen, Harry?"
+"Ich habe hundertzehn Jahre gelebt", sagte der alte Zauberer leise (er nahm seinen Bart aus dem Goldfischglas und schüttelte ihn, um die Farbe herauszuschütteln). "Ich habe viele Dinge gesehen und getan, von denen ich wünschte, ich hätte sie nie gesehen oder getan. Und doch bereue ich es nicht, am Leben zu sein, denn zu sehen, wie meine Schüler aufwachsen, ist eine Freude, die mich nicht müde macht. Aber ich würde mir nicht wünschen, so lange zu leben, bis es soweit ist! Was würdest du mit der Ewigkeit machen, Harry?"
 
 Harry nahm einen tiefen Atemzug. "Alle interessanten Menschen auf der Welt treffen, alle guten Bücher lesen und dann etwas noch Besseres schreiben, die zehnte Geburtstagsparty meines ersten Enkels auf dem Mond feiern, die hundertste Geburtstagsparty meines ersten Ur-Ur-Ur-Enkels um die Ringe des Saturns herum feiern, die tiefsten und letzten Regeln der Natur lernen, die Natur des Bewusstseins verstehen, herausfinden, warum überhaupt etwas existiert, andere Sterne besuchen, andere Sterne zu besuchen, Außerirdische zu entdecken, Außerirdische zu erschaffen, uns mit allen zu einer Party auf der anderen Seite der Milchstraße zu treffen, wenn wir alles erforscht haben, uns mit allen anderen zu treffen, die auf der alten Erde geboren wurden, um zu sehen, wie die Sonne endlich erlischt, und ich habe mir früher Sorgen gemacht, ob ich einen Weg finden würde, diesem Universum zu entkommen, bevor ihm die Negentropie ausgeht, aber jetzt, wo ich entdeckt habe, dass die sogenannten Gesetze der Physik nur optionale Richtlinien sind, bin ich viel hoffnungsvoller."
 

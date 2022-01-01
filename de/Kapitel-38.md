@@ -1,6 +1,6 @@
-# Kapitel 38: Die Kardinalsünde.
+# Kapitel 38: Die Kardinalsünde
 
-Hell die Sonne, hell die Luft, hell die Schüler und hell ihre Eltern, reinige den gepflasterten Boden von Bahnsteig 9. 75, die Wintersonne, die am Morgen des 5. Januar 1992 um 9:45 Uhr tief am Himmel steht. Einige der jüngeren Schüler trugen Schals und Fäustlinge, aber die meisten trugen einfach ihre Roben; schließlich waren sie Zauberer.
+Hell die Sonne, hell die Luft, hell die Schüler und hell ihre Eltern, sauber der gepflasterte Boden von Bahnsteig 9 dreiviertel, die Wintersonne, die am Morgen des 5. Januar 1992 um 9:45 Uhr tief am Himmel stand. Einige der jüngeren Schüler trugen Schals und Fäustlinge, aber die meisten trugen einfach ihre Roben; schließlich waren sie Zauberer.
 
 Nachdem Harry sich von der Landeplattform entfernt hatte, zog er seinen Schal und seinen Mantel aus, öffnete ein Fach in seinem Kofferraum und verstaute seine Wintersachen.
 
@@ -10,50 +10,50 @@ Harry holte seine Zaubererroben heraus und zog sie an.
 
 Schließlich zog Harry seinen Zauberstab und musste an die Eltern denken, die er gerade erst zum Abschied geküsst hatte, und an die Welt, deren Probleme er hinter sich ließ...
 
-Mit einem seltsamen Gefühl der Schuld für das Unvermeidliche sagte Harry: "_Thermos. _"
+Mit einem seltsamen Gefühl der Schuld für das Unvermeidliche sagte Harry: "_Thermos_"
 
 Die Wärme strömte durch ihn hindurch.
 
-Und der Junge, der gelebt hat, war zurück.
+Und der Jungen-der-lebt, war zurück.
 
 Harry gähnte und streckte sich, denn er fühlte sich am Ende seiner Ferien eher lethargisch als alles andere. Ihm war heute Morgen nicht danach, seine Lehrbücher oder gar ernsthafte Science-Fiction zu lesen; was er brauchte, war etwas völlig Frivoles, um seine Aufmerksamkeit zu beschäftigen...
 
 Nun, das wäre nicht schwer zu bekommen, wenn er bereit wäre, sich von vier Knuts zu trennen.
 
-Außerdem, wenn der _Daily Prophet_ korrupt war und der _Quibbler_ die einzige konkurrierende Zeitung war, könnte es darin einige unterdrückte echte Nachrichten geben.
+Außerdem, wenn der _Daily Prophet_ korrupt war und der _Quibbler_ die einzige konkurrierende Zeitung, könnte es darin einige unterdrückte echte Nachrichten geben.
 
 Harry stapfte zurück zu demselben Zeitungsstand wie beim letzten Mal und fragte sich, ob der _Quibbler_ die Schlagzeile, die er zuvor gesehen hatte, noch toppen konnte.
 
 Der Verkäufer begann zu lächeln, als Harry näher kam, und dann veränderte sich das Gesicht des Mannes plötzlich, als er die Narbe erblickte.
 
-"Harry Potter?", keuchte die Verkäuferin.
+"Harry Potter?", keuchte der Verkäufer.
 
 "Nein, Mr. Durian", sagte Harry und schaute kurz auf das Namensschild des Mannes, "nur eine erstaunliche Imitation -"
 
-Und dann stockte Harrys Stimme in seiner Kehle, als er den oberen Falz des _Quibblers erblickte. _
+Und dann stockte Harrys Stimme in seiner Kehle, als er den oberen Falz des _Quibblers_ erblickte.
 
-_EIN VERLORENER SEHER VERRÄT GEHEIMNISSE:
-DUNKLER HERR KEHRT ZURÜCK,_
+_BETRUNKENER SEHER GIBT GEHEIMNIS PREIS:_
+_DER DUNKLE LORD KEHRT ZURÜCK_
 
 Einen Moment lang versuchte Harry, sein Gesicht zu verbergen, bevor ihm klar wurde, dass es in gewisser Weise genauso aufschlussreich sein könnte, nicht schockiert zu sein.
 
-"Entschuldigt mich", sagte Harry. Seine Stimme klang ein wenig beunruhigt, und er wusste nicht einmal, ob das zu freizügig war, oder wie er normalerweise reagieren würde, wenn er nichts wüsste. Er hatte zu viel Zeit mit Slytherins verbracht und vergaß, wie man Geheimnisse vor normalen Menschen bewahrt. Vier Knuts gehen auf den Tresen. "Ein Exemplar des _Quibbler,_ bitte."
+"Entschuldigen Sie mich", sagte Harry. Seine Stimme klang ein wenig beunruhigt, und er wusste nicht einmal, ob das zu freizügig war, oder wie er normalerweise reagieren würde, wenn er nichts wüsste. Er hatte zu viel Zeit mit Slytherins verbracht und vergaß, wie man Geheimnisse vor normalen Menschen bewahrte. Vier Knuts gingen über den Tresen. "Ein Exemplar des _Quibbler_, bitte."
 
 "Oh, keine Sorge, Mr. Potter!", sagte der Verkäufer hastig und winkte mit den Händen. "Es ist - egal, nur -"
 
 Eine Zeitung flog durch die Luft und traf Harrys Finger, der sie auffaltete.
 
-_SLOSHED SEER SPILLS SECRETS:
-DER DUNKLE LORD KEHRT ZURÜCK,
-HEIRATE DRACO MALFOY_
+_BETRUNKENER SEHER GIBT GEHEIMNIS PREIS:_
+_DER DUNKLE LORD KEHRT ZURÜCK,_
+_UND HEIRATET DRACO MALFOY_
 
-"Es ist kostenlos", sagte der Verkäufer, "für _dich_, meine ich -"
+"Er ist kostenlos", sagte der Verkäufer, "für _Sie_, meine ich -"
 
 "Nein", sagte Harry, "ich wollte sowieso einen kaufen."
 
 Der Verkäufer nahm die Münzen, und Harry las weiter.
 
-"Meine Güte", sagte Harry eine halbe Minute später, "wenn man eine Seherin mit sechs Gläsern Scotch betrunken macht, spuckt sie alles Mögliche aus. Ich meine, wer hätte gedacht, dass Sirius Black und Peter Pettigrew insgeheim dieselbe Person sind?
+"Meine Güte", sagte Harry eine halbe Minute später, "wenn man eine Seherin mit sechs Gläsern Scotch betrunken macht, spuckt sie alles Mögliche aus. Ich meine, wer hätte gedacht, dass Sirius Black und Peter Pettigrew insgeheim dieselbe Person sind?"
 
 "Ich nicht", sagte der Verkäufer.
 
@@ -63,13 +63,13 @@ Der Verkäufer nahm die Münzen, und Harry las weiter.
 
 "Und ich bin insgeheim fünfundsechzig Jahre alt."
 
-"Du siehst nicht halb so gut aus", sagte der Verkäufer freundschaftlich.
+"Sie sehen nicht halb so gut aus", sagte der Verkäufer freundschaftlich.
 
 "Und ich bin mit Hermine Granger verlobt, _und_ Bellatrix Black, _und_ Luna Lovegood, und ach ja, Draco Malfoy auch..."
 
 "Das wird eine interessante Hochzeit", sagte der Verkäufer.
 
-Harry blickte von der Zeitung auf und sagte mit angenehmer Stimme: "Weißt du, zuerst habe ich gehört, dass Luna Lovegood verrückt ist, und ich habe mich gefragt, ob sie es wirklich ist oder ob sie sich nur etwas ausdenkt und die ganze Zeit vor sich hin kichert. Als ich dann meine zweite _Quibbler_-Schlagzeile las, beschloss ich, dass sie nicht verrückt sein konnte, ich meine, es kann nicht _einfach_ sein, sich so etwas auszudenken, man kann es nicht _aus Versehen_ machen. Und _jetzt_ weißt du, was ich denke? Ich glaube, sie muss doch verrückt sein. Wenn gewöhnliche Menschen versuchen, etwas zu erfinden, kommt es nicht so heraus wie _das_ Irgendetwas muss in deinem Kopf wirklich _falsch_ laufen, bevor _das_ herauskommt, wenn du anfängst, dir etwas auszudenken!"
+Harry blickte von der Zeitung auf und sagte mit angenehmer Stimme: "Wissen Sie, zuerst habe ich gehört, dass Luna Lovegood verrückt ist, und ich habe mich gefragt, ob sie es wirklich ist oder ob sie sich nur etwas ausdenkt und die ganze Zeit vor sich hin kichert. Als ich dann meine zweite _Quibbler_-Schlagzeile las, beschloss ich, dass sie nicht verrückt sein konnte, ich meine, es kann nicht _einfach_ sein, sich so etwas auszudenken, man kann es nicht _aus Versehen_ machen. Und _jetzt_ wissen Sie, was ich denke? Ich glaube, sie muss doch verrückt sein. Wenn gewöhnliche Menschen versuchen, etwas zu erfinden, kommt es nicht so heraus wie _das_. Irgendetwas muss in deinem Kopf wirklich _falsch_ laufen, bevor _das_ herauskommt, wenn man anfängt, sich etwas auszudenken!"
 
 Der Verkäufer starrte Harry an.
 
@@ -87,7 +87,7 @@ Also suchte sich Harry einen kleinen Eisenstuhl, weit weg von der großen Mensch
 
 Und abgesehen von den offensichtlichen Verrücktheiten (der Himmel möge ihnen allen helfen, wenn irgendetwas davon wahr wäre) gab es eine Menge abfälligen romantischen Klatsch, aber nichts, was wirklich wichtig wäre, wenn es wahr wäre.
 
-Harry las gerade über das vom Ministerium vorgeschlagene Ehegesetz, das alle Ehen verbieten sollte, als -.
+Harry las gerade über das vom Ministerium vorgeschlagene Ehegesetz, das alle Ehen verbieten sollte, als -
 
 "Harry Potter", sagte eine seidige Stimme, die einen Adrenalinstoß durch Harrys Blut jagte.
 
@@ -95,47 +95,47 @@ Harry sah auf.
 
 "Lucius Malfoy", sagte Harry mit müder Stimme. Nächstes Mal würde er es schlau anstellen und draußen im Muggelviertel von King's Cross bis 10:55 Uhr warten.
 
-Lucius neigte höflich den Kopf und ließ sein langes weißes Haar über seine Schultern fallen. Der Mann trug immer noch denselben Stock, schwarz lackiert und mit einem silbernen Schlangenkopf als Griff; und etwas an seinem Griff sagte leise: _Dies ist eine Waffe mit tödlicher Kraft,_ nicht _ich bin schwach und stütze mich darauf. Sein Gesicht war ausdruckslos.
+Lucius neigte höflich den Kopf und ließ sein langes weißes Haar über seine Schultern fallen. Der Mann trug immer noch denselben Stock, schwarz lackiert und mit einem silbernen Schlangenkopf als Griff; und etwas an seinem Griff sagte leise: _Dies ist eine Waffe mit tödlicher Kraft_, nicht _ich bin schwach und stütze mich darauf_. Sein Gesicht war ausdruckslos.
 
 Zwei Männer flankierten ihn, ihre Augen tasteten ihn ständig ab, ihre Zauberstäbe schon tief in den Händen. Die beiden bewegten sich wie ein einziger Organismus mit vier Beinen und vier Armen, der ältere Crabbe und Goyle, und Harry dachte, er könnte erraten, wer wer war, aber das war eigentlich egal. Sie waren nur Lucius' Anhängsel, so sicher, als wären sie die beiden rechten Zehen an seinem linken Fuß.
 
-"Ich entschuldige mich dafür, dass ich Sie gestört habe, Mr. Potter", sagte die sanfte, seidige Stimme. "Aber du hast auf keine meiner Eulen geantwortet, und ich dachte, dies wäre meine einzige Gelegenheit, dich zu treffen."
+"Ich entschuldige mich dafür, dass ich Sie gestört habe, Mr. Potter", sagte die sanfte, seidige Stimme. "Aber Sie haben auf keine meiner Eulen geantwortet, und ich dachte, dies wäre meine einzige Gelegenheit, Sie zu treffen."
 
-"Ich habe keine deiner Eulen erhalten", sagte Harry ruhig. "Dumbledore hat sie abgefangen, nehme ich an. Aber ich hätte sie nicht beantwortet, wenn ich es nicht durch Draco getan hätte. Wenn ich mich ohne Dracos Wissen direkt an dich wende, würde das unsere Freundschaft verletzen."
+"Ich habe keine Ihrer Eulen erhalten", sagte Harry ruhig. "Dumbledore hat sie abgefangen, nehme ich an. Aber ich hätte sie nicht beantwortet, wenn ich es nicht durch Draco getan hätte. Wenn ich mich ohne Dracos Wissen direkt an Sie wende, würde das unsere Freundschaft verletzen."
 
-_Bitte geh weg, bitte geh weg... _
+_Bitte geh weg, bitte geh weg..._
 
-Die grauen Augen funkelten ihn an. "Das ist also deine Pose... ", sagte der ältere Malfoy. "Nun. Ich werde ein bisschen mitspielen. Was hast du bezweckt, als du deinen guten Freund, meinen Sohn, in ein öffentliches Bündnis mit diesem Mädchen hineinmanövriert hast?"
+Die grauen Augen funkelten ihn an. "Das ist also Ihre Pose... ", sagte der ältere Malfoy. "Nun. Ich werde ein bisschen mitspielen. Was haben Sie bezweckt, als Sie Ihren guten Freund, meinen Sohn, in ein öffentliches Bündnis mit diesem Mädchen hineinmanövriert haben?"
 
 "Oh", sagte Harry leichthin, "das ist doch klar, oder? Wenn Draco mit Granger zusammenarbeitet, wird er erkennen, dass Muggelgeborene doch Menschen sind. Bwa. Ha. Ha."
 
-Eine dünne Spur eines Lächelns wanderte über Lucius' Lippen. "Ja, das klingt nach einem von Dumbledores Plänen. Was sie _nicht_ ist."
+Eine dünne Spur eines Lächelns wanderte über Lucius' Lippen. "Ja, das klingt nach einem von Dumbledores Plänen. Was er _nicht_ ist."
 
 "In der Tat", sagte Harry. "Es ist Teil meines Spiels mit Draco und kein Werk von Dumbledore, und das ist alles, was ich sagen werde."
 
-"Lassen wir die Spielchen sein", sagte der ältere Malfoy und seine grauen Augen wurden plötzlich hart. "Wenn mein Verdacht stimmt, würdest du ohnehin kaum Dumbledores Willen erfüllen, _Mr. Potter. _"
+"Lassen wir die Spielchen sein", sagte der ältere Malfoy und seine grauen Augen wurden plötzlich hart. "Wenn mein Verdacht stimmt, würden Sie ohnehin kaum Dumbledores Willen erfüllen, _Mr. Potter_."
 
 Es gab eine kleine Pause.
 
-"Damit du es weißt", sagte Harry mit kalter Stimme. "Sag es mir. An welchem Punkt genau hast du es gemerkt?"
+"Dann wissen Sie es.", sagte Harry mit kalter Stimme. "Sagen Sie mir. An welchem Punkt genau haben Sie es gemerkt?"
 
-"Als ich deine Antwort auf Professor Quirrells kleine Rede las", sagte der weißhaarige Mann und kicherte grimmig. "Zuerst war ich verwirrt, denn es schien nicht in deinem eigenen Interesse zu sein; ich brauchte Tage, um zu verstehen, in wessen Interesse das geschah, und dann wurde es mir endlich klar. Und es ist auch offensichtlich, dass du in mancher Hinsicht schwach bist, wenn nicht sogar in anderen."
+"Als ich Ihre Antwort auf Professor Quirrells kleine Rede las", sagte der weißhaarige Mann und kicherte grimmig. "Zuerst war ich verwirrt, denn es schien nicht in Ihrem eigenen Interesse zu sein; ich brauchte Tage, um zu verstehen, in wessen Interesse das geschah, und dann wurde es mir endlich klar. Und es ist auch offensichtlich, dass Sie in mancher Hinsicht schwach sind, wenn nicht sogar in anderen."
 
-"Sehr clever von dir", sagte Harry, dem immer noch kalt war. "Aber vielleicht verstehst du meine Interessen falsch."
+"Sehr clever von Ihnen", sagte Harry, dem immer noch kalt war. "Aber vielleicht verstehen Sie meine Interessen falsch."
 
-"Vielleicht tue ich das. "Ein Hauch von Stahl kam in die seidige Stimme. "Ja, genau das befürchte ich. Du spielst seltsame Spiele mit meinem Sohn, deren Zweck ich nicht erraten kann. Das ist kein freundlicher Akt, und du kannst nicht erwarten, dass ich mir Sorgen mache!"
+"Vielleicht tue ich das." Ein Hauch von Stahl kam in die seidige Stimme. "Ja, genau das befürchte ich. Sie spielen seltsame Spiele mit meinem Sohn, deren Zweck ich nicht erraten kann. Das ist kein freundlicher Akt, und Sie können nicht erwarten, dass ich mir keine Sorgen mache!"
 
 Lucius stützte sich jetzt mit beiden Händen auf seinen Stock, und beide Hände waren weiß, und seine Leibwächter hatten sich plötzlich angespannt.
 
-Irgendein Instinkt in Harry sagte, dass es eine sehr schlechte Idee wäre, seine Angst zu zeigen, damit Lucius sah, dass er sich einschüchtern ließ. Sie waren sowieso in einem öffentlichen Bahnhof -.
+Irgendein Instinkt in Harry sagte, dass es eine sehr schlechte Idee wäre, seine Angst zu zeigen, damit Lucius sah, dass er sich einschüchtern ließ. Sie waren sowieso in einem öffentlichen Bahnhof.
 
-"Ich finde es interessant", sagte Harry und legte Stahl in seine Stimme, "dass du denkst, ich könnte davon profitieren, Draco zu schaden. Aber das ist unwichtig, Lucius. Er ist mein Freund, und ich verrate meine Freunde nicht."
+"Ich finde es interessant", sagte Harry und legte Stahl in seine Stimme, "dass Sie denken, ich könnte davon profitieren, Draco zu schaden. Aber das ist unwichtig, Lucius. Er ist mein Freund, und ich verrate meine Freunde nicht."
 
 "_Was?_ ", flüsterte Lucius. Sein Gesicht zeigte den blanken Schock.
 
-Dann -.
+Dann...
 
-"Kompanie", sagte einer der Lakaien, und Harry erkannte an der Stimme, dass es der ältere Crabbe sein musste.
+"Gesellschaft", sagte einer der Lakaien, und Harry erkannte an der Stimme, dass es der ältere Crabbe sein musste.
 
 Lucius richtete sich auf und drehte sich um, dann stieß er ein missbilligendes Zischen aus.
 
@@ -145,7 +145,7 @@ Neville näherte sich mit einem ängstlichen, aber entschlossenen Blick, im Schl
 
 "Mr. Malfoy", erwiderte die Frau ebenso eisig. "Bist du unserem Harry Potter ein Dorn im Auge?"
 
-Das bellende Lachen, das Lucius ausstieß, wirkte seltsam bitter. "Oh, ich glaube eher nicht. Du bist gekommen, um ihn vor mir zu beschützen, oder?"Der weißhaarige Kopf bewegte sich zu Neville. "Und das ist Mr. Potters treuer Leutnant, der letzte Spross der Familie Longbottom, Neville, selbsternannt vom Chaos. Wie seltsam sich die Welt doch dreht. Manchmal denke ich, dass das alles verrückt sein muss."
+Das bellende Lachen, das Lucius ausstieß, wirkte seltsam bitter. "Oh, ich glaube eher nicht. Du bist gekommen, um ihn vor mir zu beschützen, oder?" Der weißhaarige Kopf bewegte sich zu Neville. "Und das ist Mr. Potters treuer Leutnant, der letzte Spross der Familie Longbottom, Neville, selbsternannt vom Chaos. Wie seltsam sich die Welt doch dreht. Manchmal denke ich, dass das alles verrückt sein muss."
 
 Harry wusste gar nicht, was er darauf antworten sollte, und Neville sah verwirrt und verängstigt aus.
 
@@ -155,9 +155,9 @@ Harry wusste gar nicht, was er darauf antworten sollte, und Neville sah verwirrt
 
 "_Was?_ ", platzte Neville heraus.
 
-"Ich war unter dem _Imperius_, junger Mann", sagte Lucius und klang nun müde. "Der Dunkle Lord hätte ohne die Unterstützung des Hauses Malfoy kaum mit der Rekrutierung unter den reinblütigen Familien beginnen können. Ich lehnte ab, und er vergewisserte sich einfach bei mir. Seine eigenen Todesser wussten es erst danach, daher trage ich das falsche Zeichen. Da ich aber nicht wirklich eingewilligt habe, bindet es mich nicht. Einige der Todesser glauben immer noch, dass ich der Erste unter ihnen war, und für den Frieden dieser Nation habe ich sie in diesem Glauben gelassen, um sie unter Kontrolle zu halten. Aber ich war nicht so dumm, diesen unglücklichen Abenteurer meiner Wahl zu unterstützen"
+"Ich war unter dem _Imperius_, junger Mann", sagte Lucius und klang nun müde. "Der Dunkle Lord hätte ohne die Unterstützung des Hauses Malfoy kaum mit der Rekrutierung unter den reinblütigen Familien beginnen können. Ich lehnte ab, und er vergewisserte sich einfach meiner. Seine eigenen Todesser wussten es erst danach, daher trage ich das falsche Zeichen. Da ich aber nicht wirklich eingewilligt habe, bindet es mich nicht. Einige der Todesser glauben immer noch, dass ich der Erste unter ihnen war, und für den Frieden dieser Nation habe ich sie in diesem Glauben gelassen, um sie unter Kontrolle zu halten. Aber ich war nicht so dumm, diesen unglücklichen Abenteurer meiner Wahl zu unterstützen."
 
-"Ignoriere ihn", sagte Madam Longbottom, wobei die Anweisung sowohl an Harry als auch an Neville gerichtet war. "Er muss sich für den Rest seines Lebens verstellen, aus Angst vor deiner Aussage unter Veritaserum. "Sagte er mit hämischer Zufriedenheit.
+"Ignoriere ihn", sagte Madam Longbottom, wobei die Anweisung sowohl an Harry als auch an Neville gerichtet war. "Er muss sich für den Rest seines Lebens verstellen, aus Angst vor eurer Aussage unter Veritaserum." Sagte er mit hämischer Zufriedenheit.
 
 Lucius drehte ihr abweisend den Rücken zu und wandte sich wieder Harry zu. "Würden Sie diese Schlampe bitten zu gehen, _Mr. Potter?_"
 
@@ -165,7 +165,7 @@ Lucius drehte ihr abweisend den Rücken zu und wandte sich wieder Harry zu. "Wü
 
 Dann gab es eine lange Pause. Die grauen Augen suchten ihn ab.
 
-"Natürlich... ", sagte Lucius langsam. "Ich fühle mich jetzt wie ein Narr. Die ganze Zeit hast du nur so getan, als wüsstest du nicht, worüber wir reden."
+"Natürlich...", sagte Lucius langsam. "Ich fühle mich jetzt wie ein Narr. Die ganze Zeit haben Sie nur so getan, als wüssten Sie nicht, worüber wir reden."
 
 Harry begegnete dem Blick, sagte aber nichts.
 
@@ -173,7 +173,7 @@ Lucius hob seinen Stock ein paar Zentimeter an und schlug ihn hart auf den Boden
 
 Die Welt verschwand in einem blassen Dunst, alle Geräusche verstummten, es gab nichts im Universum außer Harry und Lucius Malfoy und dem schlangenköpfigen Stock.
 
-"Mein Sohn ist mein Herz", sagte der ältere Malfoy, "das letzte Wertvolle, das ich auf dieser Welt noch habe, und das sage ich dir im Geiste der Freundschaft: Wenn er zu Schaden käme, würde ich mein Leben der Rache opfern. Aber solange mein Sohn _nicht_ zu Schaden kommt, wünsche ich dir viel Glück bei deinen Unternehmungen. Und da du nichts mehr von mir verlangt hast, werde ich auch nichts mehr von dir verlangen."
+"Mein Sohn ist mein Herz", sagte der ältere Malfoy, "das letzte Wertvolle, das ich auf dieser Welt noch habe, und das sage ich Ihnen im Geiste der Freundschaft: Wenn er zu Schaden käme, würde ich mein Leben der Rache opfern. Aber solange mein Sohn _nicht_ zu Schaden kommt, wünsche ich Ihnen viel Glück bei euren Unternehmungen. Und da Sie nichts mehr von mir verlangt haben, werde ich auch nichts mehr von Ihnen verlangen."
 
 Dann verschwand der blasse Schleier und zeigte eine empörte Madam Longbottom, die von dem älteren Crabbe daran gehindert wurde, sich vorwärts zu bewegen; ihr Zauberstab war jetzt in ihrer Hand.
 
@@ -201,7 +201,7 @@ Auf Nevilles Stirn stand der Schweiß.
 
 Neville stöhnte, sagte aber nichts.
 
-Madam Longbottom gluckste. "Das werde ich, junger Mann, danke. "Ihre Stimme wurde leiser. "Mr. Potter... die Rede von Professor Quirrell ist etwas, das unsere Nation schon lange hören musste. So viel kann ich zu deinem Kommentar nicht sagen."
+Madam Longbottom gluckste. "Das werde ich, junger Mann, danke." Ihre Stimme wurde leiser. "Mr. Potter... die Rede von Professor Quirrell ist etwas, das unsere Nation schon lange hören musste. So viel kann ich zu deinem Kommentar nicht sagen."
 
 "Ich werde über deine Meinung nachdenken", sagte Harry milde.
 
@@ -223,15 +223,15 @@ Draco sah _sehr_ besorgt aus. Sein Kopf flog immer wieder herum, obwohl Draco da
 
 "_Was_ hast du zu Vater gesagt?", platzte Draco heraus, als der Ruhezauber wirkte und die Geräusche von Gleis 9 3/4 verschwanden.
 
-"I... Kannst du mir sagen, was er zu dir gesagt hat, bevor er dich abgesetzt hat?", sagte Harry.
+"Ich... Kannst du mir sagen, was er zu dir gesagt hat, bevor er dich abgesetzt hat?", sagte Harry.
 
-"Dass ich es ihm sofort sagen soll, wenn du mich zu bedrohen scheinst", sagte Draco. "Dass ich ihm sofort sagen soll, wenn _ich_ irgendetwas tue, das _dich_ bedrohen könnte!_ Vater hält dich für _gefährlich,_ Harry, was immer du heute zu ihm gesagt hast, hat ihn _ängstlich_ gemacht! Es ist keine gute Idee, Vater zu ängstigen!_ "
+"Dass ich es ihm sofort sagen soll, wenn du mich zu bedrohen scheinst", sagte Draco. "Dass ich ihm sofort sagen soll, wenn _ich_ irgendetwas tue, das _dich_ bedrohen könnte!_ Vater hält dich für _gefährlich,_ Harry, was immer du heute zu ihm gesagt hast, hat ihn _ängstlich_ gemacht! Es ist keine gute Idee, Vater zu verängstigen!"
 
-_Oh, verdammt... _
+_Oh, verdammt..._
 
 "Worüber habt ihr gesprochen?", fragte Draco.
 
-Harry lehnte sich müde in dem kleinen Klappstuhl zurück, der unten in der Höhle seines Koffers stand. "Weißt du, Draco, so wie die Grundfrage der Rationalität lautet: 'Was glaube ich zu wissen und woher glaube ich es zu wissen?', gibt es auch eine Kardinalsünde, eine Art zu denken, die das Gegenteil davon ist. Wie die alten griechischen Philosophen. Sie hatten keine Ahnung, was vor sich ging, also sagten sie Dinge wie "Alles ist Wasser"oder "Alles ist Feuer", ohne sich zu fragen: "Moment mal, selbst wenn alles _Wasser_ ist, wie kann ich das wissen? Sie fragten sich nicht, ob sie Beweise hatten, die _diese_ Möglichkeit von allen _anderen_ Möglichkeiten, die man sich vorstellen kann, unterschieden, Beweise, auf die sie sehr wahrscheinlich nicht stoßen würden, wenn die Theorie _nicht_ wahr wäre -"
+Harry lehnte sich müde in dem kleinen Klappstuhl zurück, der unten in der Höhle seines Koffers stand. "Weißt du, Draco, so wie die Grundfrage der Rationalität lautet: 'Was glaube ich zu wissen und woher glaube ich es zu wissen?', gibt es auch eine Kardinalsünde, eine Art zu denken, die das Gegenteil davon ist. Wie die alten griechischen Philosophen. Sie hatten keine Ahnung, was vor sich ging, also sagten sie Dinge wie "Alles ist Wasser" oder "Alles ist Feuer", ohne sich zu fragen: "Moment mal, selbst wenn alles _Wasser_ ist, wie kann ich das wissen? Sie fragten sich nicht, ob sie Beweise hatten, die _diese_ Möglichkeit von allen _anderen_ Möglichkeiten, die man sich vorstellen kann, unterschiedet. Beweise, auf die sie sehr wahrscheinlich nicht stoßen würden, wenn die Theorie _nicht_ wahr wäre -"
 
 "_Harry_", sagte Draco mit angestrengter Stimme, "_Worüber hast du mit Vater gesprochen?_"
 
