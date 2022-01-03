@@ -118,6 +118,8 @@ async function run() {
       .replaceAll('Soldiers', 'Soldaten')
       .replaceAll('Breaking Drill', 'Brechbohrer')
       .replaceAll('\{\\an8\}', '_')
+      .replaceAll('Mr. Direktor', 'Herr Direktor')
+      .replaceAll('Mr. Schulleiter', 'Herr Direktor')
       .replaceAll('Jungen, der lebte', 'Jungen-der-lebt')
       .concat(`\n\n→ [Kapitel ${nextChapter}](Kapitel-${nextChapter}.md)\n`);
     console.log("\n\n\n");
