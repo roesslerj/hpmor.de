@@ -38,10 +38,10 @@ Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier ein
 - [Kapitel 34](Kapitel-34.md): Siegerehrung und Ansprachen
 - [Kapitel 35](Kapitel-35.md): Nachspiele der letzten Schlacht vor Weihnachten
 - [Kapitel 36](Kapitel-36.md): Winterferien und Weihnachtsessen bei den Grangers
-- [Kapitel 37](Kapitel-37.md): 
-- [Kapitel 38](Kapitel-38.md): 
-- [Kapitel 39](Kapitel-39.md): 
-- [Kapitel 40](Kapitel-40.md): 
+- [Kapitel 37](Kapitel-37.md): Der Weihnachtsbesuch von Prof. Quirrell
+- [Kapitel 38](Kapitel-38.md): Harry trifft am Bahnsteig auf Lucius Malfoy
+- [Kapitel 39](Kapitel-39.md): Diskussion über das Leben nach dem Tod mit Dumbledore
+- [Kapitel 40](Kapitel-40.md): Diskussion über das Leben nach dem Tod mit Quirrel
 - [Kapitel 41](Kapitel-41.md): 
 - [Kapitel 42](Kapitel-42.md): 
 - [Kapitel 43](Kapitel-43.md): 

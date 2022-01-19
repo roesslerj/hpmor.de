@@ -186,7 +186,7 @@ Der alte Zauberer schaute Harry immer noch über ein fummeliges Ding hinweg an, 
 
 Nun, weise zu klingen war nicht schwer. Es war viel einfacher, als intelligent zu sein, denn du musstest nichts Überraschendes sagen oder neue Erkenntnisse gewinnen. Du lässt einfach die Software deines Gehirns das Klischee vervollständigen, indem du die tiefe Weisheit nutzt, die du zuvor gespeichert hast.
 
-"Schulleiter", sagte Harry feierlich, "ich möchte mich nicht über meine Feinde definieren."
+"Herr Direktor", sagte Harry feierlich, "ich möchte mich nicht über meine Feinde definieren."
 
 Irgendwie herrschte sogar inmitten all des Surren und Tickens eine Art Stille.
 
@@ -248,7 +248,7 @@ Der Schulleiter starrte ihn an, als ob er sich gerade in eine Katze verwandelt h
 
 "Wenn es Zeit ist", sagte der alte Zauberer leise. "Nicht vorher. Ich würde nie versuchen, den Tag zu beschleunigen oder ihn abzulehnen, wenn er kommt."
 
-Harry runzelte ernsthaft die Stirn. "Das hört sich nicht so an, als ob Sie einen starken Lebenswillen hätten, Schulleiter!"
+Harry runzelte ernsthaft die Stirn. "Das hört sich nicht so an, als ob Sie einen starken Lebenswillen hätten, Herr Direktor!"
 
 "Harry... " Die Stimme des alten Zauberers klang allmählich etwas hilflos, und er war zu einer Stelle geschritten, an der sein silberner Bart unbemerkt in ein gläsernes Goldfischglas gewandert war und langsam eine grünliche Färbung annahm, die an den Haaren hochkroch. "Ich glaube, ich habe mich nicht klar ausgedrückt. Dunkle Zauberer sind nicht erpicht darauf zu leben. Sie _fürchten den Tod_. Sie strecken sich nicht nach dem Licht der Sonne aus, sondern fliehen vor dem Anbruch der Nacht in unendlich dunklere Höhlen, die sie selbst geschaffen haben, ohne Mond und Sterne. Sie wollen nicht das Leben, sondern die _Unsterblichkeit_, und sie sind so versessen darauf, sie zu erreichen, dass sie ihre Seele opfern! Willst du _für immer_ leben, Harry?"
 
@@ -260,51 +260,51 @@ Die beiden Kulturen starrten sich über eine große Kluft der Unvereinbarkeit hi
 
 Harry nahm einen tiefen Atemzug. "Alle interessanten Menschen auf der Welt treffen, alle guten Bücher lesen und dann etwas noch Besseres schreiben, die zehnte Geburtstagsparty meines ersten Enkels auf dem Mond feiern, die hundertste Geburtstagsparty meines ersten Ur-Ur-Ur-Enkels um die Ringe des Saturns herum feiern, die tiefsten und letzten Regeln der Natur lernen, die Natur des Bewusstseins verstehen, herausfinden, warum überhaupt etwas existiert, andere Sterne besuchen, andere Sterne zu besuchen, Außerirdische zu entdecken, Außerirdische zu erschaffen, uns mit allen zu einer Party auf der anderen Seite der Milchstraße zu treffen, wenn wir alles erforscht haben, uns mit allen anderen zu treffen, die auf der alten Erde geboren wurden, um zu sehen, wie die Sonne endlich erlischt, und ich habe mir früher Sorgen gemacht, ob ich einen Weg finden würde, diesem Universum zu entkommen, bevor ihm die Negentropie ausgeht, aber jetzt, wo ich entdeckt habe, dass die sogenannten Gesetze der Physik nur optionale Richtlinien sind, bin ich viel hoffnungsvoller."
 
-"Ich habe nicht viel davon verstanden", sagte Dumbledore. "Aber ich muss dich fragen, ob das Dinge sind, die du wirklich so verzweifelt begehrst, oder ob du sie dir nur einbildest, um nicht müde zu werden, während du vor dem Tod davonläufst."
+"Ich habe nicht viel davon verstanden", sagte Dumbledore. "Aber ich muss dich fragen, ob das Dinge sind, die du wirklich verzweifelt begehrst, oder ob du sie dir nur wünschst, um nicht müde zu werden, während du vor dem Tod davonläufst."
 
-"Das Leben ist keine endliche Liste von Dingen, die du abhaken kannst, bevor du sterben darfst", sagte Harry fest. "So ist das Leben, man muss es einfach weiterleben. Wenn ich diese Dinge nicht tue, dann weil ich etwas Besseres gefunden habe."
+"Das Leben ist keine endliche Liste von Dingen, die du abhakst, bevor du sterben darfst", sagte Harry fest. "So ist das Leben, man muss es einfach weiterleben. Wenn ich diese Dinge nicht tue, dann weil ich etwas Besseres gefunden habe."
 
 Dumbledore seufzte. Seine Finger trommelten auf eine Uhr; als sie sie berührten, verwandelten sich die Ziffern in eine unleserliche Schrift und die Zeiger erschienen kurz in verschiedenen Positionen. "Für den unwahrscheinlichen Fall, dass es mir erlaubt wird, bis hundertfünfzig zu bleiben", sagte der alte Zauberer, "glaube ich nicht, dass es mir etwas ausmachen würde. Aber zweihundert Jahre wären einfach zu viel des Guten."
 
-"Ja, nun", sagte Harry, dessen Stimme etwas trocken klang, als er an seine Mama und Papa und _ihre_ zugewiesene Lebensspanne dachte, wenn Harry nichts dagegen unternahm, "ich vermute, Schulleiter, dass, wenn du aus einer Kultur kommst, in der die Menschen daran gewöhnt sind, vierhundert Jahre alt zu werden, dir der Tod mit zweihundert genauso tragisch verfrüht vorkommen würde wie der Tod mit, sagen wir, _achtzig_ "Harrys Stimme wurde bei diesem letzten Wort hart.
+"Ja, nun", sagte Harry, dessen Stimme etwas trocken klang, als er an seine Mama und Papa und _ihre_ zugewiesene Lebensspanne dachte, wenn Harry nichts dagegen unternahm, "ich vermute, Herr Direktor, dass, wenn man aus einer Kultur kommt, in der die Menschen daran gewöhnt sind, vierhundert Jahre alt zu werden, einem der Tod mit zweihundert genauso tragisch verfrüht vorkommen würde wie der Tod mit, sagen wir, _achtzig_." Harrys Stimme wurde bei diesem letzten Wort hart.
 
-"Vielleicht", sagte der alte Zauberer friedlich. "Ich möchte nicht vor meinen Freunden sterben und auch nicht weiterleben, wenn sie nicht mehr da sind. Am schwersten ist es, wenn die, die du am meisten geliebt hast, vor dir gegangen sind, und andere noch leben, um derentwillen du bleiben musst... "Dumbledores Blick war auf Harry gerichtet und wurde immer trauriger. "Trauere nicht zu sehr um mich, Harry, wenn meine Zeit gekommen ist; ich werde bei denen sein, die ich lange vermisst habe, bei unserem nächsten großen Abenteuer."
+"Vielleicht", sagte der alte Zauberer friedlich. "Ich möchte nicht vor meinen Freunden sterben und auch nicht weiterleben, wenn sie nicht mehr da sind. Am schwersten ist es, wenn die, die du am meisten geliebt hast, vor dir gegangen sind, und andere noch leben, um derentwillen du bleiben musst..." Dumbledores Blick war auf Harry gerichtet und wurde immer trauriger. "Trauere nicht zu sehr um mich, Harry, wenn meine Zeit gekommen ist; ich werde bei denen sein, die ich lange vermisst habe, bei unserem nächsten großen Abenteuer."
 
-"Oh!", sagte Harry in plötzlicher Erkenntnis. "Du glaubst an ein _Jenseitsleben_ Ich hatte den Eindruck, dass Zauberer keine Religion haben?"
+"Oh!", sagte Harry in plötzlicher Erkenntnis. "Du glaubst an ein _Jenseits_. Ich hatte den Eindruck, dass Zauberer keine Religion haben?"
 
 * * *
 
-Toot. Piep. Aufprall.
+Tuht. Piep. Boing. Klatsch. Bums.
 
-"Wie kannst du das nicht glauben?", sagte der Schulleiter und sah völlig verblüfft aus. "_Harry, du bist ein Zauberer! Du hast Gespenster gesehen!_ "
+"Wie kannst du das nicht glauben?", sagte der Schulleiter und sah völlig verblüfft aus. "_Harry, du bist ein Zauberer! Du hast Gespenster gesehen!_"
 
-"Geister", sagte Harry, seine Stimme war flach. "Du meinst solche Dinge wie Porträts, gespeicherte Erinnerungen und Verhaltensweisen ohne Bewusstsein oder Leben, die durch den Ausbruch von Magie, der den gewaltsamen Tod eines Zauberers begleitet, versehentlich in das umgebende Material eingeprägt werden -"
+"Geister?", sagte Harry, seine Stimme war flach. "Sie meinen solche Dinge wie Porträts, gespeicherte Erinnerungen und Verhaltensweisen ohne Bewusstsein oder Leben, die durch den Ausbruch von Magie, der den gewaltsamen Tod eines Zauberers begleitet, versehentlich in das umgebende Material eingeprägt werden -"
 
-"Ich habe diese Theorie schon gehört", sagte der Schulleiter mit scharfer Stimme, "sie wird von Zauberern wiederholt, die Zynismus mit Weisheit verwechseln und denken, dass sie sich selbst erhöhen, wenn sie auf andere herabschauen. Das ist eine der dümmsten Ideen, die ich seit hundertzehn Jahren gehört habe! Ja, Geister lernen nicht und wachsen nicht, weil sie hier nicht hingehören!_ Die Seelen sollen weiterziehen, hier gibt es kein Leben mehr für sie!_ Und wenn nicht die Geister, was ist dann mit dem Schleier? Was ist mit dem Stein der Auferstehung?"
+"Ich habe diese Theorie schon gehört", sagte der Schulleiter mit scharfer Stimme, "sie wird von Zauberern wiederholt, die Zynismus mit Weisheit verwechseln und denken, dass sie sich selbst erhöhen, wenn sie auf andere herabschauen. Das ist eine der dümmsten Ideen, die ich seit hundertzehn Jahren gehört habe! Ja, Geister lernen nicht und wachsen nicht, weil sie hier nicht hingehören! _Die Seelen sollen weiterziehen, hier gibt es kein Leben mehr für sie!_ Und wenn nicht die Geister, was ist dann mit dem Schleier? Was ist mit dem Stein der Auferstehung?"
 
-"In Ordnung", sagte Harry und versuchte, seine Stimme ruhig zu halten, "ich werde mir deine Beweise anhören, denn _das ist es, was ein Wissenschaftler tut. Aber zuerst, Mr. Direktor, möchte ich dir eine kleine Geschichte erzählen. "Harrys Stimme zitterte. "Wissen Sie, als ich hier ankam, als ich in King's Cross aus dem Zug stieg, ich meine nicht gestern, sondern im September, als ich damals aus dem Zug stieg, Mr. Direktor, hatte ich noch nie einen Geist gesehen. Ich habe keine Geister _erwartet_ Als ich sie gesehen habe, habe ich etwas wirklich Dummes gemacht, Mr. Direktor. Ich _zog voreilige Schlüsse. Ich dachte, es gäbe ein Leben nach dem Tod, ich dachte, dass niemand jemals wirklich gestorben ist, ich dachte, dass es allen, die die Menschheit jemals verloren hat, wirklich gut geht, ich dachte, dass Zauberer mit den Verstorbenen sprechen können, dass es nur den richtigen Zauber braucht, um sie herbeizurufen, dass Zauberer das tun können, ich dachte, ich könnte meine Eltern treffen, die für mich gestorben sind, und ihnen sagen, dass ich von ihrem Opfer gehört habe und dass ich angefangen habe, sie meine Mutter und meinen Vater zu nennen -"
+"In Ordnung", sagte Harry und versuchte, seine Stimme ruhig zu halten, "ich werde mir Ihre Beweise anhören, denn _das ist es, was ein Wissenschaftler tut_. Aber zuerst, Herr Direktor, möchte ich Ihnen eine kleine Geschichte erzählen." Harrys Stimme zitterte. "Wissen Sie, als ich hier ankam, als ich in King's Cross aus dem Zug stieg, ich meine nicht gestern, sondern im September, als ich damals aus dem Zug stieg, Herr Direktor, hatte ich noch nie einen Geist gesehen. Ich habe keine Geister _erwartet_. Als ich sie gesehen habe, habe ich etwas wirklich Dummes gemacht, Herr Direktor. Ich _zog voreilige Schlüsse_. Ich dachte, es gäbe ein Leben nach dem Tod, ich dachte, dass niemand jemals wirklich gestorben ist, ich dachte, dass es allen, die die Menschheit jemals verloren hat, wirklich gut geht, ich dachte, dass Zauberer mit den Verstorbenen sprechen können, dass es nur den richtigen Zauber braucht, um sie herbeizurufen, dass Zauberer das tun können, ich dachte, ich könnte meine Eltern treffen, die für mich gestorben sind, und ihnen sagen, dass ich von ihrem Opfer gehört habe und dass ich angefangen habe, sie meine Mutter und meinen Vater zu nennen -"
 
 "Harry", flüsterte Dumbledore. Wasser glitzerte in den Augen des alten Zauberers. Er ging einen Schritt näher durch das Büro -.
 
-"Und _dann,_"spuckte Harry, die Wut kam voll in seine Stimme, die kalte Wut auf das Universum, weil es so war, und auf sich selbst, weil er so dumm war, "fragte ich Hermine und sie sagte, dass es nur _Nachbilder_ waren, die durch den Tod eines Zauberers in den Stein des Schlosses gebrannt wurden, wie die Silhouetten, die an den Wänden von Hiroshima zurückgeblieben sind. Und ich hätte es wissen müssen! Ich hätte es wissen müssen, ohne überhaupt fragen zu müssen! Ich hätte es nicht einmal dreißig Sekunden lang glauben dürfen! Denn wenn Menschen eine Seele hätten, gäbe es keine Hirnschäden. Wenn deine Seele weiter sprechen könnte, obwohl dein ganzes Gehirn weg ist, wie könnte dann eine Schädigung der linken Gehirnhälfte dir die Fähigkeit zu sprechen nehmen? Und als Professor McGonagall mir vom Tod meiner Eltern erzählte, tat sie nicht so, als wären sie gerade auf eine lange Reise in ein anderes Land gegangen, als wären sie in der Zeit der Segelschiffe nach Australien ausgewandert, so wie sich die Leute verhalten würden, wenn sie _wirklich_ wüssten, dass der Tod einfach woanders hingeht, Wenn sie handfeste Beweise für ein Leben nach dem Tod hätten, anstatt sich etwas auszudenken, um sich selbst zu trösten, würde das _alles_ ändern, es würde _keine Rolle_ spielen, dass jeder jemanden im Krieg verloren hat, es wäre ein bisschen traurig, aber nicht _schrecklich!Und ich hatte schon gesehen, dass sich die Menschen in der Zaubererwelt nicht so verhielten! Ich hätte es also besser wissen müssen! Und da wusste ich, dass meine Eltern wirklich tot und für immer und ewig weg waren, dass nichts von ihnen übrig geblieben war, dass ich sie nie kennenlernen würde und, und, und die anderen Kinder dachten, ich würde weinen, weil ich _Angst vor Geistern_ hatte.
+"Und _dann,_" spuckte Harry, die Wut kam voll in seine Stimme, die kalte Wut auf das Universum, weil es so war, und auf sich selbst, weil er so dumm war, "fragte ich Hermine und sie sagte, dass es nur _Nachbilder_ waren, die durch den Tod eines Zauberers in den Stein des Schlosses gebrannt wurden, wie die Silhouetten, die an den Wänden von Hiroshima zurückgeblieben sind. Und ich hätte es wissen müssen! Ich hätte es wissen müssen, ohne überhaupt fragen zu müssen! Ich hätte es nicht einmal dreißig Sekunden lang glauben dürfen! Denn wenn Menschen eine Seele hätten, gäbe es keine Hirnschäden. Wenn deine Seele weiter sprechen könnte, obwohl dein ganzes Gehirn weg ist, wie könnte dann eine Schädigung der linken Gehirnhälfte dir die Fähigkeit zu sprechen nehmen? Und als Professor McGonagall mir vom Tod meiner Eltern erzählte, tat sie nicht so, als wären sie gerade auf eine lange Reise in ein anderes Land gegangen, als wären sie in der Zeit der Segelschiffe nach Australien ausgewandert, so wie sich die Leute verhalten würden, wenn sie _wirklich_ wüssten, dass man im Tod einfach woanders hingeht. Wenn sie handfeste Beweise für ein Leben nach dem Tod hätten, anstatt sich etwas auszudenken, um sich selbst zu trösten, würde das _alles_ ändern, es würde _keine Rolle_ spielen, dass jeder jemanden im Krieg verloren hat, es wäre ein bisschen traurig, aber nicht _schrecklich! Und ich hatte schon gesehen, dass sich die Menschen in der Zaubererwelt nicht so verhielten! Ich hätte es also besser wissen müssen! Und da wusste ich, dass meine Eltern wirklich tot und für immer und ewig weg waren, dass nichts von ihnen übrig geblieben war, dass ich sie nie kennenlernen würde und, und, und die anderen Kinder dachten, ich würde weinen, weil ich _Angst vor Geistern_ hatte.
 
 Das Gesicht des alten Zauberers war entsetzt, er öffnete den Mund, um zu sprechen -.
 
-"Sagen Sie es mir, Mr. Direktor! Erzähle mir von den Beweisen! Aber _untersteh dich_, auch nur ein winziges bisschen zu übertreiben, denn wenn du mir noch einmal falsche Hoffnungen machst und ich später herausfinde, dass du gelogen oder ein bisschen übertrieben hast, werde ich dir das nie verzeihen! _Was ist der Schleier?_ "
+"Sagen Sie es mir, Herr Direktor! Erzähle mir von den Beweisen! Aber _unterstehen Sie sich_, auch nur ein winziges bisschen zu übertreiben, denn wenn Sie mir noch einmal falsche Hoffnungen machen und ich später herausfinde, dass Sie gelogen oder ein bisschen übertrieben haben, werde ich Ihnen das nie verzeihen! _Was ist der Schleier?_"
 
 Harry griff nach oben und wischte sich über die Wangen, während die Glasdinger des Büros von seinem letzten Schrei aufhörten zu vibrieren.
 
 "Der Schleier", sagte der alte Zauberer mit einem leichten Zittern in der Stimme, "ist ein großer steinerner Torbogen, der in der Abteilung für Mysterien aufbewahrt wird; ein Tor zum Land der Toten."
 
-"Und woher weiß man das?", fragte Harry. "Sag mir nicht, was du glaubst, sag mir, was du _gesehen_ hast!
+"Und woher weiß man das?", fragte Harry. "Sagen Sie mir nicht, was Sie glauben, sagen Sie mir, was Sie _gesehen_ haben!"
 
 Die physische Manifestation der Barriere zwischen den Welten war ein großer steinerner Torbogen, alt und hoch und spitz zulaufend, mit einem zerfledderten schwarzen Schleier wie die Oberfläche eines Wasserbeckens, der sich zwischen den Steinen ausbreitete, immer kräuselnd durch den ständigen und einseitigen Durchgang der Seelen. Wenn du am Schleier standest, konntest du die Stimmen der Toten hören, die immer flüsternd riefen und kaum zu verstehen waren. Sie wurden lauter und zahlreicher, wenn du stehenbliebst und zu hören versuchte, während sie versuchten, sich mitzuteilen; und wenn du zu lange zuhörtest, gingst du ihnen entgegen, und in dem Moment, in dem du den Schleier berührtest, wurdest du hindurchgesaugt und hörtest nie wieder etwas von ihnen.
 
-"Das hört sich nicht einmal nach einem _interessanten_ Betrug an", sagte Harry, dessen Stimme jetzt ruhiger klang, da es nichts mehr gab, was ihn hoffen ließ oder ihn wütend machte, weil seine Hoffnungen enttäuscht worden waren. "Jemand hat einen steinernen Torbogen gebaut, eine kleine schwarze Wellenfläche dazwischen gelegt, die alles verschwinden ließ, was sie berührte, und sie so verzaubert, dass sie den Menschen zuflüsterte und sie hypnotisierte."
+"Das hört sich nicht einmal nach einem _interessanten_ Betrug an", sagte Harry, dessen Stimme jetzt ruhiger klang, da es nichts mehr gab, was ihn hoffen ließ oder ihn wütend machte, weil seine Hoffnungen enttäuscht worden waren. "Jemand hat einen steinernen Torbogen gebaut, eine kleine schwarze Wellenfläche dazwischen gelegt, die alles verschwinden lässt, was sie berührt, und sie so verzaubert, dass sie den Menschen zuflüstert und sie hypnotisiert."
 
-"Harry... ", sagte der Schulleiter und sah dabei ziemlich besorgt aus. "Ich kann dir die Wahrheit sagen, aber wenn du dich weigerst, sie zu hören..."
+"Harry...", sagte der Schulleiter und sah dabei ziemlich besorgt aus. "Ich kann dir die Wahrheit sagen, aber wenn du dich weigerst, sie zu hören..."
 
-Auch nicht interessant. _ "Was ist der Stein der Auferstehung?"
+_Auch nicht interessant._ "Was ist der Stein der Auferstehung?"
 
 "Ich würde es dir nicht sagen", sagte der Schulleiter langsam, "aber ich fürchte, dieser Unglaube könnte dir schaden... Also hör zu, Harry, bitte hör zu..."
 
@@ -314,7 +314,7 @@ In aller Höflichkeit hob Harry die Hand.
 
 "Ja?", sagte der Schulleiter zögernd.
 
-"Der offensichtliche Test, um herauszufinden, ob der Stein der Auferstehung die Toten _wirklich_ zurückruft oder nur ein Bild aus dem Kopf des Benutzers projiziert, besteht darin, eine Frage zu stellen, deren Antwort _du_ nicht kennst, aber die tote Person _würde_, und die in dieser Welt definitiv überprüft werden kann. Zum Beispiel: Rückruf -"
+"Der offensichtliche Test, um herauszufinden, ob der Stein der Auferstehung die Toten _wirklich_ zurückruft oder nur ein Bild aus dem Kopf des Benutzers projiziert, besteht darin, eine Frage zu stellen, deren Antwort _du_ nicht kennst, aber die tote Person _schon_, und die in dieser Welt definitiv überprüft werden kann. Zum Beispiel: Ruf -"
 
 Dann hielt Harry inne, denn _dieses_ Mal hatte er es geschafft, seiner Zunge einen Schritt voraus zu sein, schnell genug, um _nicht_ den ersten Namen und Test zu sagen, der ihm in den Sinn gekommen war.
 
@@ -322,7 +322,7 @@ Dann hielt Harry inne, denn _dieses_ Mal hatte er es geschafft, seiner Zunge ein
 
 "Der Stein der Auferstehung ist seit Jahrhunderten verschollen, Harry", sagte der Schulleiter leise.
 
-Harry zuckte mit den Schultern. "Nun, ich bin Wissenschaftlerin und lasse mich immer gerne überzeugen. Wenn du _wirklich_ daran glaubst, dass der Stein der Auferstehung die Toten zurückruft, dann musst du auch glauben, dass ein solcher Test erfolgreich sein wird, oder? Weißt du etwas darüber, wo man den Stein der Auferstehung finden kann? Ich habe bereits _ein_ Heiligtum des Todes unter höchst mysteriösen Umständen erhalten, und wir wissen beide, wie der Rhythmus der Welt bei so etwas funktioniert."
+Harry zuckte mit den Schultern. "Nun, ich bin Wissenschaftlerin und lasse mich immer gerne überzeugen. Wenn Sie _wirklich_ daran glauben, dass der Stein der Auferstehung die Toten zurückruft, dann müssen Sie auch glauben, dass ein solcher Test erfolgreich sein wird, oder? Wissen Sie etwas darüber, wo man den Stein der Auferstehung finden kann? Ich habe bereits _ein_ Heiligtum des Todes unter höchst mysteriösen Umständen erhalten, und wir wissen beide, wie der Rhythmus der Welt bei so etwas funktioniert."
 
 Dumbledore starrte Harry an.
 
@@ -330,81 +330,81 @@ Harry blickte den Schulleiter gleichmütig an.
 
 Der alte Zauberer fuhr sich mit der Hand über die Stirn und murmelte: "Das ist Wahnsinn."
 
-(Irgendwie schaffte es Harry, sich das Lachen zu verkneifen. ).
+(Irgendwie schaffte es Harry, sich das Lachen zu verkneifen.)
 
 Auf Anweisung des Schulleiters starrte Harry auf die Innenseite und die Rückseite der Kapuze, bis er das Symbol der Heiligtümer des Todes sah: ein Dreieck mit einem Kreis darin und einer Linie, die beide trennte.
 
-"Danke", sagte Harry höflich. "Ich werde auf jeden Fall nach einem so markierten Stein Ausschau halten. Hast du noch andere Beweise?"
+"Danke", sagte Harry höflich. "Ich werde auf jeden Fall nach einem so markierten Stein Ausschau halten. Haben Sie noch andere Beweise?"
 
-Dumbledore schien einen Kampf mit sich selbst zu führen. "Harry", sagte der alte Zauberer und seine Stimme erhob sich, "das ist ein gefährlicher Weg, den du gehst, ich bin mir nicht sicher, ob ich das Richtige tue, wenn ich das sage, aber ich _muss_ dich von diesem Weg wegreißen! Harry, _wie hätte Voldemort den Tod seines Körpers überleben können, wenn er keine Seele hätte?_ "
+Dumbledore schien einen Kampf mit sich selbst zu führen. "Harry", sagte der alte Zauberer und seine Stimme erhob sich, "das ist ein gefährlicher Weg, den du gehst, ich bin mir nicht sicher, ob ich das Richtige tue, wenn ich das sage, aber ich _muss_ dich von diesem Weg wegreißen! Harry, _wie hätte Voldemort den Tod seines Körpers überleben können, wenn er keine Seele hätte?_"
 
 Und _dann_ wurde Harry klar, dass es genau eine Person gab, die Professor McGonagall _ursprünglich_ gesagt hatte, dass der Dunkle Lord noch am Leben war; und das war der verrückte Schulleiter ihrer verrückten Schule, der glaubte, dass die Welt aus Klischees bestand.
 
-"Gute Frage", sagte Harry, nachdem er innerlich darüber nachgedacht hatte, wie er vorgehen sollte. "Vielleicht hat er einen Weg gefunden, die Kraft des Auferstehungssteins zu duplizieren, nur dass er ihn vorher mit einer _kompletten_ Kopie seines Gehirnzustands geladen hat. Oder so ähnlich. "Harry war sich plötzlich gar nicht mehr so sicher, dass er versuchte, eine Erklärung für etwas zu finden, das _wirklich_ passiert war. "Kannst du mir nicht einfach alles erzählen, was du darüber weißt, wie der Dunkle Lord überlebt hat und was nötig wäre, um ihn zu töten?"Falls es ihn überhaupt noch gibt und er nicht nur in den Schlagzeilen der Quibbler auftaucht. _
+"Gute Frage", sagte Harry, nachdem er innerlich darüber nachgedacht hatte, wie er vorgehen sollte. "Vielleicht hat er einen Weg gefunden, die Kraft des Auferstehungssteins zu duplizieren, nur dass er ihn vorher mit einer _kompletten_ Kopie seines Gehirnzustands geladen hat. Oder so ähnlich." Harry war sich plötzlich gar nicht mehr so sicher, dass er versuchte, eine Erklärung für etwas zu finden, das _wirklich_ passiert war. "Können Sie mir nicht einfach alles erzählen, was Sie darüber wissen, wie der Dunkle Lord überlebt hat und was nötig wäre, um ihn zu töten?" Falls es ihn überhaupt noch gibt und er nicht nur in den Schlagzeilen des Quibbler auftaucht. _
 
 "Du hältst mich nicht zum Narren, Harry", sagte der alte Zauberer; sein Gesicht sah jetzt uralt aus und war von mehr als nur Jahren gezeichnet. "Ich weiß, warum du diese Frage wirklich stellst. Nein, ich kann deine Gedanken nicht lesen, das muss ich auch nicht, dein Zögern verrät dich! Du suchst das Geheimnis der Unsterblichkeit des Dunklen Lords, um es für dich selbst zu nutzen!"
 
-"Falsch! Ich will das Geheimnis der Unsterblichkeit des Dunklen Lords, um es für _jeden!_ zu nutzen.
+"Falsch! Ich will das Geheimnis der Unsterblichkeit des Dunklen Lords, um es für _jeden!_ zu nutzen."
 
 * * *
 
-Tick, Knister, fzzzt...
+Tick, Knister, fzzzt, furtz..
 
 Albus Percival Wulfric Brian Dumbledore stand einfach nur da und starrte Harry mit offenem Mund stumm an.
 
-(Harry hat sich selbst einen Punkt für den Montag gegeben, weil er es geschafft hat, jemanden komplett umzuhauen, bevor der Tag zu Ende war. ).
+(Harry hat sich selbst einen Punkt für den Montag gegeben, weil er es geschafft hat, jemanden komplett umzuhauen, bevor der Tag zu Ende war.)
 
 "Und falls es nicht klar war", sagte Harry, "mit _jeder_ meine ich auch alle Muggel, nicht nur alle Zauberer."
 
 "Nein", sagte der alte Zauberer und schüttelte den Kopf. Seine Stimme erhob sich. "Nein, nein, nein! Das ist Wahnsinn!"
 
-"Bwa ha ha!"sagte Harry.
+"Bwa ha ha!" sagte Harry.
 
-Das Gesicht des alten Zauberers war angespannt vor Wut und Sorge. "Voldemort hat das Buch gestohlen, aus dem er sein Geheimnis entnommen hat; es war nicht mehr da, als ich danach suchte. Aber so viel weiß ich, und so viel werde ich dir sagen: Seine Unsterblichkeit wurde durch ein schreckliches und dunkles Ritual geboren, schwärzer als das Pechschwarz! Und es war Myrtle, die arme, süße Myrtle, die dafür starb; seine Unsterblichkeit erforderte Opfer, sie erforderte _Mord_"
+Das Gesicht des alten Zauberers war angespannt vor Wut und Sorge. "Voldemort hat das Buch gestohlen, aus dem er sein Geheimnis entnommen hat; es war nicht mehr da, als ich danach suchte. Aber so viel weiß ich, und so viel werde ich dir sagen: Seine Unsterblichkeit wurde durch ein schreckliches und dunkles Ritual geboren, schwärzer als das Pechschwarz! Und es war Myrtle, die arme, süße Myrtle, die dafür starb; seine Unsterblichkeit erforderte Opfer, sie erforderte _Mord_."
 
-"Natürlich werde ich keine Methode der Unsterblichkeit verbreiten, die das Töten von Menschen erfordert! Das würde den _ganzen Sinn des Ganzen_ zunichte machen.
+"Natürlich werde ich keine Methode der Unsterblichkeit verbreiten, die das Töten von Menschen erfordert! Das würde den _Sinn des Ganzen_ zunichte machen.
 
 Es gab eine erschrockene Pause.
 
 Langsam entspannte sich das Gesicht des alten Zauberers, aber die Sorge war immer noch da. "Du würdest kein Ritual anwenden, das Menschenopfer erfordert."
 
-"Ich weiß nicht, wofür du mich hältst, _Hauptlehrer_", sagte Harry kalt, wobei seine eigene Wut anstieg, "aber wir sollten nicht vergessen, dass _ich_ derjenige bin, der will, dass die Menschen _leben_! Du bist derjenige, der denkt, dass der Tod geil ist und jeder sterben sollte!"
+"Ich weiß nicht, wofür Sie mich halten, _Herr Schulleier_", sagte Harry kalt, wobei seine eigene Wut anstieg, "aber wir sollten nicht vergessen, dass _ich_ derjenige bin, der will, dass die Menschen _leben_! Sie sind derjenige, der denkt, dass der Tod geil ist und jeder sterben sollte!"
 
-"Ich bin ratlos, Harry", sagte der alte Zauberer. Seine Füße stapften wieder durch sein seltsames Büro. "Ich weiß nicht, was ich sagen soll. "Er hob eine Kristallkugel auf, die eine Hand in Flammen zu halten schien, und schaute mit trauriger Miene hinein. "Nur, dass ich von dir sehr missverstanden werde... Ich _will_ nicht, dass alle sterben, Harry!"
+"Ich bin ratlos, Harry", sagte der alte Zauberer. Seine Füße stapften wieder durch sein seltsames Büro. "Ich weiß nicht, was ich sagen soll." Er hob eine Kristallkugel auf, die eine Hand in Flammen zu halten schien, und schaute mit trauriger Miene hinein. "Nur, dass ich von dir sehr missverstanden werde... Ich _will_ nicht, dass alle sterben, Harry!"
 
-"Du willst nur nicht, dass jemand unsterblich ist", sagte Harry mit viel Ironie. Es schien, dass elementare logische Tautologien wie _Alle x: Die(x) = Nicht Existieren x: Nicht sterben(x)_ übersteigen die logischen Fähigkeiten des mächtigsten Zauberers der Welt.
+"Du willst nur nicht, dass jemand unsterblich ist", sagte Harry mit viel Ironie. Es schien, dass elementare logische Tautologien wie _Alle x: Sterben(x) = Nicht Existieren x: Nicht sterben(x)_ übersteigen die logischen Fähigkeiten des mächtigsten Zauberers der Welt.
 
 Der alte Zauberer nickte. "Ich habe weniger Angst als früher, aber ich mache mir immer noch große Sorgen um dich, Harry", sagte er leise. Seine Hand, von der Zeit etwas geschwächt, aber immer noch stark, legte die Kristallkugel fest in ihren Ständer zurück. "Denn die Angst vor dem Tod ist eine bittere Sache, eine Krankheit der Seele, durch die die Menschen verdreht und verbogen werden. Voldemort ist nicht der einzige Dunkle Zauberer, der diesen düsteren Weg eingeschlagen hat, obwohl ich fürchte, dass er ihn weiter gegangen ist als alle anderen vor ihm."
 
-"Und du glaubst, du hättest keine Angst vor dem Tod?"sagte Harry und versuchte gar nicht erst, die Ungläubigkeit in seiner Stimme zu verbergen.
+"Und Sie glauben, Sie hätten keine Angst vor dem Tod?" sagte Harry und versuchte gar nicht erst, die Ungläubigkeit in seiner Stimme zu verbergen.
 
 Das Gesicht des alten Zauberers war friedlich. "Ich bin nicht perfekt, Harry, aber ich glaube, ich habe meinen Tod als Teil von mir akzeptiert."
 
-"Äh, ja", sagte Harry. "Siehst du, es gibt da eine Kleinigkeit, die man _kognitive Dissonanz_ nennt, oder einfacher ausgedrückt: _sour grapes. Wenn die Leute einmal im Monat mit Knüppeln auf den Kopf geschlagen würden und niemand etwas dagegen tun könnte, gäbe es bald alle möglichen Philosophen, die _vorgeben, weise zu sein_, wie du sagst, und die alle möglichen _verblüffenden Vorteile_ darin sehen, einmal im Monat mit einem Knüppel auf den Kopf geschlagen zu werden. Zum Beispiel macht es dich härter, oder es macht dich glücklicher an den Tagen, an denen du _nicht_ mit einem Knüppel geschlagen wirst. Aber wenn du zu jemandem gehst, der _nicht_ getroffen wird, und ihn fragst, ob er _anfangen_ will, im Austausch für diese _verblüffenden Vorteile,_ würde er nein sagen. Und wenn du _nicht_ sterben müsstest, wenn du von einem Ort kämst, an dem noch nie jemand vom Tod _gehört_ hat, und ich dir vorschlagen würde, dass es eine _überwältigende, wunderbare, großartige Idee_ wäre, wenn die Menschen faltig und alt würden und irgendwann aufhörten zu existieren, dann würdest du mich sofort in ein Irrenhaus einweisen lassen! Warum sollte also jemand auf den dummen Gedanken kommen, dass der Tod eine _gute_ Sache ist? Weil du Angst davor hast, weil du nicht _wirklich_ sterben willst und dieser Gedanke so sehr in dir schmerzt, dass du ihn wegrationalisieren musst, etwas tun, um den Schmerz zu betäuben, damit du nicht daran denken musst -"
+"Äh, ja", sagte Harry. "Sehen Sie du, es gibt da eine Kleinigkeit, die man _kognitive Dissonanz_ nennt, oder einfacher ausgedrückt: _saure Trauben_. Wenn die Leute einmal im Monat mit Knüppeln auf den Kopf geschlagen würden und niemand etwas dagegen tun könnte, gäbe es bald alle möglichen Philosophen, die _vorgeben, weise zu sein_, wie Sie sagen, und die alle möglichen _verblüffenden Vorteile_ darin sehen, einmal im Monat mit einem Knüppel auf den Kopf geschlagen zu werden. Zum Beispiel macht es dich härter, oder es macht dich glücklicher an den Tagen, an denen du _nicht_ mit einem Knüppel geschlagen wirst. Aber wenn du zu jemandem gehst, der _nicht_ geschlagen wird, und ihn fragst, ob er _anfangen_ will, im Austausch für diese _verblüffenden Vorteile,_ würde er nein sagen. Und wenn du _nicht_ sterben müsstest, wenn du von einem Ort kämst, an dem noch nie jemand vom Tod _gehört_ hat, und ich dir vorschlagen würde, dass es eine _überwältigende, wunderbare, großartige Idee_ wäre, wenn die Menschen faltig und alt würden und irgendwann aufhörten zu existieren, dann würdest du mich sofort in ein Irrenhaus einweisen lassen! Warum sollte also jemand auf den dummen Gedanken kommen, dass der Tod eine _gute_ Sache ist? Weil du Angst davor hast, weil du nicht _wirklich_ sterben willst und dieser Gedanke so sehr in dir schmerzt, dass du ihn wegrationalisieren musst, etwas tun, um den Schmerz zu betäuben, damit du nicht daran denken musst -"
 
 "Nein, Harry", sagte der alte Zauberer. Sein Gesicht war sanft, seine Hand fuhr durch ein beleuchtetes Wasserbecken, das beim Umrühren durch seine Finger kleine Töne von sich gab. "Obwohl ich verstehen kann, dass du so denkst."
 
-"Willst du den Dunklen Zauberer verstehen?"sagte Harry, seine Stimme war nun hart und grimmig. "Dann schau in den Teil von dir, der nicht vor dem Tod flieht, sondern vor der _Angst_ vor dem Tod, der diese Angst so unerträglich findet, dass er den Tod als Freund umarmt und sich bei ihm einschmeichelt, versucht, mit der Nacht eins zu werden, damit er sich für den Herrn des Abgrunds halten kann. Du hast das schrecklichste aller Übel genommen und es gut genannt! Mit einer leichten Drehung würde derselbe Teil von dir Unschuldige ermorden und es Freundschaft nennen. Wenn du den Tod besser als das Leben nennen kannst, dann kannst du deinen moralischen Kompass so verdrehen, dass er _irgendwohin_ zeigt.
+"Wollen Sie den Dunklen Zauberer verstehen?" sagte Harry, seine Stimme war nun hart und grimmig. "Dann schauen Sie in den Teil von Ihnen, der nicht vor dem Tod flieht, sondern vor der _Angst_ vor dem Tod, der diese Angst so unerträglich findet, dass er den Tod als Freund umarmt und sich bei ihm einschmeichelt, versucht, mit der Nacht eins zu werden, damit er sich für den Herrn des Abgrunds halten kann. Sie haben das schrecklichste aller Übel genommen und es gut genannt! Mit einer leichten Drehung würde derselbe Teil von Ihnen Unschuldige ermorden und es Freundschaft nennen. Wenn Sie den Tod besser finden können als das Leben, dann können Sie ihren moralischen Kompass so verdrehen, dass er _irgendwohin_ zeigt."
 
-"Ich glaube", sagte Dumbledore und schüttelte die Wassertropfen von seiner Hand, während kleine Glöckchen bimmelten, "dass du Dunkle Zauberer _sehr_ gut verstehst, ohne selbst einer zu sein. "Er sagte es mit vollem Ernst und ohne Vorwürfe. "Aber ich fürchte, du verstehst _mich_ nicht richtig. "Der alte Zauberer lächelte jetzt, und in seiner Stimme lag ein leises Lachen.
+"Ich glaube", sagte Dumbledore und schüttelte die Wassertropfen von seiner Hand, während kleine Glöckchen bimmelten, "dass du den Dunkle Zauberer _sehr_ gut verstehst, ohne selbst einer zu sein." Er sagte es mit vollem Ernst und ohne Vorwürfe. "Aber ich fürchte, du verstehst _mich_ nicht richtig." Der alte Zauberer lächelte jetzt, und in seiner Stimme lag ein leises Lachen.
 
-Harry versuchte, nicht noch kälter zu werden, als er ohnehin schon war; von irgendwoher strömte eine lodernde Wut über Dumbledores Herablassung und all das Lachen, das weise alte Narren jemals anstelle von Argumenten benutzt hatten, in seinen Geist. "Komisch, weißt du, ich dachte, Draco Malfoy würde so unmöglich sein, mit dem man reden kann, und stattdessen war er in seiner kindlichen Unschuld hundertmal stärker als du."
+Harry versuchte, nicht noch kälter zu werden, als er ohnehin schon war; von irgendwoher strömte eine lodernde Wut über Dumbledores Herablassung und all das Lachen, das weise alte Narren jemals anstelle von Argumenten benutzt hatten, in seinen Geist. "Komisch, weißt du, ich dachte, Draco Malfoy würde so unmöglich sein, mit dem man reden kann, und stattdessen war er in seiner kindlichen Unschuld hundertmal stärker als Sie."
 
 Ein verwirrter Blick ging über das Gesicht des alten Zauberers. "Was meinst du?"
 
-"Ich meine", sagte Harry mit bissiger Stimme, "dass Draco seine eigenen Überzeugungen tatsächlich _ernst genommen_ und meine Worte _verarbeitet_ hat, anstatt sie _aus dem Fenster zu werfen_, indem er mit sanfter Überlegenheit lächelte. Du bist so alt und weise, dass du nicht einmal _bemerken_ kannst, was ich sage! Nicht verstehen, _bemerken!_ "
+"Ich meine", sagte Harry mit bissiger Stimme, "dass Draco seine eigenen Überzeugungen tatsächlich _ernst genommen_ und meine Worte _verarbeitet_ hat, anstatt sie _aus dem Fenster zu werfen_, indem er mit sanfter Überlegenheit lächelte. Sie sind so alt und weise, dass Sie nicht einmal _bemerken_, was ich sage! Nicht nur nicht verstehen, nicht _bemerken!_"
 
 "Ich _habe_ dir zugehört, Harry", sagte Dumbledore und sah jetzt ernster aus, "aber zuhören heißt nicht immer zustimmen. Abgesehen von den Meinungsverschiedenheiten, was ist es, von dem du denkst, dass ich es nicht verstehe?"
 
-Wenn du _wirklich_ an ein Leben nach dem Tod glaubst, gehst du nach St. Mungo's und töteten Nevilles Eltern, Alice und Frank Longbottom, damit sie zu ihrem_ nächsten großen Abenteuer_ weiterziehen konnten, anstatt sie hier in ihrem beschädigten Zustand verweilen zu lassen -_
+Wenn Sie _wirklich_ an ein Leben nach dem Tod glauben, gehen Sie nach St. Mungo's und töteten Nevilles Eltern, Alice und Frank Longbottom, damit sie zu ihrem _nächsten großen Abenteuer_ weiterziehen konnten, anstatt sie hier in ihrem beschädigten Zustand verweilen zu lassen -_
 
 Harry schaffte es gerade noch, es nicht laut auszusprechen.
 
-"In Ordnung", sagte Harry kalt. "Dann beantworte ich deine ursprüngliche Frage. Du hast gefragt, warum dunkle Zauberer Angst vor dem Tod haben. Tu so, Mr. Direktor, als würdest du _wirklich_ an Seelen glauben. Tu so, als ob jeder die Existenz von Seelen jederzeit nachprüfen könnte, tu so, als ob niemand bei Beerdigungen weint, weil sie _wissen_, dass ihre Lieben noch leben. Kannst du dir nun vorstellen, eine Seele zu _zerstören_? Sie in Stücke zu reißen, so dass nichts mehr übrig bleibt, um sich auf ihr nächstes großes Abenteuer zu begeben? Kannst du dir vorstellen, was für eine schreckliche Sache das wäre, das schlimmste Verbrechen, das jemals in der Geschichte des Universums begangen wurde, und das du mit allen Mitteln verhindern würdest, dass es auch nur einmal passiert? Denn _das_ ist es, was der Tod wirklich ist - die Auslöschung einer Seele!"
+"In Ordnung", sagte Harry kalt. "Dann beantworte ich Ihre ursprüngliche Frage. Sie haben gefragt, warum dunkle Zauberer Angst vor dem Tod haben. Tun Sie so, Herr Direktor, als würden Sie _wirklich_ an Seelen glauben. Tun Sie so, als ob jeder die Existenz von Seelen jederzeit nachprüfen könnte, tun Sie so, als ob niemand bei Beerdigungen weint, weil sie _wissen_, dass ihre Lieben noch leben. Können Sie sich nun vorstellen, eine Seele zu _zerstören_? Sie in Stücke zu reißen, so dass nichts mehr übrig bleibt, um sich auf ihr nächstes großes Abenteuer zu begeben? Können Sie sich vorstellen, was für eine schreckliche Sache das wäre, das schlimmste Verbrechen, das jemals in der Geschichte des Universums begangen wurde, und das Sie mit allen Mitteln verhindern würden, dass es auch nur einmal passiert? Denn _das_ ist es, was der Tod wirklich ist - die Auslöschung einer Seele!"
 
 Der alte Zauberer starrte ihn an, mit einem traurigen Blick in den Augen. "Ich glaube, ich verstehe jetzt", sagte er leise.
 
-"Oh?"sagte Harry. "Was verstehen?"
+"Oh?" sagte Harry. "Was verstehen?"
 
 "Voldemort", sagte der alte Zauberer. "Ich verstehe ihn jetzt endlich. Denn um zu glauben, dass die Welt wirklich so ist, musst du glauben, dass es in ihr keine Gerechtigkeit gibt, dass sie in ihrem Kern aus Dunkelheit gewoben ist. Ich habe dich gefragt, warum er ein Monster wurde, und du konntest keinen Grund nennen. Und wenn ich _ihn_ fragen könnte, würde seine Antwort wohl lauten: Warum nicht?"
 
@@ -418,9 +418,9 @@ Sie standen da und sahen sich in die Augen, der alte Zauberer in seinem Gewand u
 
 "Warum nicht?", sagte der alte Zauberer.
 
-Der Junge stand ganz gerade, das Kinn hoch und stolz erhoben, und sagte: "Es gibt keine Gerechtigkeit in den Gesetzen der Natur, Mr. Direktor, keinen Begriff für Fairness in den Gleichungen der Bewegung. Das Universum ist weder böse noch gut, es ist ihm einfach egal. Den Sternen ist das egal, oder der Sonne oder dem Himmel. Aber das müssen sie nicht! _Wir_ kümmern uns! Es _gibt_ Licht in der Welt, und das sind _wir!_ "
+Der Junge stand ganz gerade, das Kinn hoch und stolz erhoben, und sagte: "Es gibt keine Gerechtigkeit in den Gesetzen der Natur, Herr Direktor, keinen Begriff für Fairness in den Gleichungen der Bewegung. Das Universum ist weder böse noch gut, es ist ihm einfach egal. Den Sternen ist das egal, oder der Sonne oder dem Himmel. Aber das braucht Ihnen auch nicht wichtig sein! _Wir_ kümmern uns! Es _gibt_ Licht in der Welt, und das Licht sind _wir!_"
 
-"Ich frage mich, was aus dir werden soll, Harry", sagte der alte Zauberer. Seine Stimme war sanft, mit einem seltsamen Staunen und Bedauern darin. "Es ist genug, dass ich mir wünsche zu leben, nur um es zu sehen."
+"Ich frage mich, was aus dir werden soll, Harry", sagte der alte Zauberer. Seine Stimme war sanft, mit einem seltsamen Staunen und Bedauern darin. "So sehr, dass ich mir wünsche zu leben, nur um es zu sehen."
 
 Der Junge verbeugte sich mit schwerer Ironie vor ihm und ging, und die Eichentür schlug mit einem dumpfen Knall hinter ihm zu.
 
