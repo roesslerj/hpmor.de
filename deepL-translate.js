@@ -22,8 +22,8 @@ function translateChunk(text2Translate) {
     formality: 'less',
     auth_key: auth_key,
   }).then(response => {
-    console.debug(`Translated this:  ${text2Translate}`);
-    console.debug(`Translated to:    ${response.data.translations[0].text}`);
+    //console.debug(`Translated this:  ${text2Translate}`);
+    //console.debug(`Translated to:    ${response.data.translations[0].text}`);
     return response.data.translations[0].text;
   }).catch(error => {
     console.error(`Error ${error.code} translating: ${text2Translate}`);
