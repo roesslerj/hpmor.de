@@ -1,4 +1,4 @@
-# Kapitel 41: Frontalüberschreitung.
+# Kapitel 41: Frontalüberschreitung
 
 Der beißende Januarwind heulte um die riesigen, leeren Steinmauern, die die materiellen Grenzen des Schlosses Hogwarts abgrenzten, und flüsterte und pfiff in seltsamen Tonlagen, während er an geschlossenen Fenstern und Steintürmen vorbeiflog. Der letzte Schnee war größtenteils weggeblasen, aber vereinzelte geschmolzene und wieder gefrorene Eisstücke klebten noch an der Steinwand und reflektierten das Sonnenlicht. Aus der Ferne muss es so ausgesehen haben, als ob Hogwarts mit Hunderten von Augen blinzeln würde.
 
@@ -10,7 +10,7 @@ Draco gab sich große Mühe, nicht an die sechs Stockwerke leerer Luft unter ihm
 
 * * *
 
-_Früher:_
+_Vorher:_
 
 Die beiden verbündeten Generäle traten gemeinsam über Longbottoms Leiche, wobei ihre Stiefel in fast perfekter Synchronität auf den Boden trafen.
 
