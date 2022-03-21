@@ -182,7 +182,7 @@ Aber sie konnte durch den blauen Dunst, der sie nun alle umgab, nichts Falsches 
 
 Die anderen Mädchen, die sich ebenfalls in Formation begeben hatten, schauten ebenfalls verwirrt.
 
-"Tut mir leid!"sagte Susan. "Tut mir leid, Mädchen. Gib mir einen Moment, um den Ort zu überprüfen. Der Gedanke an eine bestimmte Person hat mich gerade daran erinnert, dass diese Halle, in der wir uns gerade befinden, mit all diesen Türen ein _exzellenter_ Ort für einen Hinterhalt wäre."
+"Tut mir leid!" sagte Susan. "Tut mir leid, Mädchen. Gib mir einen Moment, um den Ort zu überprüfen. Der Gedanke an eine bestimmte Person hat mich gerade daran erinnert, dass diese Halle, in der wir uns gerade befinden, mit all diesen Türen ein _exzellenter_ Ort für einen Hinterhalt wäre."
 
 Es gab einen Moment der Stille.
 
@@ -194,7 +194,7 @@ Weiße Roben schoben sich schweigend vorwärts, alles verdeckende weiße Roben o
 
 Susan sagte ein paar extrem böse Worte, die so schrecklich waren, dass Hermine sie zu fast jeder anderen Zeit bemerkt hätte.
 
-"Diese Nachricht!"rief Daphne plötzlich entsetzt. "Es _war_ nicht von -"
+"Diese Nachricht!" rief Daphne plötzlich entsetzt. "Es _war_ nicht von -"
 
 "Millicent Bulstrode?", sagte die Stimme mit dem brummenden Unterton. "Nein, das war es nicht. Weißt du, Miss Greengrass, wenn dasselbe Mädchen jeden Tag eine Slytherin-Botschaft schickt, wenn du gegen einen Tyrannen kämpfst, wird das bald jemand anderes bemerken. Wir werden uns mit ihr unterhalten, wenn wir mit dir fertig sind."
 
@@ -224,13 +224,13 @@ Es müssen also zwei Dutzend verschiedene Zauber gesprochen worden sein, aber es
 
 "Mädchen?", flüsterte Susan. Langsam stemmte sie sich auf die Beine, aber Hermine konnte sehen, wie ihre Glieder schwankten und zitterten. "Mädchen, es tut mir leid, was ich vorhin gesagt habe. Wenn du etwas Gescheites und Heldenhaftes vorhast, kannst du es auch gleich ausprobieren."
 
-"Oh ja", sagte Tracey Davis dann mit zitternder Stimme. "Ich habe es fast _vergessen_ "Das Slytherin-Mädchen erhob ihre Stimme und sprach.
+"Oh ja", sagte Tracey Davis dann mit zitternder Stimme. "Ich habe es fast _vergessen_" Das Slytherin-Mädchen erhob ihre Stimme und sprach.
 
-"Hey, ihr alle!", rief Tracey in einem hohen, zittrigen Ton. "Hey, willst du mir auch wehtun?"
+"Hey, ihr alle!", rief Tracey in einem hohen, zittrigen Ton. "Hey, wollt ihr mir auch wehtun?"
 
-"Ja, tatsächlich", sagte die brummende Stimme des Anführers. "Das sind wir."
+"Ja, tatsächlich", sagte die brummende Stimme des Anführers. "Das wollen wir."
 
-"Ich stehe unter dem Schutz von Harry Potter, weißt du! Jeder, der versucht, mir etwas anzutun, wird die wahre Bedeutung des Chaos erfahren! Wirst du mich also gehen lassen?"Das hätte trotzig klingen müssen. Es klang erschrocken.
+"Ich stehe unter dem Schutz von Harry Potter, weißt du! Jeder, der versucht, mir etwas anzutun, wird die wahre Bedeutung des Chaos erfahren! Wirst du mich also gehen lassen?" Das hätte trotzig klingen müssen. Es klang erschrocken.
 
 Es gab eine Pause. Einige der Kapuzen der Roben drehten sich zueinander, dann drehten sie sich wieder zu den Mädchen um.
 
@@ -246,21 +246,21 @@ Tracey Davis schnippte mit den Fingern.
 
 Es gab eine lange, schreckliche Pause.
 
-Es ist nichts passiert.
+Und es passierte ... nichts.
 
 "Ja, gut", sagte die Stimme -.
 
-Tracey sagte, ihre Stimme klang noch höher und zittriger: "_Acathla, mundatus sum_ "Ihre Hand, die sich noch weiter nach oben streckte, schnippte ein zweites Mal mit den Fingern.
+Tracey sagte, ihre Stimme klang noch höher und zittriger: "_Acathla, mundatus sum_" Ihre Hand, die sich noch weiter nach oben streckte, schnippte ein zweites Mal mit den Fingern.
 
 Ein namenloser Schauer lief Hermine über den Rücken, ein Schauer aus Angst und Orientierungslosigkeit, als hätte sie gerade gespürt, wie der Boden unter ihr kippte und sie in die darunter liegende Dunkelheit zu stürzen drohte.
 
-"Was ist sie -", begann eine brummende Frauenstimme.
+"Was tut sie -", begann eine brummende Frauenstimme.
 
-Traceys Gesicht war blass und vor Angst verzerrt, aber ihre Lippen bewegten sich und sprudelten in einem hohen Singsang hervor: "_Mabra, brahoring, mabra... _"
+Traceys Gesicht war blass und vor Angst verzerrt, aber ihre Lippen bewegten sich und sprudelten in einem hohen Singsang hervor: "_Mabra, brahoring, mabra..._"
 
 Ein kalter Wind schien in der Enge des Ganges aufzusteigen, ein dunkler Atem, der ihre Gesichter streichelte und ihre Hände mit Eis berührte.
 
-"Feuert auf sie, auf mein Kommando!", rief die führende Stimme. "Eins, zwei_, drei!_"und vielleicht vierzig Stimmen brüllten Bannsprüche und erzeugten eine riesige konzentrische Reihe feuriger Blitze, die den breiten Korridor heller als die Sonne erleuchteten -.
+"Feuert auf sie, auf mein Kommando!", rief die führende Stimme. "_Eins, zwei, drei!_" und vielleicht vierzig Stimmen brüllten Bannsprüche und erzeugten eine riesige konzentrische Reihe feuriger Blitze, die den breiten Korridor heller als die Sonne erleuchteten -
 
 \- für den kurzen Moment, bevor die Bolzen einschlugen und in einem dunkelroten Achteck verschwanden, das in der Luft um die Mädchen herum erschien und einen Moment später wieder verschwand.
 
@@ -268,31 +268,29 @@ Hermine sah es, sie sah es, aber sie konnte es sich trotzdem nicht vorstellen; s
 
 Und Traceys Stimme sang weiter, ihre Stimme klang lauter und selbstbewusster, und ihr Gesicht verzog sich, als ob sie sich an etwas _sehr genau_ erinnern wollte.
 
-_"Shuffle, duffle, muzzle, muff. Fista, wista, mista-cuff. "_
+_"Shuffle, duffle, muzzle, muff. Fista, wista, mista-cuff."_
 
 Jetzt konnten es alle Anwesenden spüren, Heldinnen und Rüpel gleichermaßen, das Gefühl eines dunklen Willens, der auf sie drückte, ein Kribbeln in der Luft, während sich etwas aufbaute und aufbaute und aufbaute. Alle blauen Nebel um die weißen Gewänder, alle Schutzzauber, waren erloschen, ohne dass ein sichtbarer Zauber sie berührt hätte. Es gab weitere Lichtblitze, als weitere verzweifelte Zaubersprüche abgefeuert wurden, aber sie verpufften in der Luft wie Kerzenflammen, die Wasser berühren.
 
-Die schwarzen Barrieren an den beiden Enden des Korridors hatten sich unter dem wachsenden Druck wie Rauch aufgelöst, aber ihr Verdampfen offenbarte die versiegelten Ausgänge, die durch gekachelte Lamellen aus dunklem Metall versperrt waren, die wie mit Blut befleckt aussahen; Und als Tracey "_Lemarchand, Lament, Lemarchand_"skandierte, begann ein furchtbares blaues Licht unter den Metalllatten und zwischen ihnen hervorzuleuchten, und die sechs Doppeltüren knallten auf einmal zu, während panische weißgekleidete Schläger darauf einschlugen und heulten.
+Die schwarzen Barrieren an den beiden Enden des Korridors hatten sich unter dem wachsenden Druck wie Rauch aufgelöst, aber ihr Verdampfen offenbarte die versiegelten Ausgänge, die durch gekachelte Lamellen aus dunklem Metall versperrt waren, die wie mit Blut befleckt aussahen; Und als Tracey "_Lemarchand, Lament, Lemarchand_" skandierte, begann ein furchtbares blaues Licht unter den Metalllatten und zwischen ihnen hervorzuleuchten, und die sechs Doppeltüren knallten auf einmal zu, während panische weißgekleidete Schläger darauf einschlugen und heulten.
 
-Dann schlug Traceys Hand nach links und sie rief "_Khornath!_ ", dann zeigte ihre Hand unter sie und "_Slaaneth!_ ", über sie "_Nurgolth!_ "und dann, nach rechts, "_TZINTCHI!_ "
+Dann schlug Traceys Hand nach links und sie rief "_Khornath!_", dann zeigte ihre Hand unter sie und "_Slaaneth!_", über sie "_Nurgolth!_" und dann, nach rechts, "_TZINTCHI!_"
 
-Tracey hielt inne, holte tief Luft, und Hermine fand ihre Stimme wieder und rief: "_Halt! Tracey, halt!
+Tracey hielt inne, holte tief Luft, und Hermine fand ihre Stimme wieder und rief: "_Halt! Tracey, halt!"
 
 Aber da war ein seltsames, wildes Lächeln auf Traceys Gesicht. Sie hob ihre Hand noch höher und schnippte ein drittes Mal mit den Fingern, und als sie wieder sprach, war unter ihrer hohen Mädchenstimme ein Unterton zu hören, als ob ein tieferer Chor mit ihr singen würde.
 
-Finsternis über Finsternis, tiefer als das Pechschwarz. Begraben unter dem Fluss der Zeit... Von Dunkelheit zu Dunkelheit hallt deine Stimme in der Leere wider,
-Unbekannt für den Tod, noch bekannt für das Leben."
-_
+Finsternis über Finsternis, tiefer als das Pechschwarz. Begraben unter dem Fluss der Zeit... Von Dunkelheit zu Dunkelheit hallt deine Stimme in der Leere wider, Unbekannt für den Tod, noch bekannt für das Leben."
 
-"_Was machst du da?_ ", schrie Parvati und das Gryffindor-Mädchen streckte eine Hand aus, als wolle sie die Slytherin herunterziehen, die nun begann, in die Luft zu schweben. Daphne und Susan packten gleichzeitig Parvatis Arm und Daphne rief: "Nicht, wir wissen nicht, was passiert, wenn das Ritual unterbrochen wird!"
+"_Was machst du da?_", schrie Parvati und das Gryffindor-Mädchen streckte eine Hand aus, als wolle sie die Slytherin herunterziehen, die nun begann, in die Luft zu schweben. Daphne und Susan packten gleichzeitig Parvatis Arm und Daphne rief: "Nicht, wir wissen nicht, was passiert, wenn das Ritual unterbrochen wird!"
 
-"Und was passiert, wenn er VOLLSTÄNDIG wird?", schrie Hermine, so nah wie noch nie an einem totalen Nervenzusammenbruch.
+"Und was passiert, wenn es VOLLENDET wird?", schrie Hermine, so nah wie noch nie an einem totalen Nervenzusammenbruch.
 
 Susans Gesicht war kreidebleich, und sie flüsterte: "Es tut mir leid, Mad-Eye..."
 
 Und Tracey sprach weiter, ihr Körper schwebte höher und höher über dem Boden, ihr schwarzes Haar peitschte wild um sie herum im kühlen Wind.
 
-Du, der du das Tor kennst, der du das Tor bist, der Schlüssel und Wächter des Tores:
+"Du, der du das Tor kennst, der du das Tor bist, der Schlüssel und Wächter des Tores:
 Ich befehle dir, ihm den Weg zu öffnen und seine Macht vor mir zu offenbaren!"
 
 Der Korridor wurde dann in völlige Dunkelheit und Stille getaucht, so dass nur noch Tracey zu sehen und zu hören war, als gäbe es nichts mehr im Universum außer ihr und dem Licht, das sie aus einer namenlosen Quelle beleuchtete.
@@ -305,7 +303,7 @@ _"Harry James Potter-Evans-Verres!
 Harry James Potter-Evans-Verres!  
 HARRY JAMES POTTER-EVANS-VERRES!"_
 
-Es knackte wie ein Donnerschlag, und dann -.
+Es knackte wie ein Donnerschlag, und dann -
 
 * * *
 
@@ -315,7 +313,7 @@ Harry hatte sich entschieden, eine eher entspannte Haltung einzunehmen, als er i
 
 "Ich kann nicht leugnen, dass mein Einfluss am Werk war", sagte Harry.
 
-Der alte Zauberer nahm seine Brille ab und beugte sich vor, um Harry direkt anzustarren, von blauen zu grünen Augen. "Ich werde dir eine Frage stellen", sagte der Schulleiter mit ruhiger Stimme. "Findest du, dass das, was du heute getan hast, _angemessen war?_ "
+Der alte Zauberer nahm seine Brille ab und beugte sich vor, um Harry direkt anzustarren, von blauen zu grünen Augen. "Ich werde dir eine Frage stellen", sagte der Schulleiter mit ruhiger Stimme. "Findest du, dass das, was du heute getan hast, _angemessen war?_"
 
 "Es waren Schläger und sie kamen in diesen Flur mit der direkten Absicht, Hermine Granger und sieben anderen Erstklässlern wehzutun", sagte Harry nüchtern. "Wenn ich nicht zu jung für moralische Urteile bin, dann sind sie es auch nicht. Nein, Herr Direktor, sie haben es nicht verdient zu sterben. Aber sie haben es _verdient_, nackt ausgezogen und an die Decke geklebt zu werden."
 
@@ -323,7 +321,7 @@ Der alte Zauberer setzte seine Brille wieder auf. Zum ersten Mal, seit Harry ihn
 
 "Das ist so ziemlich der Effekt, den ich erreichen wollte", sagte Harry. Er fühlte sich, als müsste er eine fröhliche Melodie pfeifen, aber leider hatte er nie gelernt, zuverlässig zu pfeifen.
 
-"Ich muss dich nicht fragen, wer _direkt_ verantwortlich ist", sagte der Schulleiter. "Nur drei Zauberer in Hogwarts könnten mächtig genug sein. Ich selbst habe es nicht getan. Severus hat mir versichert, dass er nichts damit zu tun hat. Und die dritte... "Der Schulleiter schüttelte bestürzt den Kopf. "Du hast dem Verteidigungsprofessor deinen Umhang geliehen, Harry. Ich glaube nicht, dass das klug war. Denn jetzt, wo er der Entdeckung durch einfache Zauber entgangen ist, weiß er sicher, dass es ein Heiligtum des Todes ist - wenn er es nicht schon bei der ersten Berührung seines Fleisches wusste."
+"Ich muss dich nicht fragen, wer _direkt_ verantwortlich ist", sagte der Schulleiter. "Nur drei Zauberer in Hogwarts könnten mächtig genug sein. Ich selbst habe es nicht getan. Severus hat mir versichert, dass er nichts damit zu tun hat. Und die dritte..." Der Schulleiter schüttelte bestürzt den Kopf. "Du hast dem Verteidigungsprofessor deinen Umhang geliehen, Harry. Ich glaube nicht, dass das klug war. Denn jetzt, wo er der Entdeckung durch einfache Zauber entgangen ist, weiß er sicher, dass es ein Heiligtum des Todes ist - wenn er es nicht schon bei der ersten Berührung seines Fleisches wusste."
 
 "Professor Quirrell hatte bereits herausgefunden, dass ich einen Unsichtbarkeitsumhang besitze", sagte Harry. "Und wie ich ihn kenne, hat er wahrscheinlich geahnt, dass es ein Heiligtum des Todes ist. Aber in _diesem_ Fall, Schulleiter, trug Professor Quirrell zufällig einen dieser gesichtsverschleiernden weißen Umhänge."
 
@@ -339,19 +337,19 @@ Irgendwie schaffte Harry es, nicht laut zu jubeln.
 
 Der Schulleiter runzelte die Stirn. "Aber _warum_ hat er es getan, Harry?"
 
-"Weil Professor Quirrell keine Schultyrannen mag und ich sehr höflich gefragt habe", sagte Harry. Er war gelangweilt und ich dachte, das könnte ihn aufheitern. "Entweder das oder es ist Teil einer unglaublich tiefgründigen Verschwörung."
+"Weil Professor Quirrell keine Schultyrannen mag und ich sehr höflich gefragt habe", sagte Harry. "Er war gelangweilt und ich dachte, das könnte ihn aufheitern. Entweder das oder es ist Teil einer unglaublich tiefgründigen Verschwörung."
 
-Der Schulleiter erhob sich hinter dem Schreibtisch und begann, vor dem Hutständer, in dem sich der Sprechende Hut und die roten Pantoffeln befanden, hin und her zu gehen. "Harry, hast du nicht das Gefühl, dass das alles ein bisschen zu viel wird? . ."
+Der Schulleiter erhob sich hinter dem Schreibtisch und begann, vor dem Hutständer, in dem sich der Sprechende Hut und die roten Pantoffeln befanden, hin und her zu gehen. "Harry, hast du nicht das Gefühl, dass das alles ein bisschen zu viel wird? Es ist einfach ..."
 
 "Fantastisch?", bot Harry an.
 
-"Völlig aus dem Ruder gelaufen", sagte Dumbledore, "das trifft es besser. "Ich bin mir nicht sicher, ob es in der ganzen Geschichte dieser Schule jemals eine Zeit gab, in der die Dinge so, so geworden sind... Ich habe kein Wort dafür, Harry, weil die Dinge noch nie so geworden sind, also musste auch noch nie jemand ein Wort dafür erfinden."
+"Völlig aus dem Ruder gelaufen", sagte Dumbledore, "das trifft es besser. Ich bin mir nicht sicher, ob es in der ganzen Geschichte dieser Schule jemals eine Zeit gab, in der die Dinge so waren, so so... Ich habe kein Wort dafür, Harry, weil die Dinge noch nie so waren, also musste auch noch nie jemand ein Wort dafür erfinden."
 
 Harry hätte versucht, Worte zu finden, um auszudrücken, wie sehr er sich geschmeichelt fühlte, wenn er nicht zu sehr gegluckst hätte, um zu sprechen.
 
 Der Schulleiter betrachtete ihn mit zunehmender Ernsthaftigkeit. "Harry, verstehst du überhaupt, warum ich diese Ereignisse so bedenklich finde?"
 
-"Ehrlich?", sagte Harry. "Nein, nicht wirklich. Natürlich hat Professor McGonagall etwas gegen alles, was die langweilige Monotonie der Hogwarts-Schule auflockert. Aber dann würde Professor McGonagall kein Huhn in Brand stecken."
+"Ehrlich?", sagte Harry. "Nein, nicht wirklich. Natürlich hat Professor McGonagall etwas gegen alles, was die langweilige Monotonie der Hogwarts-Schule auflockert. Aber dann würde Professor McGonagall auch kein Huhn in Brand stecken."
 
 Die Stirnfalten auf Dumbledores faltigem Gesicht vertieften sich. "Das, Harry, ist es nicht, was mich beunruhigt", sagte der Schulleiter leise. "In diesen Hallen wurde eine große Schlacht geschlagen!"
 
@@ -359,7 +357,7 @@ Die Stirnfalten auf Dumbledores faltigem Gesicht vertieften sich. "Das, Harry, i
 
 Dumbledore war zu seinem Schreibtisch zurückgekehrt, setzte sich mit einem dumpfen Schlag auf seinen gepolsterten Thron und bedeckte nun sein Gesicht mit beiden Händen.
 
-"Habe ich hier etwas verpasst?"sagte Harry. "Ich dachte, du wärst insgeheim auf unserer Seite, Schulleiter. Es war das, was Gryffindor tun sollte. Die Weasley-Zwillinge würden es gutheißen, _Fawkes_ würde es gutheißen -"Harry warf einen Blick auf die goldene Sitzstange, aber sie war leer. Entweder hatte der Phönix Wichtigeres zu tun oder der Schulleiter hatte ihn nicht zu dem heutigen Treffen eingeladen.
+"Habe ich hier etwas verpasst?" sagte Harry. "Ich dachte, du wärst insgeheim auf unserer Seite, Schulleiter. Es war das, was Gryffindor tun sollte. Die Weasley-Zwillinge würden es gutheißen, _Fawkes_ würde es gutheißen -" Harry warf einen Blick auf die goldene Sitzstange, aber sie war leer. Entweder hatte der Phönix Wichtigeres zu tun oder der Schulleiter hatte ihn nicht zu dem heutigen Treffen eingeladen.
 
 "Das", sagte der Schulleiter mit einer alten, müden und etwas dumpfen Stimme, "ist genau das Problem, Harry. Es gibt einen Grund, warum mutige junge Helden nicht für Schulen verantwortlich gemacht werden."
 
@@ -367,13 +365,13 @@ Dumbledore war zu seinem Schreibtisch zurückgekehrt, setzte sich mit einem dump
 
 Der alte Zauberer hob den Kopf, sein Gesicht war nun ernst und ruhig. "Hör zu, Harry", sagte Dumbledore, "hör mir gut zu; denn alle, die Macht ausüben, müssen das mit der Zeit lernen. Manche Dinge auf dieser Welt sind in der Tat ganz einfach. Wenn du einen Stein aufhebst und ihn wieder fallen lässt, wird die Erde dadurch nicht schwerer, die Sterne kommen nicht von ihrer Bahn ab. Ich sage das, Harry, damit du weißt, dass ich nicht so tue, als ob ich weise wäre, wenn ich dir sage, dass manche Dinge einfach sind, andere aber komplex sind. Es gibt größere Zauber, die Spuren in der Welt und bei denen, die sie anwenden, hinterlassen, die ein einfacher Zauber nicht hinterlassen würde. Diese Zaubereien erfordern ein Zögern, ein Abwägen der Konsequenzen, einen Moment, um die Bedeutung ihrer Zeichen abzuwägen. Und doch sind die kompliziertesten Magien, die ich kenne, einfacher als die einfachste Seele. Menschen, Harry, Menschen werden immer gezeichnet, durch das, was sie tun und durch das, was ihnen angetan wird. Verstehst du denn, dass es nicht ausreicht zu sagen: 'Hier ist die Grenze zwischen Held und Schurke!', um zu sagen, dass das, was du getan hast, richtig war?"
 
-"Herr Direktor", sagte Harry gleichmäßig, "das ist keine Entscheidung, die ich zufällig getroffen habe. Nein, ich weiß nicht genau, welche Auswirkungen das auf jeden einzelnen der anwesenden Tyrannen haben wird. Aber wenn ich immer auf perfekte Informationen warten würde, bevor ich handele, würde ich nie etwas tun. Wenn es um die zukünftige psychologische Entwicklung von, sagen wir, Peregrine Derrick geht, wäre es wahrscheinlich nicht gut für ihn gewesen, acht Erstklässlerinnen zu verprügeln. Und es reichte nicht aus, sie ruhig und schnell zu stoppen, denn dann würden sie es später einfach wieder versuchen; sie mussten sehen, dass es eine schützende Macht gab, die es wert war, sich zu fürchten. "Harrys Stimme blieb ruhig. "Aber da ich ein guter Kerl bin, wollte ich sie natürlich nicht dauerhaft verletzen oder ihnen Schmerzen zufügen, aber die Strafe musste so hoch sein, dass jeder, der es noch einmal probieren wollte, sich das vorstellen konnte. Nachdem ich die zu erwartenden Folgen so gut wie möglich mit meinem begrenzt rationalen Verstand abgewogen hatte, hielt ich es für das Klügste, die Schläger nackt auszuziehen und an die Decke zu kleben."
+"Herr Direktor", sagte Harry gleichmäßig, "das ist keine Entscheidung, die ich zufällig getroffen habe. Nein, ich weiß nicht genau, welche Auswirkungen das auf jeden einzelnen der anwesenden Tyrannen haben wird. Aber wenn ich immer auf perfekte Informationen warten würde, bevor ich handele, würde ich nie etwas tun. Wenn es um die zukünftige psychologische Entwicklung von, sagen wir, Peregrine Derrick geht, wäre es wahrscheinlich nicht gut für ihn gewesen, acht Erstklässlerinnen zu verprügeln. Und es reichte nicht aus, sie ruhig und schnell zu stoppen, denn dann würden sie es später einfach wieder versuchen; sie mussten sehen, dass es eine schützende Macht gab, die es wert war, sich zu fürchten." Harrys Stimme blieb ruhig. "Aber da ich ein guter Kerl bin, wollte ich sie natürlich nicht dauerhaft verletzen oder ihnen Schmerzen zufügen, aber die Strafe musste so hoch sein, dass jeder, der es noch einmal probieren wollte, sich das vorstellen konnte. Nachdem ich die zu erwartenden Folgen so gut wie möglich mit meinem begrenzt rationalen Verstand abgewogen hatte, hielt ich es für das Klügste, die Schläger nackt auszuziehen und an die Decke zu kleben."
 
 Der junge Held starrte direkt in den Blick des alten Zauberers, dessen grüne Augen unbeirrt auf die blauen hinter der Brille blickten.
 
 Und da ich nicht dabei war und nichts persönlich getan habe, kann ich nach den Hogwarts-Schulregeln nicht bestraft werden; der einzige, der gehandelt hat, war Professor Quirrell, und der ist feuerfest. Und einfach nur die Regeln zu brechen, um an mich heranzukommen, wäre nicht klug für den Helden, den du für den Kampf gegen Lord Voldemort ausbildest... Diesmal _hatte_ Harry tatsächlich versucht, alle Konsequenzen zu bedenken, bevor er Professor Quirrell den Vorschlag machte; und ausnahmsweise hatte der Verteidigungsprofessor ihn nicht als Dummkopf bezeichnet, sondern nur langsam gelächelt und dann zu lachen begonnen.
 
-"Ich verstehe deine Absichten, Harry", sagte der alte Zauberer. "Du denkst, du hast den Tyrannen von Hogwarts eine Lektion erteilt. Aber wenn Peregrine Derrick diese Lektion lernen könnte, wäre er nicht mehr Peregrine Derrick. Was du tust, wird ihn nur noch mehr provozieren - es ist nicht fair, es ist nicht richtig, aber so ist es nun mal. "Der alte Zauberer schloss die Augen, als würde er kurz schmerzen, und öffnete sie dann wieder. "Harry, die schmerzhafteste Wahrheit, die jeder Held lernen muss, ist, dass das Recht nicht jede Schlacht gewinnen kann, soll und darf. All das begann, als Miss Granger gegen drei ältere Feinde kämpfte und gewann. Wenn sie sich damit begnügt hätte, wäre der Nachhall ihrer Tat mit der Zeit verklungen. Doch stattdessen tat sie sich mit ihren Mitschülerinnen und Mitschülern zusammen und hob ihren Zauberstab, um Peregrine Derrick und seinesgleichen herauszufordern, und dieser konnte nicht anders, als seinen eigenen Zauberstab zu erheben. Also ging Jaime Astorga auf die Jagd nach ihr, und natürlich hätte er sie geschlagen; es wäre ein trauriger Tag gewesen, aber es wäre dabei geblieben. Die Magie von acht Hexen im ersten Jahr reicht nicht aus, um einen solchen Feind zu besiegen. Aber das konntest du nicht akzeptieren, Harry, du konntest nicht zulassen, dass Miss Granger ihre eigenen Lektionen lernt, und deshalb hast du den Verteidigungsprofessor geschickt, um unsichtbar über sie zu wachen und Astorgas Schilde zu durchbohren, als Daphne Greengrass ihn angriff -"
+"Ich verstehe deine Absichten, Harry", sagte der alte Zauberer. "Du denkst, du hast den Tyrannen von Hogwarts eine Lektion erteilt. Aber wenn Peregrine Derrick diese Lektion lernen könnte, wäre er nicht mehr Peregrine Derrick. Was du tust, wird ihn nur noch mehr provozieren - es ist nicht fair, es ist nicht richtig, aber so ist es nun mal." Der alte Zauberer schloss die Augen, als würde er kurz schmerzen, und öffnete sie dann wieder. "Harry, die schmerzhafteste Wahrheit, die jeder Held lernen muss, ist, dass das Recht nicht jede Schlacht gewinnen kann, soll und darf. All das begann, als Miss Granger gegen drei ältere Feinde kämpfte und gewann. Wenn sie sich damit begnügt hätte, wäre der Nachhall ihrer Tat mit der Zeit verklungen. Doch stattdessen tat sie sich mit ihren Mitschülerinnen und Mitschülern zusammen und hob ihren Zauberstab, um Peregrine Derrick und seinesgleichen herauszufordern, und dieser konnte nicht anders, als seinen eigenen Zauberstab zu erheben. Also ging Jaime Astorga auf die Jagd nach ihr, und natürlich hätte er sie geschlagen; es wäre ein trauriger Tag gewesen, aber es wäre dabei geblieben. Die Magie von acht Hexen im ersten Jahr reicht nicht aus, um einen solchen Feind zu besiegen. Aber das konntest du nicht akzeptieren, Harry, du konntest nicht zulassen, dass Miss Granger ihre eigenen Lektionen lernt, und deshalb hast du den Verteidigungsprofessor geschickt, um unsichtbar über sie zu wachen und Astorgas Schilde zu durchbohren, als Daphne Greengrass ihn angriff -"
 
 _Was?_ dachte Harry.
 
@@ -387,7 +385,7 @@ Harry kämpfte immer noch mit der Vorstellung, dass der Verteidigungsprofessor u
 
 Die blauen Augen weiteten sich. "Harry..."
 
-"Diese Tyrannen haben schon lange vor diesem Jahr Opfer angegriffen", sagte Harry. Trotz seiner Bemühungen wurde seine Stimme immer lauter. "Aber niemand scheint den Schülern beigebracht zu haben, dass sie sich wehren _dürfen. Ich weiß, dass es viel schwieriger ist, einen zweiseitigen Kampf zu _ignorieren_ als ein paar hilflose Opfer, die verhext oder fast aus dem Fenster gestoßen werden, aber es ist nicht unbedingt _schlimmer_, oder? Ich wünschte, ich hätte mehr von Godric Gryffindors Schriften gelesen, damit ich ihn zitieren könnte, denn da muss doch etwas darüber stehen. Ein offener Kampf mag _lauter_ sein, als wenn die Opfer im Stillen leiden, es mag schwieriger sein, so zu tun, als ob nichts passiert, aber das Endergebnis ist besser -"
+"Diese Tyrannen haben schon lange vor diesem Jahr Opfer angegriffen", sagte Harry. Trotz seiner Bemühungen wurde seine Stimme immer lauter. "Aber niemand scheint den Schülern beigebracht zu haben, dass sie sich wehren _dürfen_. Ich weiß, dass es viel schwieriger ist, einen zweiseitigen Kampf zu _ignorieren_ als ein paar hilflose Opfer, die verhext oder fast aus dem Fenster gestoßen werden, aber es ist nicht unbedingt _schlimmer_, oder? Ich wünschte, ich hätte mehr von Godric Gryffindors Schriften gelesen, damit ich ihn zitieren könnte, denn da muss doch etwas darüber stehen. Ein offener Kampf mag _lauter_ sein, als wenn die Opfer im Stillen leiden, es mag schwieriger sein, so zu tun, als ob nichts passiert, aber das Endergebnis ist besser -"
 
 "Nein, ist es nicht", sagte Dumbledore. "Das ist es nicht, Harry. Die Dunkelheit _immer_ zu bekämpfen, _nie_ das Böse unbehelligt zu lassen - das ist kein Heldentum, sondern einfacher Stolz. Selbst Godric Gryffindor war nicht der Meinung, dass es sich lohnt, in jedem Krieg zu kämpfen, obwohl er sein ganzes Leben lang von einer Schlacht in die nächste zog. "Die Stimme des alten Zauberers wurde leiser. "In Wahrheit, Harry, sind die Worte, die du sprichst, nicht böse. Nein, nicht böse, und doch haben sie mir Angst gemacht. Du bist jemand, der eines Tages große Macht über die Zauberei und über deine Mitzauberer ausüben könnte. Und wenn du an diesem Tag immer noch der Meinung bist, dass das Böse niemals unangefochten bleiben darf -"In der Stimme des Schulleiters lag nun ein Hauch von echter Sorge. "Die Welt ist seit dem Zeitalter von Hogwarts zerbrechlicher geworden; ich fürchte, sie kann die Wut eines weiteren Godric Gryffindor nicht ertragen. Und er war in seinem Zorn langsamer als du. "Der alte Zauberer schüttelte den Kopf. "Du bist zu bereit zu kämpfen, Harry. Du bist viel zu kampfbereit, und Hogwarts selbst wird immer gewalttätiger um dich herum."
 
@@ -417,25 +415,25 @@ Es war etwas, das Harry nicht sagen konnte. Er hatte den Zusammenhang zwischen d
 
 Der Verteidigungsprofessor sprach mit ruhiger Stimme, der Rest des Körpers blieb unbewegt. "Wie lief Ihr Treffen mit dem Schulleiter, Mr. Potter?"
 
-"Ich bin mir nicht sicher", sagte Harry. "Nicht so, wie ich es vorausgesagt habe. Er scheint zu glauben, dass das Licht viel öfter verlieren sollte, als ich es für klug halte. Außerdem bin ich mir nicht sicher, ob er den Unterschied zwischen dem Versuch zu kämpfen und dem Versuch zu gewinnen versteht. Das erklärt eigentlich eine Menge... "Harry hatte nicht viel über den Zaubererkrieg gelesen, aber er hatte genug gelesen, um zu wissen, dass die Guten sich wahrscheinlich ein ziemlich genaues Bild davon gemacht hatten, wer die schlimmsten Todesser waren, und dass sie nicht einfach alle innerhalb von fünf Minuten mit Handgranaten beworfen hatten.
+"Ich bin mir nicht sicher", sagte Harry. "Nicht so, wie ich es vorausgesagt habe. Er scheint zu glauben, dass das Licht viel öfter verlieren sollte, als ich es für klug halte. Außerdem bin ich mir nicht sicher, ob er den Unterschied zwischen dem Versuch zu kämpfen und dem Versuch zu gewinnen versteht. Das erklärt eigentlich eine Menge..." Harry hatte nicht viel über den Zaubererkrieg gelesen, aber er hatte genug gelesen, um zu wissen, dass die Guten sich wahrscheinlich ein ziemlich genaues Bild davon gemacht hatten, wer die schlimmsten Todesser waren, und dass sie nicht einfach alle innerhalb von fünf Minuten hatten Handgranaten per Eulenpost zukommen lassen.
 
 Ein leises, sanftes Lachen kommt von den blassen Lippen. "Dumbledore versteht die Freude am Gewinnen nicht, genauso wie er die Freude am Spiel nicht versteht. Sagen Sie mir, Mr. Potter. Hast du diesen kleinen Plan absichtlich vorgeschlagen, um meine Langeweile zu lindern?"
 
 "Das war einer meiner vielen Beweggründe", sagte Harry, denn ein Instinkt hatte ihn gewarnt, dass er nicht einfach _Ja_ sagen konnte.
 
-"Weißt du", sagte der Verteidigungsprofessor in sanftem, nachdenklichem Ton, "es gibt Menschen, die versucht haben, meine dunklen Stimmungen zu mildern, und solche, die tatsächlich dazu beigetragen haben, meinen Tag aufzuhellen, aber du bist die erste Person, der es jemals gelungen ist, dies absichtlich zu tun."Der Verteidigungsprofessor schien sich mit einer seltsamen Bewegung von der Wand aufzurichten, die sowohl Magie als auch Muskeln beinhaltet haben könnte, und begann zu gehen, ohne einen Blick zurück in Harrys Richtung zu werfen. Nur eine kleine Geste mit einem Finger zeigte an, dass Harry folgen sollte.
+"Weißt du", sagte der Verteidigungsprofessor in sanftem, nachdenklichem Ton, "es gibt Menschen, die versucht haben, meine dunklen Stimmungen zu mildern, und solche, die tatsächlich dazu beigetragen haben, meinen Tag aufzuhellen, aber du bist die erste Person, der es jemals gelungen ist, dies absichtlich zu tun." Der Verteidigungsprofessor schien sich mit einer seltsamen Bewegung von der Wand aufzurichten, die sowohl Magie als auch Muskeln beinhaltet haben könnte, und begann zu gehen, ohne einen Blick zurück in Harrys Richtung zu werfen. Nur eine kleine Geste mit einem Finger zeigte an, dass Harry folgen sollte.
 
-"Der Gesang, den du für Miss Davis komponiert hast, hat mir besonders gut gefallen", sagte Professor Quirrell, nachdem sie eine kurze Strecke gegangen waren. "Es wäre allerdings klüger gewesen, wenn du mich vorher gefragt hättest, bevor du es ihr zum Auswendiglernen gibst. "Eine Hand wanderte in die Robe des Verteidigungsprofessors und zog einen Zauberstab hervor, der eine kleine Geste in die Luft zeichnete, woraufhin alle fernen Geräusche von Schloss Hogwarts verstummten. "Sagen Sie mir ehrlich, Mr. Potter, haben Sie sich irgendwie mit der Theorie der dunklen Rituale vertraut gemacht? Das ist nicht dasselbe wie das Eingeständnis einer Absicht, sie zu wirken; viele Zauberer kennen die Prinzipien."
+"Der Gesang, den du für Miss Davis komponiert hast, hat mir besonders gut gefallen", sagte Professor Quirrell, nachdem sie eine kurze Strecke gegangen waren. "Es wäre allerdings klüger gewesen, wenn du mich vorher gefragt hättest, bevor du es ihr zum Auswendiglernen gibst." Eine Hand wanderte in die Robe des Verteidigungsprofessors und zog einen Zauberstab hervor, der eine kleine Geste in die Luft zeichnete, woraufhin alle fernen Geräusche von Schloss Hogwarts verstummten. "Sagen Sie mir ehrlich, Mr. Potter, haben Sie sich irgendwie mit der Theorie der dunklen Rituale vertraut gemacht? Das ist nicht dasselbe wie das Eingeständnis einer Absicht, sie zu wirken; viele Zauberer kennen die Prinzipien."
 
-"Nein... "sagte Harry langsam. Er hatte sich schon vor einiger Zeit dagegen entschieden, sich in die verbotene Abteilung der Hogwarts-Bibliothek zu schleichen, und zwar aus demselben Grund, aus dem er ein Jahr zuvor beschlossen hatte, _nicht_ nachzuschauen, wie man aus gewöhnlichen Haushaltsmaterialien Sprengstoff herstellt. Harry war stolz darauf, dass er wenigstens _mehr_ Verstand hatte, als die Leute dachten.
+"Nein..." sagte Harry langsam. Er hatte sich schon vor einiger Zeit dagegen entschieden, sich in die verbotene Abteilung der Hogwarts-Bibliothek zu schleichen, und zwar aus demselben Grund, aus dem er ein Jahr zuvor beschlossen hatte, _nicht_ nachzuschauen, wie man aus gewöhnlichen Haushaltsmaterialien Sprengstoff herstellt. Harry war stolz darauf, dass er wenigstens _mehr_ Verstand hatte, als die Leute dachten.
 
 "Oh?", sagte Professor Quirrell. Der Mann ging jetzt normaler, und seine Lippen verzogen sich zu einem seltsamen Lächeln. "Vielleicht hast du ja ein Naturtalent für dieses Gebiet."
 
 "Ja, gut", sagte Harry müde. "Ich nehme an, Dr. Seuss hat auch ein natürliches Talent für dunkle Rituale, denn der Teil über _shuffle, duffle, muzzle, muff_ stammt aus einem Kinderbuch namens _Bartholomew and the Oobleck_ -"
 
-"Nein, nicht dieser Teil", sagte Professor Quirrell. Seine Stimme wurde etwas kräftiger und nahm ihren normalen belehrenden Ton an. "Ein gewöhnlicher Zauberspruch, Mr. Potter, kann nur durch das Sprechen bestimmter Worte, durch präzise Bewegungen des Zauberstabs und durch den Einsatz deiner eigenen Kraft gewirkt werden. Sogar mächtige Zaubersprüche können auf diese Weise beschworen werden, wenn die Magie sowohl effizient als auch wirkungsvoll ist. Aber bei der größten Magie reicht die Sprache allein nicht aus, um ihr eine Struktur zu geben. Du musst bestimmte Handlungen ausführen und wichtige Entscheidungen treffen. Auch der vorübergehende Einsatz deiner eigenen Kraft reicht nicht aus, um sie in Gang zu setzen; ein Ritual erfordert ständige Opfer. Die Macht eines solchen größeren Zaubers ist im Vergleich zu gewöhnlichen Zaubern wie der Tag im Vergleich zur Nacht. Aber viele Rituale - ja, die meisten - verlangen mindestens ein Opfer, das zu Zimperlichkeit führen könnte. Und so wird der gesamte Bereich der rituellen Magie, der die weitesten und interessantesten Bereiche der Zauberei umfasst, weithin als dunkel angesehen. Natürlich mit ein paar Ausnahmen, die sich aus der Tradition ergeben. "Professor Quirrells Stimme bekam einen sardonischen Beigeschmack. "Das unbrechbare Gelübde ist für bestimmte wohlhabende Häuser zu nützlich, um ganz verboten zu werden - auch wenn die Bindung des Willens eines Menschen für alle Zeiten in der Tat eine furchtbare und schreckliche Tat ist, furchterregender als viele geringere Rituale, die Zauberer meiden. Ein Zyniker könnte zu dem Schluss kommen, dass die Frage, welche Rituale verboten sind, weniger eine Frage der Moral als der Gewohnheit ist. Aber ich schweife ab... "Professor Quirrell gab ein kurzes Hustengeräusch von sich, ein Räuspern. "Der unbrechbare Schwur erfordert drei Teilnehmer und drei Opfer. Derjenige, der das unbrechbare Gelübde erhält, muss jemand sein, der dem Geber hätte vertrauen können, sich aber stattdessen dafür entscheidet, das Gelübde von ihm zu verlangen, und er opfert diese Möglichkeit des Vertrauens. Derjenige, der das Gelübde ablegt, muss jemand sein, der die Wahl hat, das zu tun, was das Gelübde von ihm verlangt, und er opfert diese Wahlmöglichkeit. Und der dritte Zauberer, der Binder, opfert dauerhaft einen kleinen Teil seiner eigenen Magie, um das Gelübde für immer aufrechtzuerhalten."
+"Nein, nicht dieser Teil", sagte Professor Quirrell. Seine Stimme wurde etwas kräftiger und nahm ihren normalen belehrenden Ton an. "Ein gewöhnlicher Zauberspruch, Mr. Potter, kann nur durch das Sprechen bestimmter Worte, durch präzise Bewegungen des Zauberstabs und durch den Einsatz deiner eigenen Kraft gewirkt werden. Sogar mächtige Zaubersprüche können auf diese Weise beschworen werden, wenn die Magie sowohl effizient als auch wirkungsvoll ist. Aber bei der größten Magie reicht die Sprache allein nicht aus, um ihr eine Struktur zu geben. Du musst bestimmte Handlungen ausführen und wichtige Entscheidungen treffen. Auch der vorübergehende Einsatz deiner eigenen Kraft reicht nicht aus, um sie in Gang zu setzen; ein Ritual erfordert ständige Opfer. Die Macht eines solchen größeren Zaubers ist im Vergleich zu gewöhnlichen Zaubern wie der Tag im Vergleich zur Nacht. Aber viele Rituale - ja, die meisten - verlangen mindestens ein Opfer, das zu Zimperlichkeit führen könnte. Und so wird der gesamte Bereich der rituellen Magie, der die weitesten und interessantesten Bereiche der Zauberei umfasst, weithin als dunkel angesehen. Natürlich mit ein paar Ausnahmen, die sich aus der Tradition ergeben." Professor Quirrells Stimme bekam einen sardonischen Beigeschmack. "Der unbrechbare Schwur ist für bestimmte wohlhabende Häuser zu nützlich, um ganz verboten zu werden - auch wenn die Bindung des Willens eines Menschen für alle Zeiten in der Tat eine furchtbare und schreckliche Tat ist, furchterregender als viele geringere Rituale, die Zauberer meiden. Ein Zyniker könnte zu dem Schluss kommen, dass die Frage, welche Rituale verboten sind, weniger eine Frage der Moral als der Gewohnheit ist. Aber ich schweife ab..." Professor Quirrell gab ein kurzes Hustengeräusch von sich, ein Räuspern. "Der unbrechbare Schwur erfordert drei Teilnehmer und drei Opfer. Derjenige, der den unbrechbaren Schwur erhält, muss jemand sein, der dem Geber hätte vertrauen können, sich aber stattdessen dafür entscheidet, das Gelübde von ihm zu verlangen, und er opfert diese Möglichkeit des Vertrauens. Derjenige, der den Schwur ablegt, muss jemand sein, der die Wahl hat, das zu tun, was der Schwur von ihm verlangt, und er opfert diese Wahlmöglichkeit. Und der dritte Zauberer, der Binder, opfert dauerhaft einen kleinen Teil seiner eigenen Magie, um den Schwur für immer aufrechtzuerhalten."
 
-"Ah", sagte Harry. "Ich habe mich gefragt, warum dieser Zauber nicht überall angewendet wird, wenn zwei Menschen einander nicht vertrauen können... obwohl... Warum verlangen Zauberer auf dem Sterbebett nicht Geld, um unbrechbare Gelübde zu binden, und verwenden es, um ihren Kindern ein Erbe zu hinterlassen?
+"Ah", sagte Harry. "Ich habe mich gefragt, warum dieser Zauber nicht überall angewendet wird, wenn zwei Menschen einander nicht vertrauen können... obwohl... Warum verlangen Zauberer auf dem Sterbebett nicht Geld, um unbrechbare Schwüre zu binden, und verwenden es, um ihren Kindern ein Erbe zu hinterlassen?
 
 "Weil sie dumm sind", sagte Professor Quirrell. "Es gibt Hunderte von nützlichen Ritualen, die durchgeführt werden könnten, wenn die Menschen so viel Verstand hätten; ich könnte zwanzig aufzählen, ohne zu Atem zu kommen. Aber in jedem Fall, Mr. Potter, geht es bei solchen Ritualen - ob du sie nun als dunkel bezeichnest oder nicht - darum, dass sie magisch wirksam sind, und nicht darum, dass sie beeindruckend wirken, wenn sie durchgeführt werden. Ich vermute, es gibt eine gewisse Tendenz, dass die mächtigeren Rituale schrecklichere Opfer erfordern. Doch für das schrecklichste Ritual, das ich kenne, braucht man nur einen Strick, mit dem man einen Mann aufgehängt hat, und ein Schwert, mit dem man eine Frau erschlagen hat; und das für ein Ritual, das versprach, den Tod selbst herbeizurufen - obwohl ich nicht weiß, was damit wirklich gemeint ist, und mich auch nicht dafür interessiere, denn es hieß auch, dass der Gegenzauber, mit dem man den Tod entlassen kann, verloren gegangen sei. Der schrecklichste Gesang, der mir je begegnet ist, klingt nicht einmal ein Hundertstel so furchterregend wie der, den du für Miss Davis komponiert hast. Diejenigen unter den Schlägern, die mit den dunklen Ritualen vertraut waren - und ich bin mir sicher, dass es einige waren -, müssen einen unbeschreiblichen Schrecken erlebt haben. Wenn es ein echtes Ritual gäbe, das so beeindruckend aussieht, Mr. Potter, würde es die Erde schmelzen."
 
@@ -443,7 +441,7 @@ Ein leises, sanftes Lachen kommt von den blassen Lippen. "Dumbledore versteht di
 
 Professor Quirrells Lippen verzogen sich weiter. "Ah, aber das wirklich Lustige war Folgendes. Siehst du, Mr. Potter, der Gesang jedes Rituals nennt das, was geopfert werden soll, und das, was gewonnen werden soll. Der Gesang, den du Miss Davis gegeben hast, sprach erstens von einer Dunkelheit jenseits der Dunkelheit, die unter dem Fluss der Zeit begraben ist, die das Tor kennt und das Tor ist. Und die zweite Sache, von der Sie sprachen, Mr. Potter, war die Manifestation Ihrer eigenen Anwesenheit. Und immer wird in jedem Element des Rituals _zuerst_ das genannt, was geopfert wird, und _dann_ wird gesagt, was damit geschehen soll."
 
-"I... Siehst du", sagte Harry, als er hinter Professor Quirrell durch die Hallen von Hogwarts schritt und ihm in Richtung des Büros des Verteidigungsprofessors folgte. "Mein Gesang, so wie ich ihn geschrieben habe, impliziert also, dass der äußere Gott, Yog-Sothoth -"
+"Ich ... verstehe", sagte Harry, als er hinter Professor Quirrell durch die Hallen von Hogwarts schritt und ihm in Richtung des Büros des Verteidigungsprofessors folgte. "Mein Gesang, so wie ich ihn geschrieben habe, impliziert also, dass der äußere Gott, Yog-Sothoth -"
 
 "Er wurde in einem Ritual dauerhaft geopfert, das nur kurz deine Anwesenheit zeigte", sagte Professor Quirrell. "Ich nehme an, wir werden morgen herausfinden, ob das irgendjemand ernst genommen hat, wenn wir die Zeitungen lesen und sehen, ob sich alle magischen Nationen der Welt in einem verzweifelten Versuch zusammenschließen, um deinen Einbruch in unsere Realität zu verhindern."
 
@@ -471,27 +469,27 @@ Es waren zwei Stunden vergangen, seit das _Was?_ passiert war, und Daphnes Gehir
 
 Im Klassenzimmer war es still, als sie alle auf Professor Snape warteten. Lavender und Parvati saßen in der Nähe einer Gruppe anderer Gryffindors, umgeben von schweigenden Blicken. Die beiden sahen sich gegenseitig ihre Hausaufgaben an, bevor der Unterricht begann, und niemand sonst half ihnen oder sprach mit ihnen. Selbst Lavender, von der Daphne geschworen hätte, dass sie sich durch nichts aus der Ruhe bringen lässt, wirkte gedämpft.
 
-Daphne setzte sich an ihren Schreibtisch, holte _Zauberhaftes Damespiel und Zaubertränke_ aus ihrer Tasche und begann, ihre eigenen Hausaufgaben durchzusehen, wobei sie ihr Bestes gab, normal zu wirken. Die Leute starrten sie an und sagten nichts -.
+Daphne setzte sich an ihren Schreibtisch, holte _Zauberhaftes Damespiel und Zaubertränke_ aus ihrer Tasche und begann, ihre eigenen Hausaufgaben durchzusehen, wobei sie ihr Bestes gab, normal zu wirken. Die Leute starrten sie an und sagten nichts -
 
 Ein Aufschrei ging durch das ganze Klassenzimmer. Die Mädchen und Jungen wichen zurück und lehnten sich von der Tür weg, als wären sie Weizenhalme, die von einem Windstoß berührt wurden.
 
 In der Tür stand Tracey Davis, eingehüllt in einen schwarzen, zerfledderten Mantel, den sie über ihre Hogwarts-Uniform gehängt hatte.
 
-Tracey ging langsam in das Klassenzimmer, schwankte leicht bei jedem Schritt und sah aus, als würde sie versuchen, sich zu _treiben_ Sie setzte sich an ihren gewohnten Schreibtisch, der zufällig direkt neben dem von Daphne stand.
+Tracey ging langsam in das Klassenzimmer, schwankte leicht bei jedem Schritt und sah aus, als würde sie versuchen, sich zu _treiben_. Sie setzte sich an ihren gewohnten Schreibtisch, der zufällig direkt neben dem von Daphne stand.
 
 Langsam drehte Tracey ihren Kopf und starrte Daphne an.
 
-"Siehst du?", sagte das Slytherin-Mädchen in einem tiefen, düsteren Ton. UNTRANSLATED: "I told you I'd get him before she did."
+"Siehst du?", sagte das Slytherin-Mädchen in einem tiefen, düsteren Ton. "Ich habe Dir gesagt ich kriege ihn bevor Sie es tut."
 
 "Was?", platzte Daphne heraus, die sich sofort wünschte, sie hätte nichts gesagt.
 
-"Ich habe Harry Potter vor Granger bekommen. "Traceys Stimme war immer noch leise, aber ihre Augen funkelten vor Triumph. "Siehst du, Daphne, was General Potter von einem Mädchen will, ist kein hübsches Gesicht oder ein hübsches Kleid. Er will ein Mädchen, das bereit ist, seine schrecklichen Kräfte zu kanalisieren, das will er. Jetzt gehöre ich ihm - und er gehört mir!"
+"Ich habe Harry Potter vor Granger bekommen." Traceys Stimme war immer noch leise, aber ihre Augen funkelten vor Triumph. "Siehst du, Daphne, was General Potter von einem Mädchen will, ist kein hübsches Gesicht oder ein hübsches Kleid. Er will ein Mädchen, das bereit ist, seine schrecklichen Kräfte zu kanalisieren, das will er. Jetzt gehöre ich ihm - und er gehört mir!"
 
 Diese Ankündigung löste eine eisige Stille im ganzen Klassenzimmer aus.
 
 "Entschuldigen Sie, Miss Davis", sagte die kultivierte Stimme von Draco Malfoy, der scheinbar unbeteiligt in seinen Zaubertränke-Papieren blätterte. Der andere Spross eines der ältesten Häuser blickte nicht einmal von seinem Schreibtisch auf, selbst als sich alle anderen nach ihm umdrehten. "Hat Harry Potter dir das wirklich _gesagt_? Mit diesen Worten?"
 
-"Nun, nein... "sagte Tracey, und dann blitzten ihre Augen wütend auf. "Aber er sollte mich besser aufnehmen, jetzt, wo ich ihm meine Seele geopfert habe und so weiter!"
+"Nun, nein... " sagte Tracey, und dann blitzten ihre Augen wütend auf. "Aber er sollte mich besser aufnehmen, jetzt, wo ich ihm meine Seele geopfert habe und so weiter!"
 
 "Du hast deine Seele Harry Potter geopfert?", keuchte Millicent. Auf der anderen Seite des Raumes klapperte es, als Ron Weasley sein Tintenfass fallen ließ.
 
@@ -499,13 +497,13 @@ Diese Ankündigung löste eine eisige Stille im ganzen Klassenzimmer aus.
 
 Es gab eine Pause, die nur durch das Geräusch von Ron Weasley unterbrochen wurde, der versuchte, seinen Schreibtisch aufzuräumen.
 
-"Daphne?"sagte Tracey.
+"Daphne?" sagte Tracey.
 
 "Das glaube ich nicht", sagte eine wütende Stimme. "Der nächste Dunkle Lord würde _dich_ auf keinen Fall zur Braut nehmen!"
 
 Langsam und ungläubig drehten sich die Köpfe und starrten Pansy Parkinson an.
 
-"Sei still, du", sagte Tracey, "oder ich werde es tun... "Das Slytherin-Mädchen hielt inne. Dann wurde Traceys Stimme noch leiser und sie sagte: "Still, du, oder ich werde deine Seele verschlingen."
+"Sei still, du", sagte Tracey, "oder ich werde es tun..." Das Slytherin-Mädchen hielt inne. Dann wurde Traceys Stimme noch leiser und sie sagte: "Still, du, oder ich werde deine Seele verschlingen."
 
 "Das kannst du nicht tun", sagte Pansy mit der Zuversicht einer Henne, die sich eine Hackordnung zurechtgelegt hatte, in der sie an der Spitze stand, und die nicht bereit war, diese Überzeugung aufgrund von bloßen Beweisen zu ändern.
 
@@ -513,7 +511,7 @@ Langsam, als würde sie versuchen zu schweben, stand Tracey von ihrem Schreibtis
 
 "Tracey?", sagte Lavender mit leiser Stimme. "Bitte mach das nicht noch einmal. Bitte?"
 
-Jetzt wurde Pansy deutlich nervöser, als Tracey zu ihrem Schreibtisch schwankte. "Was glaubst du, was du da tust?"sagte Pansy und schaffte es nicht ganz, entrüstet zu klingen.
+Jetzt wurde Pansy deutlich nervöser, als Tracey zu ihrem Schreibtisch schwankte. "Was glaubst du, was du da tust?" sagte Pansy und schaffte es nicht ganz, entrüstet zu klingen.
 
 "Ich habe es dir gesagt", sagte Tracey bedrohlich. "Ich werde deine Seele verschlingen."
 
@@ -523,19 +521,19 @@ Tracey beugte sich über Pansy, die wie erstarrt an ihrem Schreibtisch saß, und
 
 "Nein, hast du nicht!", sagte Pansy.
 
-"Ich auch!", sagte Tracey.
+"Doch hab ich!", sagte Tracey.
 
 Es gab eine kleine Pause -.
 
 "Merlin, sie hat es getan!", rief Theodore Nott. "Du siehst ganz blass aus und deine Augen wirken leer!"
 
-"_Was?_ ", kreischte Pansy und wurde blass. Das Mädchen sprang von ihrem Schreibtisch auf und begann hektisch in ihrer Büchertasche zu wühlen. Als Pansy einen Spiegel hervorzog und sich selbst betrachtete, wurde sie noch blasser.
+"_Was?_", kreischte Pansy und wurde blass. Das Mädchen sprang von ihrem Schreibtisch auf und begann hektisch in ihrer Büchertasche zu wühlen. Als Pansy einen Spiegel hervorzog und sich selbst betrachtete, wurde sie noch blasser.
 
 Daphne gab jeden Anschein von aristokratischer Haltung auf und ließ ihren Kopf mit einem dumpfen Aufschlag auf den Tisch fallen, während sie sich fragte, ob es sich wirklich lohnte, mit all den anderen wichtigen Familien auf dieselbe Schule zu gehen wie die Chaoslegion.
 
 "Oh, jetzt steckst du in Schwierigkeiten, Pansy", sagte Seamus Finnigan. "Ich weiß nicht genau, was passiert, wenn dich ein Dementor küsst, aber wenn Tracey Davis dich küsst, ist das wahrscheinlich noch schlimmer."
 
-"Ich habe schon von Menschen ohne Seele gehört", sagte Dekan Thomas düster. "Sie müssen sich ganz in Schwarz kleiden, sie schreiben schreckliche Gedichte und nichts macht sie jemals glücklich. Sie sind alle _angstvoll_ "
+"Ich habe schon von Menschen ohne Seele gehört", sagte Dekan Thomas düster. "Sie müssen sich ganz in Schwarz kleiden, sie schreiben schreckliche Gedichte und nichts macht sie jemals glücklich. Sie sind alle _ängstlich_."
 
 "Ich will nicht ängstlich sein!", rief Pansy.
 
@@ -543,7 +541,7 @@ Daphne gab jeden Anschein von aristokratischer Haltung auf und ließ ihren Kopf 
 
 Pansy drehte sich um und streckte eine flehende Hand nach Draco Malfoys Schreibtisch aus. "Draco!", sagte sie flehentlich. "Mr. Malfoy! Bitte, mach, dass Tracey mir meine Seele zurückgibt!"
 
-"Ich kann nicht", sagte Tracey. "Ich _mache_ es."
+"Ich kann nicht", sagte Tracey.
 
 "Sie soll es auskotzen!", schrie Pansy.
 
@@ -551,12 +549,12 @@ Der Erbe von Malfoy war nach vorne gesunken und hatte seinen Kopf in beide Händ
 
 Ein wildes Getuschel setzte ein, als Tracey zu ihrem Pult zurückkehrte und zufrieden lächelte, während Pansy in der Mitte des Klassenzimmers stand, die Hände rang und Tränen in den Augen hatte -.
 
-_"Sei. Ruhig. "_
+_"Sei. Ruhig."_
 
 Die sanfte, tödliche Stimme schien das ganze Klassenzimmer zu erfüllen, als Professor Snape durch die Tür stakste. Sein Gesicht war so wütend, wie Daphne es noch nie gesehen hatte, und ein echter Angstschauer lief ihr über den Rücken. Hastig schaute sie auf ihre Hausaufgaben hinunter.
 
 "Setz dich, Parkinson", zischte der Meister der Zaubertränke, "und du, Davis, nimmst diesen lächerlichen Umhang ab..."
 
-"_Professor Snaaaaaape!_ ", weinte Pansy Parkinson. "_Tracey hat mein Sooouuul gegessen!_ "
+"_Professor Snaaaaaape!_ ", weinte Pansy Parkinson. "_Tracey hat meine Seeeele gegessen!_"
 
 → [Kapitel 75](Kapitel-75.md)

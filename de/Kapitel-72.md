@@ -8,13 +8,13 @@ Sie gingen hinaus, ohne ein Wort zu sagen, und gingen weiter, bis das entfernte 
 
 "Warum hast du das getan, Harry?"
 
-"Was tun?", sagte der Junge, der lebte, in einem abstrakten Ton, als ob er mit seinen Gedanken ganz woanders wäre und über viel wichtigere Dinge nachdachte.
+"Was getan?", sagte der Junge, der lebte, in einem abstrakten Ton, als ob er mit seinen Gedanken ganz woanders wäre und über viel wichtigere Dinge nachdachte.
 
 "Ich meine, warum hast du ihnen nicht einfach _nein_ gesagt?"
 
 "Nun", sagte Harry, während ihre Schuhe über die Fliesen klapperten, "ich kann nicht einfach jedes Mal 'Nein' sagen, wenn mich jemand nach etwas fragt, das ich nicht getan habe. Angenommen, jemand fragt mich: "Harry, hast du den Streich mit der unsichtbaren Farbe gemacht?", und ich sage "Nein" Dann fragt jemand: "Harry, weißt du, wer den Besenstiel des Gryffindor-Suchers manipuliert hat?", und ich sage: "Ich weigere mich, diese Frage zu beantworten. ' Das ist eine Art Werbegeschenk."
 
-"Und _das_ ist der Grund", sagte Hermine vorsichtig, "dass du es allen erzählt hast... "Sie konzentrierte sich und erinnerte sich an die genauen Worte. "Wenn es eine Verschwörung gäbe, könntest du weder bestätigen noch leugnen, dass der wahre Meister der Verschwörung der Geist von Salazar Slytherin ist, und du könntest nicht einmal zugeben, dass die Verschwörung existiert, also sollten die Leute aufhören, dir Fragen darüber zu stellen."
+"Und _das_ ist der Grund", sagte Hermine vorsichtig, "dass du es allen erzählt hast..." Sie konzentrierte sich und erinnerte sich an die genauen Worte. "Wenn es eine Verschwörung gäbe, könntest du weder bestätigen noch leugnen, dass der wahre Meister der Verschwörung der Geist von Salazar Slytherin ist, und du könntest nicht einmal zugeben, dass die Verschwörung existiert, also sollten die Leute aufhören, dir Fragen darüber zu stellen."
 
 "Ja", sagte Harry Potter und lächelte leicht. "Das wird sie lehren, hypothetische Szenarien zu ernst zu nehmen."
 
@@ -22,7 +22,7 @@ Sie gingen hinaus, ohne ein Wort zu sagen, und gingen weiter, bis das entfernte 
 
 "Sie werden dir vielleicht nicht glauben, wenn du es leugnest", sagte Harry. "Es ist also besser, nichts zu sagen, es sei denn, du willst, dass sie dich für einen Lügner halten."
 
-"Aber -"sagte Hermine hilflos. "Aber - aber jetzt denken die Leute, ich _mache_ etwas für _Salazar Slytherin_!"Die Art und Weise, wie die Gryffindors sie angeschaut hatten - die Art und Weise, wie die _Slytherins_ sie angeschaut hatten -.
+"Aber -" sagte Hermine hilflos. "Aber - aber jetzt denken die Leute, ich _mache_ etwas für _Salazar Slytherin_!" Die Art und Weise, wie die Gryffindors sie angeschaut hatten - die Art und Weise, wie die _Slytherins_ sie angeschaut hatten -.
 
 "Das gehört dazu, wenn man ein Held ist", sagte Harry. "Hast du gesehen, was der _Quibbler_ über _mich_ schreibt?"
 
@@ -32,13 +32,13 @@ Das war genug, um die ganze Sache mit der Heldin zweimal zu überdenken.
 
 Harrys Stimme wurde ein bisschen förmlicher. "Da wir gerade davon sprechen, Miss Granger, wie läuft deine letzte Suche?"
 
-"Nun", sagte Hermine, "wenn der Geist von Salazar Slytherin nicht wirklich auftaucht und uns sagt, wo wir Tyrannen finden können, glaube ich nicht, dass wir viel Glück haben werden. "Nicht, dass ihr das leid tat.
+"Nun", sagte Hermine, "wenn der Geist von Salazar Slytherin nicht wirklich auftaucht und uns sagt, wo wir Tyrannen finden können, glaube ich nicht, dass wir viel Glück haben werden." Nicht, dass ihr das leid tat.
 
 Sie schaute zu Harry hinüber und sah, wie der Junge sie mit einem seltsam intensiven Blick bedachte.
 
 "Weißt du, Hermine", sagte der Junge leise, als wolle er sichergehen, dass es niemand sonst auf der Welt hörte, "ich glaube, du hast recht. Ich glaube, manche Menschen bekommen viel mehr Hilfe als andere, um Helden zu werden. Und _ich_ finde das auch nicht fair."
 
-Harry griff nach ihrem Hexengewand, das über ihrem Arm lag, und drängte sie in eine Seitenhalle des Korridors, durch den sie gingen. Ihr Mund stand vor Überraschung offen, selbst als Harrys Zauberstab in seine Hand kam. Sie bogen um eine Kurve der Seitenhalle, die so eng war, dass sie und Harry fast ineinander geschoben wurden, selbst als Harry auf den Weg wies, den sie gekommen waren, und leise "_Quietus_"sagte, und einen Moment später, in die andere Richtung, wieder "_Quietus_"
+Harry griff nach ihrem Hexengewand, das über ihrem Arm lag, und drängte sie in eine Seitenhalle des Korridors, durch den sie gingen. Ihr Mund stand vor Überraschung offen, selbst als Harrys Zauberstab in seine Hand kam. Sie bogen um eine Kurve der Seitenhalle, die so eng war, dass sie und Harry fast ineinander geschoben wurden, selbst als Harry auf den Weg wies, den sie gekommen waren, und leise "_Quietus_" sagte, und einen Moment später, in die andere Richtung, wieder "_Quietus_"
 
 Der Junge schaute sich suchend um, nicht nur nach allen Seiten, sondern auch nach oben zur Decke und nach unten zum Boden.
 

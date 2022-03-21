@@ -2,7 +2,7 @@
 
 In aufsteigenden Halbkreisen aus dunklem Stein, ein großes Meer von erhobenen Händen.
 
-Die Herren und Damen des Wizengamots, die in pflaumenfarbenen Roben mit einem silbernen "W"steckten, starrten tadelnd auf ein junges Mädchen herab, das in Ketten zitterte. Wenn sie sich in einem bestimmten ethischen System selbst verdammt hatten, dann hielten sie sich offensichtlich für ziemlich gut, weil sie das getan hatten.
+Die Herren und Damen des Wizengamots, die in pflaumenfarbenen Roben mit einem silbernen "W" steckten, starrten tadelnd auf ein junges Mädchen herab, das in Ketten zitterte. Wenn sie sich in einem bestimmten ethischen System selbst verdammt hatten, dann hielten sie sich offensichtlich für ziemlich gut, weil sie das getan hatten.
 
 Harrys Atem zitterte in seiner Brust. Seine dunkle Seite hatte sich einen Plan ausgedacht - und sich dann wieder zurückgedreht, denn zu eisig zu sprechen wäre nicht zu Hermines Vorteil; eine Tatsache, die der nur halbwegs kalte Harry irgendwie nicht erkannt hatte...
 
@@ -332,7 +332,7 @@ Harry streckte seine Arme aus -.
 
 \- und Hermine sprang halb in Professor McGonagalls Arme und begann hysterisch zu schluchzen.
 
-_Hmpfh,_ sagte eine Stimme in Harry. Ich dachte eigentlich, dass wir uns das selbst verdient hätten. _
+_Hmpfh,_ sagte eine Stimme in Harry. _Ich dachte eigentlich, dass wir uns das selbst verdient hätten._
 
 Oh, halt die Klappe. _
 
@@ -368,7 +368,7 @@ Aber es gibt nur wenige, die auf diesen Holzbänken sitzen und nicht so denken.
 
 Es gibt einige wenige im Wizengamot, die in halb zerfallenen Schriftrollen gelesen und sich Geschichten über Dinge angehört haben, die dem Cousin des Bruders von jemandem passiert sind, nicht zur Unterhaltung, sondern als Teil einer Suche nach Macht und Wahrheit. Sie haben die Nacht von Godric's Hollow, von der Albus Dumbledore berichtet hat, bereits als anormales und möglicherweise wichtiges Ereignis markiert. Sie haben sich gefragt, warum es passiert ist, wenn es passiert ist; oder wenn nicht, warum Dumbledore lügt.
 
-Und wenn sich ein elfjähriger Junge erhebt und "Lucius Malfoy"mit dieser kalten Erwachsenenstimme sagt und dann Worte spricht, die man von einem Erstklässler in Hogwarts einfach nicht erwarten würde, dann lassen sie die Tatsache nicht in die gesetzlosen Unschärfen von Legenden und die Prämissen von Theaterstücken gleiten.
+Und wenn sich ein elfjähriger Junge erhebt und "Lucius Malfoy" mit dieser kalten Erwachsenenstimme sagt und dann Worte spricht, die man von einem Erstklässler in Hogwarts einfach nicht erwarten würde, dann lassen sie die Tatsache nicht in die gesetzlosen Unschärfen von Legenden und die Prämissen von Theaterstücken gleiten.
 
 Sie markieren es als Hinweis.
 
@@ -376,6 +376,6 @@ Sie fügen es der Liste hinzu.
 
 Diese Liste sieht langsam etwas beunruhigend aus.
 
-Da hilft es auch nicht, wenn der Junge einen Dementor mit "Buh!"anschreit und der verwesende Kadaver sich flach an die gegenüberliegende Wand drückt und seine schreckliche, ohrenbetäubende Stimme rasselt: "Mach, dass er weggeht. _"
+Da hilft es auch nicht, wenn der Junge einen Dementor mit "Buh!" anschreit und der verwesende Kadaver sich flach an die gegenüberliegende Wand drückt und seine schreckliche, ohrenbetäubende Stimme rasselt: _"Macht, dass er weggeht."_
 
 → [Kapitel 82](Kapitel-82.md)

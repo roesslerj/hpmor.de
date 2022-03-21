@@ -1,6 +1,6 @@
 # Kapitel 85: Tabubrüche, Nachwehen 3, Abstand.
 
-Dieses Kapitel wurde am 16. Dezember 2012 grundlegend überarbeitet. Die Hauptüberarbeitung beginnt etwa auf halber Strecke - suche nach dem Wort "trivial", um sie zu finden. _
+_Dieses Kapitel wurde am 16. Dezember 2012 grundlegend überarbeitet. Die Hauptüberarbeitung beginnt etwa auf halber Strecke - suche nach dem Wort "trivial", um sie zu finden._
 
 * * *
 

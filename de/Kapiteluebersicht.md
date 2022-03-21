@@ -75,14 +75,14 @@ Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier ein
 - [Kapitel 71](Kapitel-71.md): 
 - [Kapitel 72](Kapitel-72.md): 
 - [Kapitel 73](Kapitel-73.md): 
-- [Kapitel 74](Kapitel-74.md): 
+- [Kapitel 74](Kapitel-74.md): Schultyrannen werden bestraft
 - [Kapitel 75](Kapitel-75.md): 
 - [Kapitel 76](Kapitel-76.md): 
 - [Kapitel 77](Kapitel-77.md): 
 - [Kapitel 78](Kapitel-78.md): 
 - [Kapitel 79](Kapitel-79.md): 
 - [Kapitel 80](Kapitel-80.md): 
-- [Kapitel 81](Kapitel-81.md): 
+- [Kapitel 81](Kapitel-81.md): Verhandlund vor dem Wizengamot
 - [Kapitel 82](Kapitel-82.md): 
 - [Kapitel 83](Kapitel-83.md): 
 - [Kapitel 84](Kapitel-84.md): 
