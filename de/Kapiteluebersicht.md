@@ -90,7 +90,7 @@ Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier ein
 - [Kapitel 86](Kapitel-86.md): 
 - [Kapitel 87](Kapitel-87.md): 
 - [Kapitel 88](Kapitel-88.md): 
-- [Kapitel 89](Kapitel-89.md): 
+- [Kapitel 89](Kapitel-89.md): Harry kämpft gegen den Troll
 - [Kapitel 90](Kapitel-90.md): 
 - [Kapitel 91](Kapitel-91.md): 
 - [Kapitel 92](Kapitel-92.md): 
