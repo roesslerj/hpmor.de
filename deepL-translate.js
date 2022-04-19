@@ -84,8 +84,11 @@ async function run() {
       .replaceAll('* * *.', '* * *')
       .replaceAll('".', '"')
       .replaceAll('_.', '_')
+      .replaceAll('. _', '._')
       .replaceAll(' -".', '."')
       .replaceAll('," ', '", ')
+      .replaceAll('-.', '-')
+      .replaceAll('. "\n', '."\n')
       .replaceAll('Mum', 'Mama')
       .replaceAll('Dad', 'Papa')
       .replaceAll('Diagon Alley', 'Winkelgasse')
@@ -101,7 +104,6 @@ async function run() {
       .replaceAll('Zeitdreher', 'Zeitumkehrer')
       .replaceAll('Dark Lord', 'Dunkler Lord')
       .replaceAll('Herr ', 'Mr. ')
-      .replaceAll('. "\n', '."\n')
       .replaceAll('Aftermath', 'Nachspiel')
       .replaceAll('Muggle', 'Muggel')
       .replaceAll('Snitch', 'Schnatz')
@@ -121,6 +123,8 @@ async function run() {
       .replaceAll('Mr. Direktor', 'Herr Direktor')
       .replaceAll('Mr. Schulleiter', 'Herr Direktor')
       .replaceAll('Jungen, der lebte', 'Jungen-der-lebt')
+      .replaceAll('Junge, der lebte', 'Junge-der-lebt')
+      .replaceAll('Alicorn', 'Ainkhürn')
       .concat(`\n\n→ [Kapitel ${nextChapter}](Kapitel-${nextChapter}.md)\n`);
     console.log("\n\n\n");
     console.log(`Writing translated chapter ${chapter} into file ${filename} with ${errorCnt} errors.\n`);

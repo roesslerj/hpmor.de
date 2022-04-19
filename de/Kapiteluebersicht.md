@@ -91,18 +91,18 @@ Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier ein
 - [Kapitel 87](Kapitel-87.md): 
 - [Kapitel 88](Kapitel-88.md): 
 - [Kapitel 89](Kapitel-89.md): Harry kämpft gegen den Troll
-- [Kapitel 90](Kapitel-90.md): 
-- [Kapitel 91](Kapitel-91.md): 
-- [Kapitel 92](Kapitel-92.md): 
-- [Kapitel 93](Kapitel-93.md): 
-- [Kapitel 94](Kapitel-94.md): 
-- [Kapitel 95](Kapitel-95.md): 
-- [Kapitel 96](Kapitel-96.md): 
-- [Kapitel 97](Kapitel-97.md): 
-- [Kapitel 98](Kapitel-98.md): 
-- [Kapitel 99](Kapitel-99.md): 
-- [Kapitel 100](Kapitel-100.md): 
-- [Kapitel 101](Kapitel-101.md): 
+- [Kapitel 90](Kapitel-90.md): Harry hält Wache
+- [Kapitel 91](Kapitel-91.md): Harrys Eltern kommen
+- [Kapitel 92](Kapitel-92.md): Harry trifft Lesath
+- [Kapitel 93](Kapitel-93.md): Menschen sind mehr als Ihre Rollen
+- [Kapitel 94](Kapitel-94.md): Hermine ist verschwunden
+- [Kapitel 95](Kapitel-95.md): Harry geht spazieren
+- [Kapitel 96](Kapitel-96.md): Harry besucht das Grab seiner Eltern
+- [Kapitel 97](Kapitel-97.md): Harry verhandelt mit Lucius
+- [Kapitel 98](Kapitel-98.md): Neue Allianzen, neue Regeln
+- [Kapitel 99](Kapitel-99.md): Vorzeichen
+- [Kapitel 100](Kapitel-100.md): Schulstrafen im Verbotenen Wald
+- [Kapitel 101](Kapitel-101.md): Harry trifft einen Zentauren
 - [Kapitel 102](Kapitel-102.md): 
 - [Kapitel 103](Kapitel-103.md): 
 - [Kapitel 104](Kapitel-104.md): 
