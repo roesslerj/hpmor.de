@@ -10,11 +10,11 @@
 
 * * *
 
-"Nur um das klarzustellen", sagte Harry, "wenn der Professor dich schweben lässt, Papa, obwohl du weißt, dass du nicht an irgendwelchen Drähten hängst, dann ist das ein ausreichender Beweis. Du wirst Dich nicht umdrehen und sagen, dass es ein Zaubertrick ist. Das wäre nicht faires. Wenn Du das denkst, solltest Du das _jetzt_ sagen, und wir können uns stattdessen ein anderes Experiment ausdenken."
+"Nur um das klarzustellen", sagte Harry, "wenn die Professorin dich schweben lässt, Papa, obwohl du weißt, dass du nicht an irgendwelchen Drähten hängst, dann ist das ein ausreichender Beweis. Du wirst Dich nicht umdrehen und sagen, dass es ein Zaubertrick ist. Das wäre nicht fair. Wenn Du das denkst, solltest Du das _jetzt_ sagen, und wir können uns stattdessen ein anderes Experiment ausdenken."
 
 Harrys Vater, Professor Michael Verres-Evans, rollte mit den Augen. "Ja, Harry."
 
-"Und du, Mama, deine Theorie besagt, dass der Professor das können sollte, und wenn das nicht passiert, gibst du zu, dass du dich geirrt hast. Nichts darüber, dass Magie nicht funktioniert, wenn die Menschen ihr gegenüber skeptisch sind, oder so etwas."
+"Und du, Mama, deine Theorie besagt, dass die Professorin das können sollte, und wenn das nicht der Fall ist, gibst du zu, dass du dich geirrt hast. Nichts darüber, dass Magie nicht funktioniert, wenn die Menschen ihr gegenüber skeptisch sind, oder so etwas."
 
 Die stellvertretende Schulleiterin Minerva McGonagall beobachtete Harry mit einem verwirrten Ausdruck. Sie sah in ihrem schwarzen Gewand und dem spitzen Hut ziemlich hexenhaft aus, aber wenn sie sprach, klang sie förmlich und schottisch, was überhaupt nicht zu ihrem Aussehen passte. Auf den ersten Blick sah sie aus wie jemand, der gackern und Babys in Kessel stecken sollte, aber der ganze Effekt war ruiniert, sobald sie den Mund aufmachte. "Reicht das aus, Mr. Potter?", sagte sie. "Soll ich weitermachen mit der Demonstration?"
 
@@ -28,11 +28,11 @@ Harry sah seinen Vater an.
 
 Sein Vater sah ihn wieder an. "Oh", echote sein Vater.
 
-Dann sah Professor Verres-Evans wieder zu Professor McGonagall. "In Ordnung, Sie können mich jetzt runterlassen."
+Dann sah Professor Verres-Evans wieder zu Professor McGonagall. "In Ordnung, Sie können mich jetzt wieder runterlassen."
 
 Sein Vater wurde vorsichtig auf den Boden gesenkt.
 
-Harry fuhr sich mit der Hand durch sein eigenes Haar. Vielleicht war es nur dieser merkwürdige Teil von ihm, der _bereits_ überzeugt war, aber... "Das ist ein ziemlich enttäuschend", sagte Harry. "Man sollte meinen, es gäbe eine Art dramatischeres mentales Ereignis, das mit dem Aktualisieren einer Beobachtung von verschwindend geringer Wahrscheinlichkeit verbunden ist -" Harry stoppte sich selbst. Mama, die Hexe und sogar sein Papa warfen ihm wieder _diesen Blick_ zu. "Ich meine damit, dass ich herausgefunden habe, dass alles, was ich glaube, falsch ist."
+Harry fuhr sich mit der Hand durch sein eigenes Haar. Vielleicht war es nur dieser merkwürdige Teil von ihm, der _bereits_ überzeugt war, aber... "Das ist ein ziemlich enttäuschend", sagte Harry. "Man sollte meinen, es gäbe eine Art dramatischeres mentales Ereignis, das mit dem Aktualisieren einer Beobachtung von verschwindend geringer Wahrscheinlichkeit verbunden ist -" Harry stoppte sich selbst. Mama, die Hexe und sogar sein Papa warfen ihm wieder _diesen Blick_ zu. "Ich meine damit, dass ich gerade herausgefunden habe, dass alles, was ich glaube, falsch ist."
 
 Ernsthaft, es hätte dramatischer sein müssen. Sein Gehirn hätte seinen gesamten aktuellen Vorrat an Hypothesen über das Universum verwerfen müssen, von denen keine dies zuließ. Aber stattdessen schien sein Gehirn nur zu sagen: _Alles klar, ich habe gesehen, wie die Hogwarts-Professorin mit ihrem Zauberstab geschwungen hat und deinen Vater in die Luft aufsteigen ließ, was jetzt?_
 
@@ -52,9 +52,9 @@ Harry atmete in kurzen Stößen. Seine Stimme kam erstickt heraus. "Das können 
 
 "Sie haben Sich in eine Katze verwandelt! Eine _KLEINE_ Katze! Sie haben gegen den Energieerhaltungssatz verstoßen! Das ist nicht nur eine willkürliche Regel, es folgt aus der Darstellung des Hamiltonoperators in der Quantenphysik! Ohne Energieerhaltung kommt es zu Inkonsistenzen und Informationsübertragung mit Überlichtgeschwindigkeit! Und Katzen sind _KOMPLIZIERT!_ Ein menschlicher Verstand kann sich nicht einfach die ganze Anatomie einer Katze vorstellen und, und die ganze Katzenbiochemie, und was ist mit der _Neurologie?_ Wie können Sie mit einem katzengroßen Gehirn überhaupt _denken_?"
 
-Die Lippen von Professor McGonagall zuckten jetzt noch stärker. "Magie"
+Die Lippen von Professor McGonagall zuckten jetzt noch stärker. "Magie."
 
-"Magie _nicht genug_, um das zu tun! Du müsstest ein Gott sein!"
+"Magie ist _nicht genug_, um das zu tun! Sie müssten ein Gott sein!"
 
 Professor McGonagall blinzelte. "Das ist das erste Mal, dass ich _Gott_ genannt werde."
 
@@ -62,7 +62,7 @@ Eine Unschärfe legte sich über Harrys Sicht, als sein Gehirn zu begreifen bega
 
 Und dann verwandelte sich eine Frau in eine Katze. So viel dazu.
 
-Hundert Fragen kämpften um den Vorrang auf Harrys Lippen, und der Sieger strömte heraus: "Und, und was für ein Zauberspruch ist _Wingardium Leviosa?_ Wer erfindet die Worte zu diesen Zaubersprüchen, Kindergärtner?"
+Hundert Fragen kämpften um den Vorrang auf Harrys Lippen, und der Sieger strömte heraus: "Und, und was für ein Zauberspruch ist _Wingardium Leviosa_? Wer erfindet die Worte zu diesen Zaubersprüchen, Kindergärtner?"
 
 "Das genügt, Mr. Potter", sagte Professor McGonagall knapp, obwohl ihre Augen vor unterdrückter Belustigung glizerten. "Wenn Sie etwas über Magie lernen möchten, schlage ich vor, dass wir den Papierkram erledigen, damit Sie nach Hogwarts gehen können."
 
@@ -72,7 +72,7 @@ Ein ersticktes Lachen entwich Professor McGonagall, als hätte man es ihr mit ei
 
 "Nicht so schnell, Harry", sagte sein Vater. "Weißt du noch, warum du bis jetzt nicht zur Schule gegangen bist? Was ist mit deiner Erkrankung?"
 
-Professor McGonagall drehte sich zu Michael hin. "Seine Erkrankung? Was ist das?"
+Professor McGonagall drehte sich zu Michael. "Seine Erkrankung? Was ist das?"
 
 "Ich schlafe nicht richtig", sagte Harry. Er winkte hilflos mit den Händen. "Mein Schlafzyklus ist sechsundzwanzig Stunden lang, ich gehe immer zwei Stunden später ins Bett, jeden Tag. Ich kann nicht früher einschlafen, und am nächsten Tag gehe ich wieder zwei Stunden später schlafen. Zehn Uhr abends, Mitternacht, zwei Uhr morgens, vier Uhr morgens und so weiter, rund um die Uhr. Selbst wenn ich versuche, früh aufzuwachen, macht das keinen Unterschied und ich bin den ganzen Tag ein Wrack. Deshalb bin ich bis jetzt auch nicht auf eine normale Schule gegangen."
 
@@ -82,7 +82,7 @@ McGonagall gab einen langen _hmmmmm_. "Ich kann mich nicht erinnern, schon einma
 
 Harry warf seinen Eltern einen bösen Blick zu. "Ich bin ein entschiedener Gegner der aktuellen Gesetzgebung, da ich nicht unter der vollkommenen Unfähigkeit dieses maroden Bildungssystemes leiden will, mir Lehrer oder Lehrmaterialien von auch nur annähernd erträglicher Qualität zu bieten."
 
-Beide von Harrys Eltern heulten daraufhin vor Lachen, als hielten sie das alles für einen großen Scherz. "Oh", sagte Harrys Vater mit leuchtenden Augen, "ist _das_ der Grund, warum du im dritten Jahr einen Mathelehrer gebissen hast."
+Beide von Harrys Eltern heulten daraufhin vor Lachen, als hielten sie das alles für einen großen Scherz. "Oh", sagte Harrys Vater mit leuchtenden Augen, "ist _das_ der Grund, warum du im dritten Jahr eine Mathelehrerin gebissen hast."
 
 "_Sie wusste nicht, was ein Logarithmus ist!_"
 
@@ -90,9 +90,9 @@ Beide von Harrys Eltern heulten daraufhin vor Lachen, als hielten sie das alles 
 
 Harrys Vater nickte. "Ein gut durchdachtes Konzept, um das Problem von Lehrern, die keine Logarithmen verstehen, zu lösen."
 
-"Ich war _sieben Jahre alt!_ Wie lange wollt ihr mich noch damit aufziehen?"
+"Ich war _sieben Jahre alt_! Wie lange wollt ihr mich noch damit aufziehen?"
 
-"Ich weiß", sagte seine Mutter mitfühlend, "man beißt _einen_ Mathelehrer und die lassen einen das nie vergessen, oder?"
+"Ich weiß", sagte seine Mutter mitfühlend, "man beißt _eine_ Mathelehrerin und die lassen einen das nie vergessen, was?"
 
 Harry wandte sich an Professor McGonagall. "Da! Sehen Sie, was ich ertragen muss?"
 
@@ -108,7 +108,7 @@ Auch Professor Michael Verres-Evans musste kurz den Raum verlassen, als er das h
 
 "Was? Was? Warum? Die anderen Kinder können doch schon zaubern, oder? Ich muss sofort damit anfangen, den Rückstand aufzuholen!"
 
-"Seien Sie versichert, Mr. Potter", antwortete Professor McGonagall, "Hogwarts ist durchaus in der Lage, die Grundlagen zu vermitteln. Und ich vermute, Mr. Potter, wenn ich dich zwei Monate lang mit deinen Schulbüchern allein lasse, auch ohne Zauberstab, werde ich in dieses Haus zurückkehren und nur einen Krater vorfinden, aus dem purpurner Rauch aufsteigt, eine entvölkerte Stadt, die ihn umgibt, und eine Plage flammender Zebras, die das, was von England übrig ist, terrorisiert."
+"Seien Sie versichert, Mr. Potter", antwortete Professor McGonagall, "Hogwarts ist durchaus in der Lage, die Grundlagen zu vermitteln. Und ich vermute, Mr. Potter, wenn ich dich zwei Monate lang mit deinen Schulbüchern allein lasse, auch ohne Zauberstab, werde ich in dieses Haus zurückkehren und nur einen Krater vorfinden, aus dem purpurner Rauch aufsteigt, eine entvölkerte Stadt, die ihn umgibt, und eine Plage flammender Zebras, die das, was von England übrig geblieben ist, terrorisiert."
 
 Harrys Mutter und Vater nickten in perfektem Gleichklang.
 

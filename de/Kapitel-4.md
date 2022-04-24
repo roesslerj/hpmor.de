@@ -10,7 +10,7 @@ A/N: Wie andere bemerkt haben, scheinen die Romane in Bezug auf die scheinbare K
 
 * * *
 
-Haufen goldener Galeonen. Stapel silberner Sickel. Berge Bronze-Knuts.
+Gebirge goldener Galeonen. Stapel silberner Sickel. Berge bronzener Knuts.
 
 Harry stand da und starrte mit offenem Mund auf den Familientresor. Er hatte so viele Fragen, dass er nicht wusste, _wo_ er anfangen sollte.
 
@@ -30,13 +30,13 @@ Von der Tür des Tresors aus beobachtete ihn Professor McGonagall, die scheinbar
 
 Griphook grinste und zeigte scharfe Zähne. "Nur ein Narr würde etwas anderem als Koboldmünzen vertrauen!"
 
-"Mit anderen Worten", sagte Harry, "die Münzen sollen nicht mehr wert sein als das Metall, aus dem sie bestehen?"
+"Mit anderen Worten", sagte Harry, "die Münzen sind nicht mehr wert als das Metall, aus dem sie bestehen?"
 
 Griphook starrte Harry an. Professor McGonagall schaute verwirrt.
 
 "Ich meine, angenommen, ich komme mit einer Tonne Silber hierher. Könnte ich eine Tonne Sickel daraus machen lassen?"
 
-"Gegen eine Gebühr, Mr. Potter-Evans-Verres. " Der Kobold beobachtete ihn mit funkelnden Augen. "Gegen eine gewisse Gebühr. Wo würden Sie wohl eine Tonne Silber finden?"
+"Gegen eine Gebühr, Mr. Potter-Evans-Verres." Der Kobold beobachtete ihn mit funkelnden Augen. "Gegen eine gewisse Gebühr. Wo würden Sie wohl eine Tonne Silber finden?"
 
 "Ich habe hypothetisch gesprochen", sagte Harry. _Fürs Erste jedenfalls._ "Also... wie viel würden Sie an Gebühren berechnen, als Bruchteil des Gesamtgewichts?"
 
@@ -44,7 +44,7 @@ Griphook's Augen waren aufmerksam. "Ich müsste meine Vorgesetzten konsultieren.
 
 "Raten Sie mal. Ich werde Gringotts gegenüber nicht darauf zurückkommen."
 
-"Ein zwanzigstel Teil des Metalls würde die Prägung gut bezahlen."
+"Ein zwanzigstel Teil des Metalls sollte die Prägung gut bezahlen."
 
 Harry nickte. "Vielen Dank, Mr. Griphook."
 
@@ -52,11 +52,11 @@ Die Zauberer-Wirtschaft ist also nicht nur fast vollständig von der Muggel-Wirt
 
 War das Verhältnis von Muggelgold zu Silber nicht irgendwo bei fünfzig zu eins? Harry glaubte jedenfalls nicht, dass es siebzehn war. Und es sah so aus, als wären die Silbermünzen tatsächlich _kleiner_ als die Goldmünzen.
 
-Andererseits stand Harry in einer Bank, die Ihr Geld _wörtlich_ in Tresoren voller Goldmünzen aufbewahrte, die von Drachen bewacht wurden, und wo Sie hineingehen und Münzen aus Ihrem Tresor holen mussten, wann immer Sie Geld ausgeben wollten. Die Feinheiten der Arbitrage zur Beseitigung von Marktineffizienzen sind ihnen wohl nicht bekannt. Er war versucht gewesen, abfällige Bemerkungen über die Grobheit ihres Finanzsystems zu machen...
+Andererseits stand Harry in einer Bank, die Ihr Geld _wörtlich_ in Tresoren voller Goldmünzen aufbewahrte, die von Drachen bewacht wurden, und wo Sie hineingehen und Münzen aus Ihrem Tresor holen mussten, wann immer Sie Geld ausgeben wollten. Die Feinheiten der Arbitrage zur Beseitigung von Marktineffizienzen sind ihnen wohl nicht bekannt. Er war versucht gewesen, abfällige Bemerkungen über die Rückständigkeit ihres Finanzsystems zu machen...
 
-_Aber das Traurige ist, dass ihr Weg wahrscheinlich besser ist._
+_Aber das Traurige ist, dass ihres wahrscheinlich besser ist._
 
-Andererseits könnte ein kompetenter Hedge-Fundie wahrscheinlich innerhalb einer Woche die gesamte Zaubererwelt kaufen. Harry legte diesen Gedanken für den Fall ab, dass ihm einmal das Geld ausging oder er eine Woche frei hatte.
+Andererseits könnte ein kompetenter Hedge-Fund-Verwalter wahrscheinlich innerhalb einer Woche die gesamte Zaubererwelt kaufen. Harry speicherte diesen Gedanken für den Fall ab, dass ihm einmal das Geld ausging oder er eine Woche frei hatte.
 
 In der Zwischenzeit sollten die riesigen Haufen Goldmünzen im Potter-Tresor seinem kurzfristigen Bedarf entsprechen.
 
@@ -78,13 +78,13 @@ _Trotzdem, das war das letzte Mal, dass ich für ein lausiges Pfund einen Rasen 
 
 Harry winkte von dem riesigen Geldhaufen ab. "Verzeihen Sie mir die Frage, Professor McGonagall, aber soweit ich weiß, waren meine Eltern in ihren Zwanzigern, als sie starben. Ist das in der Zaubererwelt eine _übliche_ Menge Geld für ein junges Paar in ihrem Tresor?" Wenn es so war, kostete eine Tasse Tee wahrscheinlich fünftausend Pfund. Regel 1 der Ökonomie: Geld kann man nicht essen.
 
-Professor McGonagall schüttelte den Kopf. "Ihr Vater war der letzte Erbe einer alten Familie, Mr. Potter. Es ist auch möglich... " Die Hexe zögerte. "Ein Teil dieses Geldes stammt vielleicht aus Kopfgeldern, die auf Du-weißt-schon-wen ausgesetzt sind, zahlbar an seinen Ki-Ah, an den, der ihn besiegt hat. Oder diese Kopfgelder sind noch nicht eingesammelt worden. Ich bin mir nicht sicher. "
+Professor McGonagall schüttelte den Kopf. "Ihr Vater war der letzte Erbe einer alten Familie, Mr. Potter. Es ist auch möglich..." Die Hexe zögerte. "Ein Teil dieses Geldes stammt vielleicht aus Kopfgeldern, die auf Du-weißt-schon-wen ausgesetzt waren, zahlbar an seinen Ki-Ah, an den, der ihn besiegt hat. Oder diese Kopfgelder sind noch nicht eingesammelt worden. Ich bin mir nicht sicher."
 
-"Interessant... " sagte Harry langsam. "Einiges davon ist also in gewisser Weise wirklich meins. Das heißt, von mir verdient. Mehr oder weniger. Möglicherweise. Auch wenn ich mich nicht mehr daran erinnere. " Harrys Finger klopften gegen sein Hosenbein. "Dann fühle ich mich weniger schuldig, weil ich _einen winzigen Teil davon ausgegeben habe! Keine Panik, Professor McGonagall!_"
+"Interessant..." sagte Harry langsam. "Einiges davon ist also in gewisser Weise wirklich meins. Das heißt, von mir verdient. Mehr oder weniger. Möglicherweise. Auch wenn ich mich nicht mehr daran erinnere." Harrys Finger klopften gegen sein Hosenbein. "Dann fühle ich mich weniger schuldig, weil ich _einen winzigen Teil davon ausgegeben habe! Keine Panik, Professor McGonagall!_"
 
-"Mr. Potter! Sie sind minderjährig, und als solcher dürfen Sie nur _vernünftige_ Abhebungen von -" machen.
+"Mr. Potter! Sie sind minderjährig, und als solcher dürfen Sie nur _vernünftige_ Abhebungen machen."
 
-"Ich bin _vollkommen_ vernünftig! Ich bin total an Bord mit finanzieller Umsicht und Impulskontrolle! Aber ich _habe_ auf dem Weg hierher einige Dinge gesehen, die _vernünftige, erwachsene_ Anschaffungen darstellen würden... "
+"Ich bin _vollkommen_ vernünftig! Ich bin total an Bord mit finanzieller Umsicht und Impulskontrolle! Aber ich _habe_ auf dem Weg hierher einige Dinge gesehen, die _vernünftige, erwachsene_ Anschaffungen darstellen würden..."
 
 Harry schaute Professor McGonagall an und lieferte sich mit ihr einen stillen Wettstreit der Blicke.
 
@@ -92,11 +92,11 @@ Harry schaute Professor McGonagall an und lieferte sich mit ihr einen stillen We
 
 "Koffer die innen größer sind als außen?"
 
-Das Gesicht von Professor McGonagall wurde ernst. "Die sind _sehr_ teuer, Herr Potter!"
+Das Gesicht von Professor McGonagall wurde ernst. "Die sind _sehr_ teuer, Mr. Potter!"
 
-"Ja, aber -" Harry flehte. "Ich bin mir sicher, dass ich als Erwachsener auch einen haben möchte. Und ich _kann_ mir einen leisten. Logischerweise würde es viel Sinn machen, ihn jetzt zu kaufen anstatt später, und sofort zu nutzen. Es ist so oder so das gleiche Geld, richtig? Ich meine, ich _würde_ einen guten haben wollen, mit _viel_ Platz im Inneren, gut genug, dass ich später nicht einfach einen besseren kaufen muss... " fügte er hoffnungsvoll hinzu.
+"Ja, aber -" Harry flehte. "Ich bin mir sicher, dass ich als Erwachsener auch einen haben möchte. Und ich _kann_ mir einen leisten. Logischerweise würde es viel Sinn machen, ihn jetzt zu kaufen anstatt später, und sofort zu nutzen. Es ist so oder so das gleiche Geld, richtig? Ich meine, ich _würde_ einen guten haben wollen, mit _viel_ Platz im Inneren, gut genug, dass ich später nicht einfach einen besseren kaufen muss..." fügte er hoffnungsvoll hinzu.
 
-Professor McGonagalls Blick wankte nicht. "Und was würden Sie in so einer Truhe _aufbewahren_, Mr. Potter -"
+Professor McGonagalls Blick wankte nicht. "Und was würden Sie in so einem Koffer _aufbewahren_, Mr. Potter -"
 
 "Bücher"
 
