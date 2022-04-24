@@ -74,9 +74,9 @@ Obwohl, wenn man bedenkt, wie schnell sich Gerüchte in Hogwarts verbreiten, hat
 
 In der Tat... jetzt, wo Daphne darüber nachgedacht hat...
 
-"Also", sagte Parvati. "Wir müssen den Jungen, der gelebt hat, fragen, wo der Geist von Salazar Slytherin zu finden ist? Wow, ich schätze, wenn ich so etwas laut sage, werde ich vielleicht tatsächlich zur Heldin -"
+"Also", sagte Parvati. "Wir müssen den Jungen-der-lebt, fragen, wo der Geist von Salazar Slytherin zu finden ist? Wow, ich schätze, wenn ich so etwas laut sage, werde ich vielleicht tatsächlich zur Heldin -"
 
-"Ja!"sagte Lavendel. "Wir müssen den Jungen, der gelebt hat, fragen, wo der Geist von Salazar Slytherin zu finden ist!"
+"Ja!"sagte Lavendel. "Wir müssen den Jungen-der-lebt, fragen, wo der Geist von Salazar Slytherin zu finden ist!"
 
 "Wir müssen fragen... der Junge-der-lebt... wo du den Geist von Salazar Slytherin findest... ", wiederholte Hannah mit nervöser Stimme, als ob sie sich zwingen würde, es zu sagen.
 

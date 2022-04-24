@@ -97,6 +97,7 @@ async function run() {
       .replaceAll('Mokeskin', 'Eselsfell')
       .replaceAll('Mokassin', 'Eselsfell')
       .replaceAll('Pouch', 'Beutel')
+      .replaceAll('Rüssel', 'Koffer')
       .replaceAll('Präfektin', 'Vertrauensschülerin')
       .replaceAll('Präfekt', 'Vertrauensschüler')
       .replaceAll('Comed-Tea', 'Seltsaft')
@@ -119,11 +120,13 @@ async function run() {
       .replaceAll('Headmasters', 'Schulleiters')
       .replaceAll('Soldiers', 'Soldaten')
       .replaceAll('Breaking Drill', 'Brechbohrer')
+      .replaceAll('Stunner', 'Betäubungszauber')
       .replaceAll('\{\\an8\}', '_')
       .replaceAll('Mr. Direktor', 'Herr Direktor')
       .replaceAll('Mr. Schulleiter', 'Herr Direktor')
       .replaceAll('Jungen, der lebte', 'Jungen-der-lebt')
       .replaceAll('Junge, der lebte', 'Junge-der-lebt')
+      .replaceAll('Jungen, der gelebt hat', 'Junge-der-lebt')
       .replaceAll('Alicorn', 'Ainkhürn')
       .concat(`\n\n→ [Kapitel ${nextChapter}](Kapitel-${nextChapter}.md)\n`);
     console.log("\n\n\n");

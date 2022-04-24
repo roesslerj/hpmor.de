@@ -158,7 +158,7 @@ Neue _Contego_-Schilde entstanden vor ihr, geworfen von Jenny und Parvati, noch 
 
 Die Spitze von Hermines Zauberstab begann, kleine Bewegungen in der Luft zu machen, eine Raute im Kreis, eine Raute im Kreis, und sie probte die Geste genau so, wie sie sie im Buch gesehen hatte. Es würde selbst für sie ein schwieriges Unterfangen sein, aber sie _musste_ den Zauber beim ersten Versuch richtig wirken, sie konnte sich keine Fehlschläge leisten, die ihre Energie aufzehren würden.
 
-"Weißt du", sagte Hermine Granger, "ich verstehe, dass es nicht wirklich deine Schuld ist, aber ich habe es satt, dass die Leute über den Jungen, der gelebt hat, reden, als wärst du - als wärst du eine Art _Gott_ oder so."
+"Weißt du", sagte Hermine Granger, "ich verstehe, dass es nicht wirklich deine Schuld ist, aber ich habe es satt, dass die Leute über den Jungen-der-lebt, reden, als wärst du - als wärst du eine Art _Gott_ oder so."
 
 "Ich muss sagen, ich auch", sagte Harry Potter. "Es ist traurig, dass die Leute mich immer wieder unterschätzen."
 

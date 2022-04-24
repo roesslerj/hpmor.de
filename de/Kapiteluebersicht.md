@@ -87,7 +87,7 @@ Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier ein
 - [Kapitel 83](Kapitel-83.md): 
 - [Kapitel 84](Kapitel-84.md): 
 - [Kapitel 85](Kapitel-85.md): 
-- [Kapitel 86](Kapitel-86.md): 
+- [Kapitel 86](Kapitel-86.md): Harry kämpft gegen Mad-Eye Moody
 - [Kapitel 87](Kapitel-87.md): 
 - [Kapitel 88](Kapitel-88.md): 
 - [Kapitel 89](Kapitel-89.md): Harry kämpft gegen den Troll

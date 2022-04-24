@@ -68,7 +68,7 @@ Harry schien es nicht zu bemerken. Der Junge strahlte eine stille Entschlossenhe
 
 "Das habe ich", sagte Professor McGonagall. "Ich habe zwei gute Nachrichten für Sie, Mr. Potter. Erstens: Hast du Herrn Rubeus Hagrid überhaupt schon mal getroffen? Den Hausmeister? Er war ein alter Freund deiner Eltern."
 
-Harry zögerte. Dann: "Mr. Hagrid hat ein bisschen mit mir gesprochen, nachdem ich hier angekommen bin", sagte Harry. "Ich glaube, es war am Dienstag in meiner ersten Schulwoche. Er hat aber nicht gesagt, dass er meine Eltern kennt. Damals dachte ich, er wolle sich nur dem Jungen, der gelebt hat, vorstellen... Hatte er eine versteckte Absicht? Er _schien_ nicht der Typ dafür zu sein..."
+Harry zögerte. Dann: "Mr. Hagrid hat ein bisschen mit mir gesprochen, nachdem ich hier angekommen bin", sagte Harry. "Ich glaube, es war am Dienstag in meiner ersten Schulwoche. Er hat aber nicht gesagt, dass er meine Eltern kennt. Damals dachte ich, er wolle sich nur dem Jungen-der-lebt, vorstellen... Hatte er eine versteckte Absicht? Er _schien_ nicht der Typ dafür zu sein..."
 
 "Ah... ", sagte sie. Sie brauchte einen Moment, um ihre Gedanken zu ordnen. "Das ist eine lange Geschichte, Mr. Potter, aber Mr. Hagrid wurde vor fünf Jahrzehnten fälschlicherweise beschuldigt, einen Schüler ermordet zu haben. Mr. Hagrids Zauberstab wurde geschnappt und er wurde hinausgeworfen. Später, als Professor Dumbledore Schulleiter wurde, gab er Mr. Hagrid einen Platz als Hüter des Geländes und der Schlüssel."
 

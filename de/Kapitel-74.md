@@ -76,7 +76,7 @@ Auch Professor Flitwick starrte sie alle vom Haupttisch aus streng an. Hermine s
 
 Harrys Blick schweifte über sie, während Hermine einen verwirrten Blick mit Padma austauschte und Daphne den Kopf schüttelte.
 
-"Nun", sagte Harry leise, "das würde ich eigentlich nicht von dir erwarten. Aber es bedeutet, dass du in Gefahr bist, und ich weiß nicht, wie groß die Gefahr ist. "Der Junge straffte die Schultern und sah Hermine direkt in die Augen. "Ich wollte das eigentlich nicht sagen, aber... Ich wollte dir nur anbieten, dich unter meinen Schutz zu stellen. Mach allen klar, dass jeder, der sich mit dir anlegt, sich mit dem Jungen, der gelebt hat, anlegt."
+"Nun", sagte Harry leise, "das würde ich eigentlich nicht von dir erwarten. Aber es bedeutet, dass du in Gefahr bist, und ich weiß nicht, wie groß die Gefahr ist. "Der Junge straffte die Schultern und sah Hermine direkt in die Augen. "Ich wollte das eigentlich nicht sagen, aber... Ich wollte dir nur anbieten, dich unter meinen Schutz zu stellen. Mach allen klar, dass jeder, der sich mit dir anlegt, sich mit dem Jungen-der-lebt, anlegt."
 
 "Harry!", sagte Hermine scharf. "Du _weißt_, dass ich nicht will -"
 

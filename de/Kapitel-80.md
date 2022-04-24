@@ -96,7 +96,7 @@ Harry konnte nicht sprechen, alle Worte in seinem Kopf wären dumm gewesen, wenn
 
 "Der Schulleiter hat gesagt, dass ich nicht reden soll", sagte der Junge und schaffte es nicht ganz, die Schärfe aus seiner Stimme zu nehmen.
 
-"Oh, aber du hast _unsere_ Erlaubnis zu reden!", sagte die Frau strahlend. "Ich bin mir sicher, dass das Zaubereiministerium immer froh ist, von dem Jungen, der gelebt hat, zu hören!"Neben ihr nickte Minister Cornelius Fudge.
+"Oh, aber du hast _unsere_ Erlaubnis zu reden!", sagte die Frau strahlend. "Ich bin mir sicher, dass das Zaubereiministerium immer froh ist, von dem Jungen-der-lebt, zu hören!"Neben ihr nickte Minister Cornelius Fudge.
 
 Das Gesicht der Frau war aufgedunsen und übergewichtig und unter der Schminke sichtlich blass. Fast unweigerlich kam mir ein bestimmtes Wort in den Sinn, und das war _Kröte. Was, so Harrys logischer Teil, nichts mit Moral zu tun haben sollte. Nur in Disney-Filmen waren hässliche Menschen eher böse und umgekehrt; und diese Filme wurden wahrscheinlich von Autoren geschrieben, die nie hässlich waren. Er würde ihr eine Chance geben, jeder in diesem Raum verdiente eine Chance...
 

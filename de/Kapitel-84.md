@@ -82,7 +82,7 @@ Irgendwie muss ihr Tonfall das andere Wort übermittelt haben, das, das sie nich
 
 Sie musste die Worte aus ihrer Kehle zwingen. "Du hast Harry gesagt, dass er nicht zahlen soll, also sollte _ich_ nicht tun, was Professor McGonagall gesagt hat.
 
-"Meine Liebe", sagte Dumbledore, "wenn du dich nicht dem Haus Potter verpflichtet hättest, hätte Harry Askaban im Alleingang angegriffen und womöglich gewonnen. Der Junge mag seine Worte mit Bedacht wählen, aber ich habe noch nie erlebt, dass er lügt; und in dem Jungen, der gelebt hat, steckt eine Macht, die der Dunkle Lord nie gekannt hat. Er hätte tatsächlich versucht, aus Askaban auszubrechen, selbst wenn es ihn das Leben gekostet hätte. "Die Stimme des alten Zauberers wurde sanfter und freundlicher. "Nein, Hermine, du hast dir überhaupt nichts vorzuwerfen."
+"Meine Liebe", sagte Dumbledore, "wenn du dich nicht dem Haus Potter verpflichtet hättest, hätte Harry Askaban im Alleingang angegriffen und womöglich gewonnen. Der Junge mag seine Worte mit Bedacht wählen, aber ich habe noch nie erlebt, dass er lügt; und in dem Jungen-der-lebt, steckt eine Macht, die der Dunkle Lord nie gekannt hat. Er hätte tatsächlich versucht, aus Askaban auszubrechen, selbst wenn es ihn das Leben gekostet hätte. "Die Stimme des alten Zauberers wurde sanfter und freundlicher. "Nein, Hermine, du hast dir überhaupt nichts vorzuwerfen."
 
 "Ich hätte ihn dazu _bringen_ können, es nicht zu tun."
 
