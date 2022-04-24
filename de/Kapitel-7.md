@@ -80,7 +80,7 @@ Seine Mutter hatte eine Hand über ihrem Gesicht. "Wie schlimm war es?"
 
 "_Harry!_"
 
-"Ich, ähm, oh sieh mal, da sind ein paar Leute mit einer Eule, ich werde sie fragen, wie man reinkommt!" und Harry rannte von seinen Eltern weg in Richtung der Familie der feurigen Rothaarigen, sein Rüssel schlitterte automatisch hinter ihm her.
+"Ich, ähm, oh sieh mal, da sind ein paar Leute mit einer Eule, ich werde sie fragen, wie man reinkommt!" und Harry rannte von seinen Eltern weg in Richtung der Familie der feurigen Rothaarigen, sein Koffer schlitterte automatisch hinter ihm her.
 
 Die mollige Frau schaute zu ihm, als er ankam. "Hallo, Liebes. Das erste Mal in Hogwarts? Ron ist auch neu -" und dann schaute sie ihn genau an. "_Harry Potter?_"
 
@@ -134,9 +134,9 @@ Es war völlig selbstverständlich, dass es in der King's Cross Station keinen s
 
 Ich habe mich also entweder (a) gerade ganz woanders hin teleportiert, (b) sie können den Raum falten wie kein anderer oder (c) sie ignorieren einfach alle Regeln. _
 
-Hinter ihm war ein schlurfendes Geräusch zu hören und Harry drehte sich um, um festzustellen, dass sein Rüssel ihm tatsächlich auf seinen kleinen krallenartigen Tentakeln gefolgt war. Offenbar hatte es sein Gepäck auch geschafft, für magische Zwecke mit genügend Kraft zu glauben, um die Barriere zu passieren. Das war tatsächlich ein wenig beunruhigend, als Harry anfing, darüber nachzudenken.
+Hinter ihm war ein schlurfendes Geräusch zu hören und Harry drehte sich um, um festzustellen, dass sein Koffer ihm tatsächlich auf seinen kleinen krallenartigen Tentakeln gefolgt war. Offenbar hatte es sein Gepäck auch geschafft, für magische Zwecke mit genügend Kraft zu glauben, um die Barriere zu passieren. Das war tatsächlich ein wenig beunruhigend, als Harry anfing, darüber nachzudenken.
 
-Einen Moment später kam der jüngste rothaarige Junge im Laufschritt durch den eisernen Torbogen (eiserner Torbogen?), zog seinen Rüssel an einer Leine hinter sich her und krachte fast mit Harry zusammen. Harry, der sich dumm vorkam, weil er in der Nähe geblieben war, entfernte sich schnell vom Landeplatz, und der rothaarige Junge folgte ihm, wobei er kräftig an der Leine seines Rüssels zerrte, um mit ihm Schritt zu halten. Einen Moment später flatterte eine weiße Eule durch den Torbogen und kam auf der Schulter des Jungen zur Ruhe.
+Einen Moment später kam der jüngste rothaarige Junge im Laufschritt durch den eisernen Torbogen (eiserner Torbogen?), zog seinen Koffer an einer Leine hinter sich her und krachte fast mit Harry zusammen. Harry, der sich dumm vorkam, weil er in der Nähe geblieben war, entfernte sich schnell vom Landeplatz, und der rothaarige Junge folgte ihm, wobei er kräftig an der Leine seines Koffers zerrte, um mit ihm Schritt zu halten. Einen Moment später flatterte eine weiße Eule durch den Torbogen und kam auf der Schulter des Jungen zur Ruhe.
 
 "Cor", sagte der rothaarige Junge, "bist du _wirklich_ Harry Potter?"
 
