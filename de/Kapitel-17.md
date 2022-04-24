@@ -38,7 +38,7 @@ Harry hat 181.429 aufgeschrieben. Er wiederholte, was er gerade aufgeschrieben h
 
 Dann rannte Harry wieder hinunter in die Höhlenebene seines Koffers, schaute auf seine Uhr (die Uhr zeigte 4:28, was 7:28 bedeutete) und schloss dann die Augen.
 
-Ungefähr dreißig Sekunden später hörte Harry das Geräusch von Schritten, gefolgt von dem Geräusch, dass sich die Höhlenebene des Kofferraums schloss. (Harry machte sich keine Sorgen, zu ersticken. Ein automatischer Lufterfrischungszauber war Teil dessen, was du bekamst, wenn du bereit warst, einen wirklich guten Koffer zu kaufen. War die Magie nicht wunderbar, sie musste sich nicht um Stromrechnungen kümmern.)
+Ungefähr dreißig Sekunden später hörte Harry das Geräusch von Schritten, gefolgt von dem Geräusch, dass sich die Höhlenebene des Koffers schloss. (Harry machte sich keine Sorgen, zu ersticken. Ein automatischer Lufterfrischungszauber war Teil dessen, was du bekamst, wenn du bereit warst, einen wirklich guten Koffer zu kaufen. War die Magie nicht wunderbar, sie musste sich nicht um Stromrechnungen kümmern.)
 
 Und als Harry seine Augen öffnete, sah er genau das, was er zu sehen gehofft hatte: ein gefaltetes Stück Papier, das auf dem Boden lag, das Geschenk seines zukünftigen Ichs.
 

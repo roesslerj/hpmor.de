@@ -36,11 +36,11 @@ Harry verschluckte sich dann selbst ein wenig.
 
 Seine Mutter ließ ihn los und stand auf. Sie nahm ein Taschentuch aus ihrer Handtasche und tupfte mit zitternder Hand das verlaufende Make-up um ihre Augen ab.
 
-Es gab keine Fragen darüber, dass sein Vater ihn auf die magische Seite der King's Cross Station begleitet. Papa hatte Mühe, Harrys Kofferraum direkt anzuschauen. Die Magie lief in den Familien, und Michael Verres-Evans konnte nicht einmal laufen.
+Es gab keine Fragen darüber, dass sein Vater ihn auf die magische Seite der King's Cross Station begleitet. Papa hatte Mühe, Harrys Koffer direkt anzuschauen. Die Magie lief in den Familien, und Michael Verres-Evans konnte nicht einmal laufen.
 
 Stattdessen räusperte sich sein Vater einfach. "Viel Glück in der Schule, Harry", sagte er. "Denkst du, ich habe dir genug Bücher gekauft?"
 
-Harry hatte seinem Vater erklärt, dass dies seine große Chance sein könnte, etwas wirklich Revolutionäres und Wichtiges zu tun, und Professor Verres-Evans hatte genickt und seinen extrem vollen Terminkalender für zwei Tage über den Haufen geworfen, um sich auf den größten Secondhand-Buchladen-Raubzug aller Zeiten zu begeben, der sich über vier Städte erstreckte und _dreißig_ Kisten mit wissenschaftlichen Büchern hervorbrachte, die nun in der Höhlenebene von Harrys Kofferraum lagen. Die meisten Bücher waren für ein oder zwei Pfund zu haben, aber einige definitiv nicht, wie das allerneueste _Handbook of Chemistry and Physics_ oder die komplette 1972er Ausgabe der _Encyclopaedia Britannica_ Sein Vater hatte versucht, Harry den Blick auf die Kassenanzeigen zu verwehren, aber Harry schätzte, dass sein Vater _mindestens_ tausend Pfund ausgegeben haben musste. Harry hatte zu seinem Vater gesagt, dass er es ihm zurückzahlen würde, sobald er herausgefunden hätte, wie er Zauberergold in Muggelgeld umwandeln könnte, und sein Vater hatte ihm gesagt, er solle in einen See springen.
+Harry hatte seinem Vater erklärt, dass dies seine große Chance sein könnte, etwas wirklich Revolutionäres und Wichtiges zu tun, und Professor Verres-Evans hatte genickt und seinen extrem vollen Terminkalender für zwei Tage über den Haufen geworfen, um sich auf den größten Secondhand-Buchladen-Raubzug aller Zeiten zu begeben, der sich über vier Städte erstreckte und _dreißig_ Kisten mit wissenschaftlichen Büchern hervorbrachte, die nun in der Höhlenebene von Harrys Koffer lagen. Die meisten Bücher waren für ein oder zwei Pfund zu haben, aber einige definitiv nicht, wie das allerneueste _Handbook of Chemistry and Physics_ oder die komplette 1972er Ausgabe der _Encyclopaedia Britannica_ Sein Vater hatte versucht, Harry den Blick auf die Kassenanzeigen zu verwehren, aber Harry schätzte, dass sein Vater _mindestens_ tausend Pfund ausgegeben haben musste. Harry hatte zu seinem Vater gesagt, dass er es ihm zurückzahlen würde, sobald er herausgefunden hätte, wie er Zauberergold in Muggelgeld umwandeln könnte, und sein Vater hatte ihm gesagt, er solle in einen See springen.
 
 Und dann hatte sein Vater ihn gefragt: _Findest du, dass ich dir genug Bücher gekauft habe?_ Es war ganz klar, welche Antwort Papa hören wollte.
 
@@ -560,7 +560,7 @@ Draco war einige Meter zurückgewichen und sein Gesicht war eine Mischung aus An
 
 (Harry hatte die nahezu magische Fähigkeit von Verres geerbt, sich zu merken, wo alle seine Bücher waren, selbst nachdem er sie nur einmal gesehen hatte, was ziemlich mysteriös war, wenn man bedenkt, dass es keine genetische Verbindung gab.)
 
-Und Harry rannte die Treppe wieder hinauf, schob sie mit dem Absatz zurück in den Kofferraum und blätterte keuchend die Seiten des Buches um, bis er das Bild fand, das er Draco zeigen wollte.
+Und Harry rannte die Treppe wieder hinauf, schob sie mit dem Absatz zurück in den Koffer und blätterte keuchend die Seiten des Buches um, bis er das Bild fand, das er Draco zeigen wollte.
 
 Die mit dem weißen, trockenen, verkraterten Land und den passenden Menschen und dem blau-weißen Globus, der über allem hängt.
 

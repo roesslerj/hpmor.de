@@ -436,7 +436,7 @@ Als ihm die erste Scheibe serviert wurde, sagte Harry: "Ich hatte eine _wirklich
 
 * * *
 
-Und Harry saß in der Höhlenebene seines Kofferraums, der zugeschoben und verriegelt war, damit niemand hineinkam, eine Decke über den Kopf gezogen, und wartete darauf, dass die Woche vorbei war.
+Und Harry saß in der Höhlenebene seines Koffers, der zugeschoben und verriegelt war, damit niemand hineinkam, eine Decke über den Kopf gezogen, und wartete darauf, dass die Woche vorbei war.
 
 10:01.
 

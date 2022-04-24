@@ -1022,7 +1022,7 @@ Harry starrte auf das Kartenspiel hinunter.
 
 Es _konnte_ ihn nirgendwo anders hinbringen, nicht jetzt, die Portschlüssel funktionierten hier nicht.
 
-Aber er war immer noch entnervt von der Aussicht, sie aufzuheben, selbst wenn er sie in seinem Kofferraum verstecken wollte...
+Aber er war immer noch entnervt von der Aussicht, sie aufzuheben, selbst wenn er sie in seinem Koffer verstecken wollte...
 
 Nun, er hatte das Pergament _bereits_ aufgehoben, das genauso gut mit einer Falle hätte verzaubert sein können, falls es sich um eine Falle handelte.
 

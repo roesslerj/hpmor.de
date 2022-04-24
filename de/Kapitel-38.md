@@ -2,7 +2,7 @@
 
 Hell die Sonne, hell die Luft, hell die Schüler und hell ihre Eltern, sauber der gepflasterte Boden von Bahnsteig 9 dreiviertel, die Wintersonne, die am Morgen des 5. Januar 1992 um 9:45 Uhr tief am Himmel stand. Einige der jüngeren Schüler trugen Schals und Fäustlinge, aber die meisten trugen einfach ihre Roben; schließlich waren sie Zauberer.
 
-Nachdem Harry sich von der Landeplattform entfernt hatte, zog er seinen Schal und seinen Mantel aus, öffnete ein Fach in seinem Kofferraum und verstaute seine Wintersachen.
+Nachdem Harry sich von der Landeplattform entfernt hatte, zog er seinen Schal und seinen Mantel aus, öffnete ein Fach in seinem Koffer und verstaute seine Wintersachen.
 
 Einen langen Moment lang stand er da und ließ die Januarluft auf sich einwirken, nur um zu sehen, wie es war.
 

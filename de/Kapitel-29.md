@@ -498,6 +498,6 @@ Harry hatte alle Angebote abgelehnt, sogar das von Minister Fudge, das vielleich
 
 Hogwarts bekam den Tag frei, um zu feiern. Selbst die Slytherins trauten sich nicht, außerhalb ihres eigenen Schlafsaals Schwarz zu tragen. Es gab besondere Veranstaltungen und besonderes Essen und die Lehrer schauten weg, wenn jemand durch die Gänge lief. Immerhin war es der zehnte Jahrestag.
 
-Harry verbrachte den Tag in seinem Kofferraum, um ihn niemandem zu verderben. Er aß Snack-Riegel anstelle von Mahlzeiten, las einige seiner traurigeren Science-Fiction-Bücher (keine Fantasy) und schrieb einen Brief an Mama und Papa, der viel länger war als die, die er normalerweise verschickte.
+Harry verbrachte den Tag in seinem Koffer, um ihn niemandem zu verderben. Er aß Snack-Riegel anstelle von Mahlzeiten, las einige seiner traurigeren Science-Fiction-Bücher (keine Fantasy) und schrieb einen Brief an Mama und Papa, der viel länger war als die, die er normalerweise verschickte.
 
 → [Kapitel 30](Kapitel-30.md)

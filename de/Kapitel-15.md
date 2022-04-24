@@ -42,7 +42,7 @@ Professor Flitwick hatte ihr einen Hauspunkt gegeben, weil sie ihm geholfen hatt
 
 Harry knirschte so sehr mit den Zähnen, dass sein Kiefer schmerzte und das war nicht gerade hilfreich für seine Aussprache.
 
-_Es ist mir egal, ob es unlauterer Wettbewerb ist. Ich weiß genau, was ich mit zwei zusätzlichen Stunden jeden Tag mache. Ich werde in meinem Kofferraum sitzen und lernen, bis ich mit Hermine Granger mithalten kann. _.
+_Es ist mir egal, ob es unlauterer Wettbewerb ist. Ich weiß genau, was ich mit zwei zusätzlichen Stunden jeden Tag mache. Ich werde in meinem Koffer sitzen und lernen, bis ich mit Hermine Granger mithalten kann. _.
 
 * * *.
 

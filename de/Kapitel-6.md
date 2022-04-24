@@ -500,7 +500,7 @@ Harry hatte seine Fragen gestellt und war zu einem Baumstamm aus schwerem Holz g
 
 Wenn sie solche Gepäckstücke herstellten, wusste Harry nicht, warum sich jemand die Mühe machte, ein Haus zu besitzen.
 
-Einhundertacht goldene Galleonen. Das war der Preis für einen guten Kofferraum, leicht gebraucht. Bei etwa fünfzig britischen Pfund für die Galeone war das genug, um ein gebrauchtes Auto zu kaufen. Es würde teurer sein als alles andere, was Harry in seinem ganzen Leben je gekauft hatte, zusammengenommen.
+Einhundertacht goldene Galleonen. Das war der Preis für einen guten Koffer, leicht gebraucht. Bei etwa fünfzig britischen Pfund für die Galeone war das genug, um ein gebrauchtes Auto zu kaufen. Es würde teurer sein als alles andere, was Harry in seinem ganzen Leben je gekauft hatte, zusammengenommen.
 
 Siebenundneunzig Galleonen. So viel war noch in dem Beutel mit Gold, den Harry aus Gringotts mitnehmen durfte.
 
@@ -520,7 +520,7 @@ Die Hexe drehte sich um und sah ihn an.
 
 Harry nahm einen tiefen Atemzug. Er musste ein wenig wütend sein für das, was er jetzt versuchen wollte, anders hätte er nicht den Mut dazu gehabt, es zu tun. Sie hat mir nicht zugehört", dachte er bei sich. "Ich hätte mehr Gold genommen, aber sie wollte nicht zuhören... Er konzentrierte seine ganze Welt auf McGonagall und das Bedürfnis, dieses Gespräch nach seinem Willen zu biegen, und sprach.
 
-"Professor, du dachtest, hundert Galleonen wären mehr als genug für einen Kofferraum. Deshalb hast du dir nicht die Mühe gemacht, mich zu warnen, bevor es auf siebenundneunzig runterging. Das ist genau die Art von Dingen, die die Forschungsstudien zeigen - das passiert, wenn Leute denken, dass sie sich einen _kleinen_ Fehlerrahmen lassen. Sie sind nicht pessimistisch genug. Wenn es nach mir gegangen wäre, hätte ich _zweihundert_ Galleonen genommen, nur um sicher zu gehen. In dem Tresor war eine Menge Geld und ich hätte später alles zurücklegen können. Aber ich dachte, du würdest mich das nicht machen lassen. Ich dachte, du wärst sauer auf mich, nur weil ich frage. Lag ich falsch?"
+"Professor, du dachtest, hundert Galleonen wären mehr als genug für einen Koffer. Deshalb hast du dir nicht die Mühe gemacht, mich zu warnen, bevor es auf siebenundneunzig runterging. Das ist genau die Art von Dingen, die die Forschungsstudien zeigen - das passiert, wenn Leute denken, dass sie sich einen _kleinen_ Fehlerrahmen lassen. Sie sind nicht pessimistisch genug. Wenn es nach mir gegangen wäre, hätte ich _zweihundert_ Galleonen genommen, nur um sicher zu gehen. In dem Tresor war eine Menge Geld und ich hätte später alles zurücklegen können. Aber ich dachte, du würdest mich das nicht machen lassen. Ich dachte, du wärst sauer auf mich, nur weil ich frage. Lag ich falsch?"
 
 "Ich muss wohl zugeben, dass Sie recht haben", sagte Professor McGonagall. "Aber, junger Mann -"
 
@@ -576,7 +576,7 @@ Das Zuschlagen der Toilettentür schnitt die Worte ab. Nachdem Harry den Riegel 
 
 * * *
 
-Die Sonne ging unter und es war in der Tat schon sehr spät, als sie wieder im Hof des Tropfenden Kessels standen, der stillen, mit Blättern bedeckten Schnittstelle zwischen der magischen Winkelgasse in Britannien und der gesamten Muggelwelt. (Das war eine _wahnsinnig_ entkoppelte Wirtschaft...) Harry sollte zu einer Telefonzelle gehen und seinen Vater anrufen, sobald er auf der anderen Seite war. Er musste sich anscheinend keine Sorgen machen, dass sein Gepäck gestohlen würdes. Sein Kofferraum hatte den Status eines bedeutenden magischen Gegenstandes, etwas, das die meisten Muggel nicht bemerken würden; das war ein Teil dessen, was man in der Zaubererwelt bekommen konnte, wenn man bereit war, den Preis eines Gebrauchtwagens zu zahlen.
+Die Sonne ging unter und es war in der Tat schon sehr spät, als sie wieder im Hof des Tropfenden Kessels standen, der stillen, mit Blättern bedeckten Schnittstelle zwischen der magischen Winkelgasse in Britannien und der gesamten Muggelwelt. (Das war eine _wahnsinnig_ entkoppelte Wirtschaft...) Harry sollte zu einer Telefonzelle gehen und seinen Vater anrufen, sobald er auf der anderen Seite war. Er musste sich anscheinend keine Sorgen machen, dass sein Gepäck gestohlen würdes. Sein Koffer hatte den Status eines bedeutenden magischen Gegenstandes, etwas, das die meisten Muggel nicht bemerken würden; das war ein Teil dessen, was man in der Zaubererwelt bekommen konnte, wenn man bereit war, den Preis eines Gebrauchtwagens zu zahlen.
 
 "Hier trennen sich also unsere Wege, für eine Zeit", sagte Professor McGonagall. Sie schüttelte verwundert den Kopf. "Das war der merkwürdigste Tag meines Lebens seit ... seit vielen Jahre. Seit dem Tag, an dem ich erfuhr, dass ein Kind Du-weißt-schon-wen besiegt hat. Ich frage mich jetzt, rückblickend, ob das der letzte vernünftige Tag der Welt war."
 

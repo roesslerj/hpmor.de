@@ -120,7 +120,7 @@ Harry hatte also einen Beruhigungszauber benutzt und ging weiter, um sein Frühs
 
 Harry war ziemlich neugierig, aber es wäre nicht gut gewesen, die Kunstfertigkeit zu verderben, indem er sie aus zweiter Hand hörte.
 
-Er hatte seine Hausaufgaben für die nächsten Stunden in der Sicherheit seines Kofferraums gemacht, nachdem er seinen Mitschülern gesagt hatte, dass sie ihn holen sollten, wenn jemand eine Originalzeitung für ihn finden würde.
+Er hatte seine Hausaufgaben für die nächsten Stunden in der Sicherheit seines Koffers gemacht, nachdem er seinen Mitschülern gesagt hatte, dass sie ihn holen sollten, wenn jemand eine Originalzeitung für ihn finden würde.
 
 Harry war immer noch unwissend, als er um 10 Uhr morgens Hogwarts in einer Kutsche mit Professor Quirrell verlassen hatte, der vorne rechts saß und gerade im Zombiemodus zusammengesackt war. Harry saß schräg gegenüber, so weit weg, wie es der Wagen zuließ, hinten links. Trotzdem hatte Harry ein ständiges Gefühl des Untergangs, als die Kutsche über einen kleinen Pfad durch einen Abschnitt des nicht verbotenen Waldes ratterte. Das machte die Lektüre etwas schwierig, vor allem, da der Stoff schwierig war und Harry sich plötzlich wünschte, er würde stattdessen eines seiner Science-Fiction-Bücher aus der Kindheit lesen -.
 

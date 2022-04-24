@@ -32,7 +32,7 @@ Harry aß in mäßigem Schweigen weiter, während verschiedene Weasleys über ei
 
 "Also", sagte Harry, "kennst du diese wirklich einfachen Programme der Künstlichen Intelligenz wie ELIZA, die so programmiert sind, dass sie Wörter in syntaktischen englischen Sätzen verwenden, nur dass sie kein Verständnis dafür haben, was die Wörter bedeuten?"
 
-"Natürlich", sagte die Hexe. "Ich habe ein Dutzend davon in meinem Kofferraum."
+"Natürlich", sagte die Hexe. "Ich habe ein Dutzend davon in meinem Koffer."
 
 "Nun, ich bin mir ziemlich sicher, dass mein Verständnis von Mädchen in etwa auf diesem Niveau liegt."
 

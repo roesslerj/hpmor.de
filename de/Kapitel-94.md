@@ -60,11 +60,11 @@ Der alte Zauberer nickte. "Weißt du, warum sie genommen wurde?"
 
 "Das wusste ich nicht. Was den Verdacht angeht, so habe ich sie in die am stärksten verteidigte Position gebracht, die ich gegen Voldemort einnehmen konnte. Ich habe ihren Tod weder gewollt, noch zugelassen, noch habe ich vor, davon zu profitieren, Harry Potter. Jetzt zeig mir deinen Beutel."
 
-"Es ist in meinem Kofferraum -" begann Harry.
+"Es ist in meinem Koffer -" begann Harry.
 
-"Severus", sagte der alte Zauberer und der Zaubertränkemeister trat vor. "Überprüfe auch seinen Kofferraum, jedes Fach."
+"Severus", sagte der alte Zauberer und der Zaubertränkemeister trat vor. "Überprüfe auch seinen Koffer, jedes Fach."
 
-"Mein Kofferraum hat Schutzvorrichtungen."
+"Mein Koffer hat Schutzvorrichtungen."
 
 Severus Snape grinste vergnügt und schritt in die grüne Flamme.
 
