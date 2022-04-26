@@ -112,13 +112,13 @@ Professor McGonagalls Blick wankte nicht. "Und was würden Sie in so einem Koffe
 
 "Ja, genau."
 
-Professor McGonagalls Körper schien zusammenzusacken, die Schultern senkten sich in ihren schwarzen Roben. "Ich kann die Sinnhaftigkeit Ihrer Worte nicht leugnen, obwohl ich es mir sehr wünsche. Ich erlaube Ihnen, weitere 100 Galleonen abzuheben, Herr. Potter." Sie seufzte erneut. "Ich _weiß_, dass ich das bereuen werde, und ich tue es trotzdem."
+Professor McGonagalls Körper schien zusammenzusacken, die Schultern senkten sich in ihren schwarzen Roben. "Ich kann die Sinnhaftigkeit Ihrer Worte nicht leugnen, obwohl ich es mir sehr wünsche. Ich erlaube Ihnen, weitere 100 Galleonen abzuheben, Mr. Potter." Sie seufzte erneut. "Ich _weiß_, dass ich das bereuen werde, und ich tue es trotzdem."
 
 "Das ist die richtige Einstellung! Und macht ein 'Beutel aus Eselsfell' das, was ich denke, dass er tut?"
 
-"Es kann nicht so viel wie ein Koffer", sagte die Hexe mit sichtbarem Widerwillen, "aber... ein Eselsfellbeutel mit einem Rückholzauber und einem Unaufspürbaren Ausdehnungszauber kann eine Reihe von Gegenständen aufnehmen, bis sie von demjenigen, der sie eingesetzt hat, abgerufen werden -"
+"Er kann nicht so viel wie ein Koffer", sagte die Hexe mit sichtbarem Widerwillen, "aber... ein Eselsfellbeutel mit einem Rückholzauber und einem Unaufspürbaren Ausdehnungszauber kann eine Reihe von Gegenständen aufnehmen, bis sie von demjenigen, der sie eingesetzt hat, abgerufen werden -"
 
-"Ja! Ich brauche definitiv auch so einen! Das ist ja wie die Supergürteltasche der ultimativen Großartigkeit! Batmans Werkzeuggürtel! Was soll ich mit einem Schweizer Taschenmesser, wenn ich einfach einen ganzen Werkzeugkasten mit mir herumtragen kann! Oder _Bücher!_ Ich könnte die drei wichtigsten Bücher, die ich gerade lese, immer bei mir haben und überall einfach eines herausziehen! Ich müsste nie wieder eine Minute meines Lebens verschwenden! Was sagen Sie dazu, Professor McGonagall? Es ist zum Wohle des Lesens von Kindern, die beste aller möglichen Ursachen."
+"Ja! Ich brauche definitiv auch so einen! Das ist ja wie die Supergürteltasche der ultimativen Großartigkeit! Batmans Werkzeuggürtel! Was soll ich mit einem Schweizer Taschenmesser, wenn ich einfach einen ganzen Werkzeugkasten mit mir herumtragen kann! Oder _Bücher_! Ich könnte die drei wichtigsten Bücher, die ich gerade lese, immer bei mir haben und überall einfach eines herausziehen! Ich müsste nie wieder eine Minute meines Lebens verschwenden! Was sagen Sie dazu, Professor McGonagall? Es ist zum Wohle des Lesens von Kindern, der beste aller möglichen Zwecken."
 
 "... Ich nehme an, Sie können weitere zehn Galleonen hinzufügen."
 
@@ -128,9 +128,9 @@ Griphook schenkte Harry einen Blick voller Respekt, vielleicht sogar offener Bew
 
 "Übertreiben Sie es nicht, Mr. Potter."
 
-"Aber, oh, Professor McGonagall, warum gönnen Sie mir das nicht? Das ist doch ein _glücklicher_ Tag, an dem ich zum ersten Mal alles, was mit Zauberei zu tun hat, entdecke! Warum die Rolle des mürrischen Erwachsenen spielen, wenn Sie stattdessen lächeln und sich an Ihre eigene unschuldige Kindheit erinnern könnten, wenn Sie den Ausdruck der Freude auf meinem jungen Gesicht sehen, wenn ich ein paar Spielsachen kaufe, mit einem unbedeutenden Bruchteil des Reichtums, den ich verdient habe, indem ich den schrecklichsten Zauberer besiegt habe, den Britannien je gekannt hat - nicht, dass ich Ihnen Undankbarkeit vorwerfe oder so, aber was sind schon ein paar Spielsachen im Vergleich dazu?
+"Aber, oh, Professor McGonagall, warum gönnen Sie mir das nicht? Das ist doch ein _glücklicher_ Tag, an dem ich zum ersten Mal alles, was mit Zauberei zu tun hat, entdecke! Warum die Rolle des mürrischen Erwachsenen spielen, wenn Sie stattdessen lächeln und sich an Ihre eigene unschuldige Kindheit erinnern könnten, wenn Sie den Ausdruck der Freude auf meinem jungen Gesicht sehen, wenn ich ein paar Spielsachen kaufe, mit einem unbedeutenden Bruchteil des Reichtums, den ich verdient habe, indem ich den schrecklichsten Zauberer besiegt habe, den Britannien je gekannt hat - nicht, dass ich Ihnen Undankbarkeit vorwerfe oder so, aber was sind schon ein paar Spielsachen im Vergleich dazu?"
 
-"_Sie_", knurrte Professor McGonagall. Ihr Gesichtsausdruck war so furchteinflößend und schrecklich, dass Harry quietschend einen Schritt zurücktrat und dabei mit einem großen klirrenden Geräusch einen Stapel Goldmünzen umwarf und rückwärts in einen Haufen Geld stürzte. Griphook seufzte und legte eine Handfläche über sein Gesicht. "Ich würde dem zaubernden Großbritannien einen großen Dienst erweisen, Mr. Potter, wenn ich Sie in diesem Tresor einschließen und hier lassen würde. "
+"_Sie_", knurrte Professor McGonagall. Ihr Gesichtsausdruck war so furchteinflößend und schrecklich, dass Harry quietschend einen Schritt zurücktrat und dabei mit einem großen klirrenden Geräusch einen Stapel Goldmünzen umwarf und rückwärts in einen Haufen Geld stürzte. Griphook seufzte und legte eine Handfläche über sein Gesicht. "Ich würde dem zaubernden Großbritannien einen großen Dienst erweisen, Mr. Potter, wenn ich Sie in diesem Tresor einschließen und hier lassen würde."
 
 Und sie gingen ohne weitere Probleme.
 

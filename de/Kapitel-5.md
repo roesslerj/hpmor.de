@@ -1,6 +1,6 @@
 # Kapitel 5: Der fundamentale Attributionsfehler
 
-J. K. Rowling starrt Sie an. Spürst du ihre Augen auf dir? Sie liest Ihre Gedanken mit ihren Rowling-Strahlen.
+J. K. Rowling starrt Dich an. Spürst du ihre Augen auf dir? Sie liest Deine Gedanken mit ihren Rowling-Strahlen.
 
 * * *
 
@@ -8,7 +8,7 @@ J. K. Rowling starrt Sie an. Spürst du ihre Augen auf dir? Sie liest Ihre Gedan
 
 * * *
 
-Der Eselsladen war ein uriger kleiner Laden (manche würden sogar sagen: niedlich), der sich hinter einem Gemüsestand verbarg, der sich hinter einem Laden für magische Handschuhe befand, der in einer Gasse in einer Seitenstraße der Winkelgasse lag. Enttäuschenderweise war die Ladenbesitzerin keine verhutzelte alte Kuh, sondern eine nervös wirkende junge Frau in verblichenen gelben Gewändern. Im Moment hielt sie einen Super-Eselsfellbeutel QX31 in der Hand, dessen Verkaufsargument darin bestand, dass er sowohl eine dehnbaren Öffnung als auch einen Unaufspürbaren Ausdehnungszauber besaß: Man konnte tatsächlich große Dinge darin unterbringen, obwohl das Gesamtvolumen immer noch begrenzt war.
+Der Eselsfellbeutelladen war ein uriger kleiner Laden (manche würden sogar sagen: niedlich), der sich hinter einem Gemüsestand verbarg, der sich hinter einem Laden für magische Handschuhe befand, der in einer Gasse in einer Seitenstraße der Winkelgasse lag. Enttäuschenderweise war die Ladenbesitzerin keine verhutzelte alte Kuh, sondern eine nervös wirkende junge Frau in verblichenen gelben Gewändern. Im Moment hielt sie einen Super-Eselsfellbeutel QX31 in der Hand, dessen Verkaufsargument darin bestand, dass er sowohl eine dehnbaren Öffnung als auch einen Unaufspürbaren Ausdehnungszauber besaß: Man konnte tatsächlich große Dinge darin unterbringen, obwohl das Gesamtvolumen immer noch begrenzt war.
 
 Harry hatte darauf _bestanden_, gleich als Erstes hierher zu kommen - so sehr, wie er glaubte, darauf bestehen zu können, ohne Professor McGonagall misstrauisch zu machen. Harry hatte etwas, das er so schnell wie möglich in den Beutel stecken musste. Es war nicht der Sack mit Galleonen, den Professor McGonagall ihm erlaubt hatte, aus Gringotts abzuziehen. Es waren all die anderen Galleonen, die Harry heimlich in seine Tasche gesteckt hatte, nachdem er in einen Haufen Goldmünzen gefallen war. Das _war_ ein echter Unfall gewesen, aber Harry war nie jemand, der eine Gelegenheit ausschlug... obwohl es eigentlich mehr eine spontane Sache war. Seitdem trug Harry den erlaubten Sack mit den Galleonen unbeholfen neben seiner Hosentasche, damit jedes Klimpern von der richtigen Stelle zu kommen schien.
 
@@ -16,7 +16,7 @@ Damit blieb immer noch die Frage, wie er die _anderen_ Münzen in den Beutel bek
 
 Harry sah von dem Super-Eselsfellbeutel QX31 auf dem Tresen vor ihm auf. "Kann ich das eine Weile ausprobieren? Um sicherzugehen, dass es, ähm, zuverlässig funktioniert?" Er weitete seine Augen mit einem Ausdruck von jungenhafter, spielerischer Unschuld.
 
-Sicherlich, nach zehn Wiederholungen des Einsteckens des Münzbeutels in den Beutel, des Hineinreichens, des Flüsterns "Sack mit Gold" und des Herausnehmens, ging Professor McGonagall einen Schritt weg und begann, einige der anderen Gegenstände im Laden zu untersuchen, und die Ladenbesitzerin drehte ihren Kopf, um zuzusehen.
+Wie erwartet ging Professor McGonagall, nach zehn Wiederholungen des Einsteckens des Münzbeutels in den Beutel, des Hineinreichens, des Flüsterns "Sack mit Gold" und des Herausnehmens, ein paar Schritte weg und begann, einige der anderen Gegenstände im Laden zu untersuchen, und die Ladenbesitzerin drehte ihren Kopf, um zuzusehen.
 
 Harry ließ den Goldbeutel mit der _linken_ Hand in den Eselbeutel fallen; seine _rechte_ Hand kam aus der Tasche, in der er einige der Goldmünzen festhielt, griff in den Eselbeutel, ließ die losen Galleonen fallen und holte (mit einem geflüsterten "Sack mit Gold") den ursprünglichen Sack wieder heraus. Dann ging der Sack zurück in seine _linke_ Hand, um wieder hineingeworfen zu werden, und Harrys _rechte_ Hand ging zurück in seine Tasche...
 
@@ -28,7 +28,7 @@ Fünfzehn Galleonen leichter (anscheinend das Doppelte des Preises für einen Za
 
 Und dann, leider...
 
-"Bist du _wirklich_ Harry Potter?", flüsterte der alte Mann, wobei ihm eine große Träne über die Wange glitt. "Du würdest doch deswegen nicht lügen, oder? Ich hatte nur Gerüchte gehört, dass du den Tötungsfluch _wirklich_ nicht überlebt hast und man deshalb nie wieder etwas von dir gehört hat."
+"Bist du _wirklich_ Harry Potter?", flüsterte der alte Mann, wobei ihm eine große Träne über die Wange glitt. "Du würdest doch deswegen nicht lügen, oder? Ich hatte nur Gerüchte gehört, dass du den Tötungsfluch nicht _wirklich_ überlebt hast und man deshalb nie wieder etwas von dir gehört hat."
 
 ... Es schien, dass Professor McGonagalls Verkleidungszauber gegen erfahrenere Magieanwender nicht ganz so effektiv war.
 
@@ -36,17 +36,17 @@ Professor McGonagall hatte Harry eine Hand auf die Schulter gelegt und ihn in di
 
 Harry dachte über die Frage nach. _War_ er wirklich Harry Potter? "Ich weiß nur, was andere Leute mir erzählt haben", sagte Harry. "Es ist nicht so, dass ich mich an meine Geburt erinnere. " Seine Hand strich ihm über die Stirn. "Ich habe diese Narbe, solange ich mich erinnern kann, und mir wurde gesagt, mein Name sei Harry Potter, solange ich mich erinnern kann. Aber", sagte Harry nachdenklich, "wenn es schon genügend Gründe gibt, eine Verschwörung zu unterstellen, gibt es keinen Grund, warum sie nicht einfach ein anderes Waisenkind finden und es in dem Glauben erziehen sollten, dass _er_ Harry Potter sei -"
 
-Professor McGonagall fuhr sich verärgert mit der Hand über das Gesicht. "Du siehst fast genauso aus wie dein Vater, James, in dem Jahr, als er zum ersten Mal Hogwarts besuchte. Und ich kann allein aufgrund der _Persönlichkeit_ bezeugen, dass Sie mit der Geißel von Gryffindor verwandt sind."
+Professor McGonagall fuhr sich verärgert mit der Hand über das Gesicht. "Du siehst fast genauso aus wie dein Vater, James, in dem Jahr, als er zum ersten Mal Hogwarts besuchte. Und ich kann allein aufgrund Deiner _Persönlichkeit_ bezeugen, dass Du mit der Geißel von Gryffindor verwandt bist."
 
 "_Sie_ könnte auch mit drinstecken", bemerkte Harry.
 
 "Nein", zitterte der alte Mann. "Sie hat Recht. Du hast die Augen deiner Mutter."
 
-"Hmm", Harry runzelte die Stirn. "Ich nehme an, _Sie_ könnten auch dazu gehören -".
+"Hmm", Harry runzelte die Stirn. "Ich nehme an, _Sie_ könnten auch dazu gehören -"
 
 "Genug, Mr. Potter."
 
-Der alte Mann hob eine Hand, als ob er Harry berühren wollte, ließ sie dann aber fallen. "Ich bin nur froh, dass Sie noch leben", murmelte er. "Danke, Harry Potter. Vielen Dank für das, was Sie getan haben... Ich lasse Sie jetzt in Ruhe. ".
+Der alte Mann hob eine Hand, als ob er Harry berühren wollte, ließ sie dann aber fallen. "Ich bin nur froh, dass Sie noch leben", murmelte er. "Danke, Harry Potter. Vielen Dank für das, was Sie getan haben... Ich lasse Sie jetzt in Ruhe."
 
 Und sein Stock tippte langsam weg, hinaus aus der Gasse und die Hauptstraße der Winkelgasse hinunter.
 
@@ -54,9 +54,9 @@ Die Professorin sah sich um, ihr Ausdruck war angespannt und grimmig. Harry sah 
 
 Endlich schien sich Professor McGonagall zu entspannen. "Das war nicht gut", sagte sie mit leiser Stimme. "Ich weiß, Sie sind das nicht gewohnt, Mr. Potter, aber die Leute sorgen sich um Sie. Bitte seien Sie freundlich zu ihnen."
 
-Harry schaute auf seine Schuhe hinunter. "Das sollten sie nicht", sagte er mit einem Anflug von Bitterkeit. "Sich um mich sorgen", meine ich."
+Harry schaute auf seine Schuhe hinunter. "Das sollten sie nicht", sagte er mit einem Anflug von Bitterkeit. "Sich um mich sorgen, meine ich."
 
-"Sie haben sie vor Sie-wissen-schon-wem gerettet", sagte Professor McGonagall. "Wie sollten sie sich nicht um Sie sorgen?".
+"Sie haben sie vor Sie-wissen-schon-wem gerettet", sagte Professor McGonagall. "Wie sollten sie sich nicht um Sie sorgen?"
 
 Harry sah zu dem strengen Gesichtsausdruck der Hexenmeisterin unter ihrem spitzen Hut auf und seufzte. "Ich nehme an, dass Sie keine Ahnung haben, was gemeint ist, wenn ich _Grundlegender Zuordnungsfehler_ sage."
 
@@ -64,33 +64,33 @@ Harry sah zu dem strengen Gesichtsausdruck der Hexenmeisterin unter ihrem spitze
 
 "Nun..." sagte Harry und versuchte herauszufinden, wie er diesen besonderen Teil der Muggelwissenschaft beschreiben sollte. "Angenommen, Sie kommen zur Arbeit und sehen, wie Ihr Kollege gegen seinen Schreibtisch tritt. Sie denken, 'was für ein wütender Mensch er sein muss'. Ihr Kollege denkt darüber nach, wie ihn jemand auf dem Weg zur Arbeit gegen eine Wand gestoßen hat und ihn dann anschrie. _Jeder_ wäre darüber verärgert, denkt er. Wenn wir andere betrachten, sehen wir Persönlichkeitsmerkmale, die ihr Verhalten erklären, aber wenn wir uns selbst betrachten, sehen wir Umstände, die unser Verhalten erklären. Das Verhalten eines Menschen erscheint ihm selbst vollkommen schlüssig, aber wir sehen seine Vergangenheit nicht, wir sehen nicht, wie er sich in anderen Situationen verhält. Der grundlegende Attributionsfehler besteht also darin, dass wir mit dauerhaften, beständigen Merkmalen erklären, was besser durch Umstände und Kontext zu erklären wäre." Es gab einige elegante Experimente, die dies bestätigten, aber Harry hatte nicht vor, auf sie einzugehen.
 
-Die Augenbrauen der Hexe zogen sich unter der Krempe ihres Hutes hoch. "Ich glaube, ich verstehe... " Professor McGonagall sagte langsam. "Aber was hat das mit Ihnen zu tun?".
+Die Augenbrauen der Hexe zogen sich unter der Krempe ihres Hutes hoch. "Ich glaube, ich verstehe..." Professor McGonagall sagte langsam. "Aber was hat das mit Ihnen zu tun?".
 
 Harry trat gegen die Backsteinmauer der Gasse so fest, dass sein Fuß schmerzte. "Die Leute denken, dass ich sie vor Sie-wissen-schon-wem gerettet habe, weil ich eine Art großer Krieger des Lichts bin."
 
-"Derjenige, der die Macht hat, den Dunklen Lord zu bezwingen... ", murmelte die Hexe, eine seltsame Ironie lag in ihrer Stimme.
+"Derjenige, der die Macht hat, den Dunklen Lord zu bezwingen...", murmelte die Hexe, eine seltsame Ironie lag in ihrer Stimme.
 
-"Ja", sagte Harry, Ärger und Frustration kämpften in ihm, "als hätte ich den Dunklen Lord zerstört, weil ich eine Art permanente, dauerhafte Zerstör-den-Dunklen-Lord-Eigenschaft habe. Ich war zu der Zeit fünfzehn Monate alt! Ich _weiß_ nicht, was passiert ist, aber ich würde _annehmen_, dass es etwas mit, wie man so schön sagt, kontingenten Umweltbedingungen zu tun hatte. Und ganz sicher nichts mit meiner Persönlichkeit. Die Leute interessieren sich nicht für _mich_, sie schenken _mir_ keine Aufmerksamkeit, sie wollen nur _ohne guten Grund_ meine Hand schütteln. " Harry hielt inne und sah McGonagall an. "Wissen _Sie_, was wirklich passiert ist?".
+"Ja", sagte Harry, Ärger und Frustration kämpften in ihm, "als hätte ich den Dunklen Lord zerstört, weil ich eine Art permanente, dauerhafte Zerstör-den-Dunklen-Lord-Eigenschaft habe. Ich war zu der Zeit fünfzehn Monate alt! Ich _weiß_ nicht, was passiert ist, aber ich würde _annehmen_, dass es etwas mit, wie man so schön sagt, kontingenten Umweltbedingungen zu tun hatte. Und ganz sicher nichts mit meiner Persönlichkeit. Die Leute interessieren sich nicht für _mich_, sie schenken _mir_ keine Aufmerksamkeit, sie wollen nur _ohne guten Grund_ meine Hand schütteln." Harry hielt inne und sah McGonagall an. "Wissen _Sie_, was wirklich passiert ist?".
 
 "Ich _habe_ eine Vermutung...", sagte Professor McGonagall. "Zumindest seitdem ich Sie kennengelernt habe."
 
 "Ja?"
 
-"Sie haben über den Dunklen Lord triumphiert, indem Sie schrecklicher waren als _er_, und Sie haben den Tötungsfluch überlebt, indem sie grausamer als der Tod selbst waren."
+"Sie haben über den Dunklen Lord triumphiert, indem Sie schrecklicher waren als _er_, und Sie haben den Tötungsfluch überlebt, indem sie grausamer sind als der Tod selbst."
 
-"Ha. Ha. Ha. " Harry trat wieder gegen die Wand.
+"Ha. Ha. Ha." Harry trat wieder gegen die Wand.
 
 Professor McGonagall gluckste. "Als Nächstes bringen wir Sie zu Madam Malkin. Ich fürchte, Ihre Muggelkleidung könnte Aufmerksamkeit erregen."
 
 Unterwegs trafen sie auf zwei weitere Gratulanten.
 
-Madam Malkins Umhänge hatte eine wirklich langweilige Ladenfront, rote gewöhnliche Backsteine und Glasfenster, die schlichte schwarze Roben im Inneren zeigten. Keine Roben, die leuchteten oder sich veränderten oder drehten oder seltsame Strahlen ausstrahlten, die durch dein Hemd zu gehen und dich zu kitzeln schienen. Nur einfache schwarze Roben, das war alles, was man durch das Fenster sehen konnte. Die Tür war weit aufgestoßen, als wollte sie verkünden, dass es hier keine Geheimnisse und nichts zu verbergen gibt.
+Madam Malkins Umhänge hatte eine wirklich langweilige Ladenfront, rote gewöhnliche Backsteine und Glasfenster, die schlichte schwarze Roben im Inneren zeigten. Keine Roben, die leuchteten oder sich veränderten oder drehten oder seltsame Strahlen ausstrahlten, die durch dein Hemd zu gehen und dich zu kitzeln schienen. Nur einfache schwarze Roben, das war alles, was man durch das Fenster sehen konnte. Die Tür war weit aufgestoßen, als wollte sie verkünden, dass es hier keine Geheimnisse und nichts zu verbergen gab.
 
 "Ich werde für ein paar Minuten weggehen, während Sie ihre Roben anprobieren", sagte Professor McGonagall. "Ist das für Sie in Ordnung, Mr. Potter?"
 
 Harry nickte. Er hasste Kleiderkauf mit einer feurigen Leidenschaft und konnte es der älteren Hexe nicht verübeln, dass sie genauso empfand.
 
-Professor McGonagalls Zauberstab kam aus ihrem Ärmel und tippte leicht an Harrys Kopf. "Und da Sie für Madam Malkins Sinne klar sein müssen, entferne ich die Vernebelung."
+Professor McGonagalls Zauberstab kam aus ihrem Ärmel und tippte leicht an Harrys Kopf. "Und da Sie für Madam Malkins Sinne klar sein müssen, entferne ich die Verkleidung."
 
 "Äh..." sagte Harry. Das beunruhigte ihn ein wenig; er war immer noch nicht an diese "Harry Potter"-Sache gewöhnt.
 
@@ -98,7 +98,7 @@ Professor McGonagalls Zauberstab kam aus ihrem Ärmel und tippte leicht an Harry
 
 "Wo gehen _Sie_ hin?" erkundigte sich Harry. "Nur für den Fall, dass etwas _passiert_."
 
-McGonagall warf Harry einen strengen Blick zu. "Ich gehe _dorthin_", sagte sie und zeigte auf ein Gebäude auf der anderen Straßenseite, auf dem das Zeichen eines Holzfasses zu sehen war, "werde mir einen Drink genehmigen, den ich dringend nötig habe. _Sie_ sollten ihre Gewänder anprobieren, _nichts anderes_. Ich werde _in Kürze_ wiederkommen, um nach Ihnen zu sehen, und ich _erwarte_, dass Madame Malkins Laden noch steht und kein kleines Bißchen in Flammen aufgegangen ist."
+McGonagall warf Harry einen strengen Blick zu. "Ich gehe _dorthin_", sagte sie und zeigte auf ein Gebäude auf der anderen Straßenseite, auf dem das Zeichen eines Holzfasses zu sehen war, "und werde mir einen Drink genehmigen, den ich dringend nötig habe. _Sie_ sollten ihre Gewänder anprobieren, _nichts anderes_. Ich werde _in Kürze_ wiederkommen, um nach Ihnen zu sehen, und ich _erwarte_, dass Madame Malkins Laden noch steht und nicht das kleinste Bißchen in Flammen aufgegangen ist."
 
 Madam Malkin war eine geschäftige alte Frau, die kein Wort über Harry verlor, als sie die Narbe auf seiner Stirn sah, und Ihrer Assistentin einen scharfen Blick zuwarf, als diese etwas sagen wollte. Madam Malkin holte eine Reihe von animierten, sich windenden Stofffetzen hervor, die als Maßband zu dienen schienen, und machte sich an die Arbeit, das Medium ihrer Kunst zu untersuchen.
 
@@ -112,11 +112,11 @@ Harry konnte vorhersehen, wohin dieses Gespräch führen würde, und er beschlos
 
 "Draco Malfoy", sagte Draco Malfoy mit leicht verwirrtem Blick.
 
-"Sie _sind_ es! Draco Malfoy. Ich - ich hätte nie gedacht, dass mir jemals diese Ehre zuteil würde, Sir. " Harry wünschte sich, dass ihm die Tränen aus den Augen kämen. Die anderen fingen ungefähr an dieser Stelle an zu weinen.
+"Sie _sind_ es! Draco Malfoy. Ich - ich hätte nie gedacht, dass mir jemals diese Ehre zuteil würde, Sir." Harry wünschte sich, dass ihm die Tränen aus den Augen kämen. Die anderen fingen ungefähr an dieser Stelle an zu weinen.
 
 "Oh", sagte Draco und klang ein wenig verwirrt. Dann spannten sich seine Lippen zu einem selbstgefälligen Lächeln. "Es ist gut, jemanden zu treffen, der weiß, wo er hingehört."
 
-Eine der Assistentinen, diejenige, die Harry erkannt zu haben schien, gab einen gedämpften, Laut von sich, als sie ihr Kichern erstickte.
+Eine der Assistentinen, diejenige, die Harry erkannt zu haben schien, gab einen gedämpften Laut von sich, als sie ihr Kichern erstickte.
 
 Harry plapperte weiter. "Ich freue mich, Sie kennenzulernen, Mr. Malfoy. Ich bin einfach unsagbar erfreut. Und im selben Jahr wie Sie in Hogwarts anzufangen! Mein Herz blüht auf!"
 
@@ -132,7 +132,7 @@ _Oh, ich muss das definitiv beim nächsten Menschen, der mir die Hand schütteln
 
 "In der Tat", schnappte der andere Junge. Sein strenges Gesicht hellte sich etwas auf. "Sag mal, in welches Haus wirst du wohl einsortiert werden? Ich bin natürlich für das Haus Slytherin bestimmt, wie mein Vater Lucius vor mir. Und bei dir würde ich auf Haus Hufflepuff tippen, oder vielleicht Haus Elf."
 
-Harry grinste verlegen. "Professor McGonagall sagt, dass ich die Ravenclaw-artigste Person bin, von der sie je gesehen oder von dem sie je gehört hat, und zwar so sehr, dass Rowena selbst mir raten würde, mehr rauszugehen, was auch immer _das_ bedeuten mag, und dass ich zweifellos im Haus Ravenclaw landen werde, wenn der Sprechende Hut nicht vor Schreck so laut aufschreit, dass wir alle taub werden. Zitat Ende."
+Harry grinste verlegen. "Professor McGonagall sagt, dass ich die Ravenclaw-artigste Person bin, die sie je gesehen oder von der sie je gehört hat, und zwar so sehr, dass Rowena selbst mir raten würde, mehr rauszugehen, was auch immer _das_ bedeuten mag, und dass ich zweifellos im Haus Ravenclaw landen werde, wenn der Sprechende Hut nicht vor Schreck so laut aufschreit, dass wir alle taub werden. Zitat Ende."
 
 "Wow", sagte Draco Malfoy und klang leicht beeindruckt. Der Junge stieß eine Art wehmütigen Seufzer aus. "Deine Schmeichelei war großartig, zumindest gefiel sie mir sehr - du würdest dich auch im Haus Slytherin gut machen. Normalerweise ist es nur mein Vater, der diese Art von Kriecherei bekommt. Ich _hoffe_, dass die anderen Slytherins sich jetzt, wo ich in Hogwarts bin, bei mir einschleimen... Dann ist das wohl ein gutes Zeichen."
 
@@ -140,17 +140,17 @@ Harry hustete. "Eigentlich, sorry, ich habe keine Ahnung, wer Du wirklich bist."
 
 "Ach komm schon!", sagte der Junge mit grimmiger Enttäuschung. "Warum hast du das dann gemacht?" Dracos Augen weiteten sich vor plötzlichem Misstrauen. "Und woher weißt du _nicht_ von den Malfoys? Und was sind das für _Klamotten_, die du da trägst? Sind deine Eltern _Muggel?_"
 
-"Zwei meiner Eltern sind tot", sagte Harry. Wenn er es so ausdrückte, versetzte es ihm einen Stich mitten ins Herz. "Meine anderen beiden Eltern sind Muggel, und sie sind diejenigen, die mich aufgezogen haben."
+"Zwei meiner Eltern sind tot", sagte Harry. Wenn er es so ausdrückte, versetzte es ihm einen Stich mitten ins Herz. "Meine anderen beiden Eltern sind Muggel, und sie sind die, die mich aufgezogen haben."
 
-"_Was?_ ", sagte Draco. "Wer _bist_ Du?".
+"_Was?_", sagte Draco. "Wer _bist_ Du?"
 
 "Harry Potter, freut mich, Dich kennenzulernen."
 
-"_Harry Potter?_ ", keuchte Draco. "_Der_ Harry -" und der Junge brach abrupt ab.
+"_Harry Potter?_", keuchte Draco. "_Der_ Harry -" und der Junge brach abrupt ab.
 
 Es herrschte eine kurze Stille.
 
-Dann, mit heller Begeisterung, "Harry Potter? _Der_ Harry Potter? Mensch, dich wollte ich schon immer mal kennenlernen!"
+Dann, mit heller Begeisterung, "Harry Potter? _Der_ Harry Potter? Meine Güte, dich wollte ich schon immer mal kennenlernen!"
 
 Dracos Assistentin stieß einen Laut aus, als ob sie erstickte, fuhr aber mit ihrer Arbeit fort und hob Dracos Arme an, um das karierte Gewand vorsichtig zu entfernen.
 
@@ -180,7 +180,7 @@ In einem Bruchteil einer Sekunde mitfühlender Panik formulierte Harry einen Ret
 
 Einer von Malkins Assistenten musste sich abwenden und an die Wand stellen.
 
-Kühle, mörderische Augen betrachteten ihn. "Harry Potter".
+Kühle, mörderische Augen betrachteten ihn. "Harry Potter"
 
 "Es ist mir eine große Ehre, Sie kennenzulernen!"
 
@@ -194,7 +194,7 @@ Auf ihrem Gesicht lag so pures Entsetzen, dass Harrys Mund sich automatisch öff
 
 "Professor McGonagall!", rief Draco. "Sind Sie es wirklich? Ich habe von meinem Vater so viel über Sie gehört, dass ich überlegt habe, mich nach Gryffindor sortieren zu lassen, damit ich -"
 
-"_Was?_", brüllten Lucius Malfoy und Professor McGonagall in perfektem Gleichklang. Ihre Köpfe drehten sich im selben Moment zueinander und dann wichen beide voneinander zurück, als ob sie einen Synchrontanz vorführten.
+"_Was?_", brüllten Lucius Malfoy und Professor McGonagall in perfektem Gleichklang. Ihre Köpfe drehten sich im selben Moment zueinander und dann wichen beide voneinander zurück, als ob sie einen Synchrontanz vollführten.
 
 Es gab eine plötzliche Hektik, als Lucius Draco packte und ihn aus dem Laden zerrte.
 
@@ -206,7 +206,7 @@ Professor McGonagall schritt vorwärts in den Laden, bis sie Madam Malkin gegen�
 
 "Madam Malkin", sagte Professor McGonagall, ihre Stimme war ruhig. "Was ist hier passiert?"
 
-Madam Malkin schaute Ihr vier Sekunden lang stumm in die Augen, dann brach sie lachend zusammen. Sie ließ sich unter schallendem Gelächter gegen die Wand fallen und steckte damit ihre Gehilfinnen an, eine von ihnen stützte sich auf Händen und Knien am Boden ab und kicherte hysterisch.
+Madam Malkin schaute Ihr vier Sekunden lang stumm in die Augen, dann brach sie lachend zusammen. Sie ließ sich unter schallendem Gelächter gegen die Wand fallen und steckte damit ihre Gehilfinnen an. Eine von ihnen stützte sich auf Händen und Knien am Boden ab und kicherte hysterisch.
 
 Professor McGonagall drehte sich langsam um und sah Harry an, ihr Ausdruck war kühl. "Ich habe Sie für fünf Minuten allein gelassen. Genau _fünf Minuten_, Mr Potter."
 
