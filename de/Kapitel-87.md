@@ -204,7 +204,7 @@ Und sie erinnerte sich daran - das war eigentlich der Grund, warum sie das Thema
 
 "Draco Malfoy erzählte den Auroren unter Veritaserum, dass er wissen wollte, ob er mich schlagen kann, also forderte er mich zu einem Duell heraus, um es _empirisch_ zu testen. Das waren seine _exakten Worte_ laut der Abschrift."
 
-"Richtig", sagte Harry, ohne ihr in die Augen zu sehen. "Hermione Granger. Natürlich wird sie sich an den genauen Wortlaut erinnern. Es ist egal, ob sie an ihren Stuhl gekettet ist und vor dem gesamten Wizengamot wegen Mordes angeklagt wird -"
+"Richtig", sagte Harry, ohne ihr in die Augen zu sehen. "Hermine Granger. Natürlich wird sie sich an den genauen Wortlaut erinnern. Es ist egal, ob sie an ihren Stuhl gekettet ist und vor dem gesamten Wizengamot wegen Mordes angeklagt wird -"
 
 "Was hast du _wirklich_ mit Draco Malfoy gemacht?"
 

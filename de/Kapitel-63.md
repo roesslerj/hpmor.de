@@ -808,7 +808,7 @@ Und wenn du Professor Quirrell wärst, hättest du vielleicht beschlossen, das z
 
 Aber 3 von 40 Probanden hatten die Teilnahme bis zum Ende _verweigert_
 
-Die Hermiones.
+Die Hermines.
 
 Es gab sie wirklich, die Leute, die keine einfache Schlaghex auf einen Mitschüler abfeuern würden, selbst wenn der Verteidigungsprofessor es ihnen befehlen würde. Diejenigen, die während des Holocausts Zigeuner, Juden und Homosexuelle auf ihren Dachböden beherbergt hatten und dafür manchmal ihr Leben verloren.
 

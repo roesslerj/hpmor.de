@@ -202,7 +202,7 @@ Abgesehen davon, du weißt schon, _hundertfünfzig Hufflepuffs zu retten_, oder 
 
 "Ich dachte an alle, die in irgendeiner Weise mit Quidditch zu tun haben, egal wo, aber das Ravenclaw-Team wäre ein Anfang, ja."
 
-Hermiones Lippen waren missbilligend geschürzt. "Du _weißt_ schon, dass es falsch ist, Menschen zu töten, Harry?"
+Hermines Lippen waren missbilligend geschürzt. "Du _weißt_ schon, dass es falsch ist, Menschen zu töten, Harry?"
 
 "Ja", sagte Harry.
 

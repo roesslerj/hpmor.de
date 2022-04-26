@@ -158,7 +158,7 @@ Nimm es mir nicht weg, nimm es mir nicht weg -_
 
 Die Welt verschwamm und Harry wischte sich mit seinem Ärmel über die Augen.
 
-Wenn _Hermione_ diejenige hinter dieser Tür gewesen wäre -.
+Wenn _Hermine_ diejenige hinter dieser Tür gewesen wäre -.
 
 Wenn man Hermine nach Askaban gesteckt hätte, hätte Harry den Phönix gerufen und wäre dorthin gegangen und hätte jeden einzelnen Dementor verbrannt, und es hätte keinen Unterschied gemacht, wie verrückt das war oder was er sonst mit seinem Leben hätte anfangen wollen. Das war einfach so - das war - das war einfach so.
 

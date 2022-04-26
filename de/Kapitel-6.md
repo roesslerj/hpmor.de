@@ -496,47 +496,47 @@ Also. Neue Informationen; das war ein Friedensangebot. Harry nickte zustimmend u
 
 Der Truhenladen war reicher ausgestattet als jeder andere Laden, den Harry besucht hatte; die Vorhänge waren üppig und fein gemustert, der Boden und die Wände aus gebeiztem und poliertem Holz und die Truhen nahmen Ehrenplätze auf polierten Elfenbeinplattformen ein. Der Verkäufer war in eine Robe gekleidet, die nur einen Hauch unter der von Lucius Malfoy lag, und sprach mit erlesener, öliger Höflichkeit sowohl mit Harry als auch mit Professor McGonagall.
 
-Harry hatte seine Fragen gestellt und war zu einer Truhe aus schwerem Holz gegangen, nicht poliert, aber warm und solide, geschnitzt mit dem Muster eines Wächterdrachen, dessen Augen sich bewegten, um jeden anzusehen, der sich ihr näherte. Eine Truhe, die so verzaubert war, dass sie leicht war, auf Kommando schrumpfte, kleine krallenartige Tentakel aus ihrem Boden sprießen ließ und ihrem Besitzer folgte. Eine Truhe mit zwei Schubladen auf jeder der vier Seiten, die sich herausschieben ließen, um Fächer zu enthüllen, die so tief waren wie die ganze Truhe. Ein Deckel mit vier Schlössern, von denen jedes einen anderen Raum im Inneren offenbaren würde. Und - das war der wichtige Teil - ein Griff an der Unterseite, der einen Rahmen herausschob, der eine Treppe enthielt, die hinunter in einen kleinen, beleuchteten Raum führte, der, so schätzte Harry, etwa zwölf Bücherregale beherbergen würde.
+Harry hatte seine Fragen gestellt und war zu einem Schrankkoffer aus schwerem Holz gegangen, nicht poliert, aber warm und solide, geschnitzt mit dem Muster eines Wächterdrachen, dessen Augen sich bewegten, um jeden anzusehen, der sich ihr näherte. Ein Koffer, der so verzaubert war, dass er leicht war, auf Kommando schrumpfte, kleine krallenartige Tentakel aus seinem Boden sprießen ließ und ihrem Besitzer folgte. Ein Koffer mit zwei Schubladen auf jeder der vier Seiten, die sich herausschieben ließen, um Fächer zu enthüllen, die so tief waren wie der ganze Koffer. Ein Deckel mit vier Schlössern, von denen jedes einen anderen Raum im Inneren offenbaren würde. Und - das war der wichtige Teil - ein Griff an der Unterseite, der einen Rahmen herausschob, der eine Treppe enthielt, die hinunter in einen kleinen, beleuchteten Raum führte, der, so schätzte Harry, etwa zwölf Bücherregale beherbergen würde.
 
 Wenn sie solche Gepäckstücke herstellten, wusste Harry nicht, warum sich jemand die Mühe machte, ein Haus zu besitzen.
 
-Einhundertacht goldene Galleonen. Das war der Preis für einen gute Truhe, leicht gebraucht. Bei etwa fünfzig britischen Pfund für die Galeone war das genug, um ein gebrauchtes Auto zu kaufen. Es würde teurer sein als alles andere, was Harry in seinem ganzen Leben je gekauft hatte, zusammengenommen.
+Einhundertacht goldene Galleonen. Das war der Preis für einen guten Koffer, leicht gebraucht. Bei etwa fünfzig britischen Pfund für die Galeone war das genug, um ein gebrauchtes Auto zu kaufen. Es würde teurer sein als alles andere, was Harry in seinem ganzen Leben je gekauft hatte, zusammengenommen.
 
 Siebenundneunzig Galleonen. So viel war noch in dem Beutel mit Gold, den Harry aus Gringotts mitnehmen durfte.
 
-Professor McGonagall trug einen verärgerten Blick auf ihrem Gesicht. Nach einem langen Einkaufstag hatte sie es nicht nötig, Harry zu fragen, wie viel Gold noch in der Tasche war, nachdem der Verkäufer seinen Preis genannt hatte, was bedeutete, dass der Professor auch ohne Stift und Papier gut im Kopf rechnen konnte. Wieder einmal erinnerte sich Harry daran, dass _wissenschaftlich ungebildet_ keineswegs dasselbe war wie _dumm_ _
+Professor McGonagall trug einen verärgerten Blick auf ihrem Gesicht. Nach einem langen Einkaufstag hatte sie es nicht nötig, Harry zu fragen, wie viel Gold noch in der Tasche war, nachdem der Verkäufer seinen Preis genannt hatte, was bedeutete, dass der Professor auch ohne Stift und Papier gut im Kopf rechnen konnte. Wieder einmal erinnerte sich Harry daran, dass _wissenschaftlich ungebildet_ keineswegs dasselbe war wie _dumm_.
 
-"Es tut mir leid, junger Mann", sagte Professor McGonagall. "Das ist ganz allein meine Schuld. Ich würde dir anbieten, dich zurück zu Gringotts zu bringen, aber die Bank wird jetzt für alle außer Notfälle geschlossen sein."
+"Es tut mir leid, junger Mann", sagte Professor McGonagall. "Das ist ganz allein meine Schuld. Ich würde dir anbieten, dich zurück zu Gringotts zu bringen, aber die Bank wird jetzt außer für Notfälle geschlossen sein."
 
 Harry sah sie verwundert an...
 
 "Nun", seufzte Professor McGonagall, während sie sich auf einen Absatz schwang, "wir können genauso gut gehen, nehme ich an."
 
-... sie _hatte_ es nicht völlig verloren, als ein Kind es gewagt hatte, ihr zu trotzen. Sie war nicht glücklich gewesen, aber sie hatte _gedacht_, anstatt in Wut zu explodieren. Vielleicht war es einfach so, dass es einen unsterblichen Dunklen Lord zu bekämpfen gab - dass sie Harrys Wohlwollen gebraucht hatte. Aber die meisten Erwachsenen wären nicht in der Lage gewesen, auch nur so viel zu denken; würden die _zukünftigen Konsequenzen_ überhaupt nicht in Betracht ziehen, wenn jemand, der einen niedrigeren Status hat, ihnen den Gehorsam verweigert hätte...
+... sie _war_ nicht völlig ausgerastet, als ein Kind es gewagt hatte, ihr zu wiedersprechen. Sie war nicht glücklich gewesen, aber sie hatte _zugehört_, anstatt vor Wut zu explodieren. Vielleicht war es einfach so, da es einen unsterblichen Dunklen Lord zu bekämpfen gab - dass sie Harrys Wohlwollen gebraucht hatte. Aber die meisten Erwachsenen wären nicht in der Lage gewesen, auch nur so weit zu denken; würden die _zukünftigen Konsequenzen_ überhaupt nicht in Betracht ziehen, wenn jemand, der einen niedrigeren Status hat, ihnen den Gehorsam verweigert hätte...
 
 "Professor?" sagte Harry.
 
 Die Hexe drehte sich um und sah ihn an.
 
-Harry nahm einen tiefen Atemzug. Er musste ein wenig wütend sein für das, was er jetzt versuchen wollte, anders hätte er nicht den Mut dazu gehabt, es zu tun. Sie hat mir nicht zugehört", dachte er bei sich. "Ich hätte mehr Gold genommen, aber sie wollte nicht zuhören... Er konzentrierte seine ganze Welt auf McGonagall und das Bedürfnis, dieses Gespräch nach seinem Willen zu biegen, und sprach.
+Harry nahm einen tiefen Atemzug. Er musste ein wenig wütend sein für das, was er jetzt versuchen wollte, anders hätte er nicht den Mut dazu gehabt, es zu tun. "Sie hat mir nicht zugehört", dachte er bei sich. "Ich hätte mehr Gold genommen, aber sie wollte nicht zuhören..." Er konzentrierte seine ganze Welt auf McGonagall und das Bedürfnis, dieses Gespräch nach seinem Willen zu beeinflussen, und sprach.
 
-"Professor, du dachtest, hundert Galleonen wären mehr als genug für einen Koffer. Deshalb hast du dir nicht die Mühe gemacht, mich zu warnen, bevor es auf siebenundneunzig runterging. Das ist genau die Art von Dingen, die die Forschungsstudien zeigen - das passiert, wenn Leute denken, dass sie sich einen _kleinen_ Fehlerrahmen lassen. Sie sind nicht pessimistisch genug. Wenn es nach mir gegangen wäre, hätte ich _zweihundert_ Galleonen genommen, nur um sicher zu gehen. In dem Tresor war eine Menge Geld und ich hätte später alles zurücklegen können. Aber ich dachte, du würdest mich das nicht machen lassen. Ich dachte, du wärst sauer auf mich, nur weil ich frage. Lag ich falsch?"
+"Professor, Sie dachten, hundert Galleonen wären mehr als genug für einen Koffer. Deshalb haben Sie sich nicht die Mühe gemacht, mich zu warnen, als mein Bargeld auf siebenundneunzig Galleonen runterging. Das ist genau die Art von Dingen, die die Forschungsstudien zeigen - das passiert, wenn Leute denken, dass sie sich einen _kleinen_ Fehlerrahmen lassen. Sie sind nicht pessimistisch genug. Wenn es nach mir gegangen wäre, hätte ich _zweihundert_ Galleonen genommen, nur um sicher zu gehen. In dem Tresor war eine Menge Geld und ich hätte später alles zurücklegen können. Aber ich dachte, Sie würden mich das nicht machen lassen. Ich dachte, Sie wären sauer auf mich, nur weil ich frage. Lag ich falsch?"
 
 "Ich muss wohl zugeben, dass Sie recht haben", sagte Professor McGonagall. "Aber, junger Mann -"
 
-"So etwas ist der Grund, warum ich Schwierigkeiten habe, Erwachsenen zu vertrauen. "Irgendwie hielt Harry seine Stimme ruhig. "Weil sie wütend werden, wenn du auch nur _versuchst_, mit ihnen zu reden. Für sie ist es Trotz und Anmaßung und eine Herausforderung für ihren höheren Stammesstatus. Wenn du versuchst, mit ihnen zu reden, werden sie _ängstlich. Wenn ich also etwas _wirklich_ _wichtiges_ zu tun hätte, könnte ich dir nicht vertrauen. Selbst wenn du mit tiefer Besorgnis auf das hörst, was ich sage - denn das ist auch Teil der _Rolle_ von jemandem, der einen besorgten Erwachsenen spielt - würdest du niemals deine Handlungen ändern, du würdest dich nicht wirklich anders verhalten, wegen irgendetwas, was ich sage."
+"So etwas ist der Grund, warum ich Schwierigkeiten habe, Erwachsenen zu vertrauen." Irgendwie hielt Harry seine Stimme ruhig. "Weil sie wütend werden, wenn man auch nur _versucht_, mit ihnen zu reden. Für sie ist es Trotz und Anmaßung und eine Herausforderung für ihren höheren Stammesstatus. Wenn man versucht, mit ihnen zu reden, werden sie _ängstlich_. Wenn ich also etwas _wirklich_ _wichtiges_ zu tun hätte, könnte ich Ihnen nicht vertrauen. Selbst wenn Sie mit tiefer Besorgnis zuhören, was ich sage - denn das ist auch Teil der _Rolle_ von jemandem, der einen besorgten Erwachsenen spielt - würden Sie niemals Ihre Handlungen ändern, Sie würden sich nicht wirklich anders verhalten, egal, was ich sage."
 
 Der Verkäufer beobachtete die beiden mit unverhohlener Faszination.
 
 "Ich kann deinen Standpunkt verstehen", sagte Professor McGonagall schließlich. "Wenn ich manchmal zu streng erscheine, bedenke bitte, dass ich seit gefühlt mehreren tausend Jahren das Oberhaupt des Hauses Gryffindor bin."
 
-Harry nickte und fuhr fort. "Also - angenommen, ich hätte eine Möglichkeit, mehr Galleonen aus meinem Tresor zu bekommen, _ohne_ dass wir zurück zu Gringotts gehen, aber dazu müsste ich die Rolle eines gehorsamen Kindes verletzen. Könnte ich dir das anvertrauen, auch wenn du dafür aus deiner eigenen Rolle als Professor McGonagall heraustreten müsstest?"
+Harry nickte und fuhr fort. "Also - angenommen, ich hätte eine Möglichkeit, mehr Galleonen aus meinem Tresor zu bekommen, _ohne_ dass wir zurück zu Gringotts gehen, aber dazu müsste ich die Rolle eines gehorsamen Kindes verletzen. Könnte ich Ihnen das anvertrauen, auch wenn Sie dafür aus Ihrer eigenen Rolle als Professor McGonagall heraustreten müssten?"
 
 "_Was?_", sagte Professor McGonagall.
 
 "Anders gefragt: Wenn ich es schaffen könnte, dass der heutige Tag anders verlaufen wäre, so dass wir _nicht_ zu wenig Geld mitgenommen hätten, wäre das in Ordnung, auch wenn das im Nachhinein eine Frechheit eines Kindes gegenüber einem Erwachsenen wäre?"
 
-"Ich... vermute... ?", sagte die Hexe und schaute ziemlich verwirrt.
+"Ich... vermute...?", sagte die Hexe und schaute ziemlich verwirrt.
 
 Harry holte den Eselsfell-Beutel heraus und sagte: "Elf Galleonen, die ursprünglich aus meiner Familientresor stammen."
 
@@ -564,7 +564,7 @@ Und die große Hexe stand schweigend da.
 
 "Gut. Jetzt lass uns den Koffer kaufen und nach Hause gehen."
 
-Harry fühlte sich, als ob er sich übergeben müsste, oder jubelnd, oder ohnmächtig werden, oder _irgendwas_. Das war das erste Mal, dass seine Argumentation bei _irgendjemandem_ funktionierte. Vielleicht weil es auch das erste Mal war, dass er etwas wirklich Ernstes hatte, das ein Erwachsener von ihm brauchte, aber trotzdem -.
+Harry fühlte sich, als ob er sich übergeben müsste, oder jubelnd, oder ohnmächtig werden, oder _irgendwas_. Das war das erste Mal, dass seine Argumentation bei _irgendjemandem_ funktionierte. Vielleicht weil es auch das erste Mal war, dass er etwas wirklich Ernstes hatte, das ein Erwachsener von ihm brauchte, aber trotzdem -
 
 Minerva McGonagall, +1 Punkt.
 
@@ -576,9 +576,9 @@ Das Zuschlagen der Toilettentür schnitt die Worte ab. Nachdem Harry den Riegel 
 
 * * *
 
-Die Sonne ging unter und es war in der Tat schon sehr spät, als sie wieder im Hof des Tropfenden Kessels standen, der stillen, mit Blättern bedeckten Schnittstelle zwischen der magischen Winkelgasse in Britannien und der gesamten Muggelwelt. (Das war eine _wahnsinnig_ entkoppelte Wirtschaft...) Harry sollte zu einer Telefonzelle gehen und seinen Vater anrufen, sobald er auf der anderen Seite war. Er musste sich anscheinend keine Sorgen machen, dass sein Gepäck gestohlen würdes. Sein Koffer hatte den Status eines bedeutenden magischen Gegenstandes, etwas, das die meisten Muggel nicht bemerken würden; das war ein Teil dessen, was man in der Zaubererwelt bekommen konnte, wenn man bereit war, den Preis eines Gebrauchtwagens zu zahlen.
+Die Sonne ging unter und es war in der Tat schon sehr spät, als sie wieder im Hof des Tropfenden Kessels standen, der stillen, mit Blättern bedeckten Schnittstelle zwischen der magischen Winkelgasse in Britannien und der gesamten Muggelwelt. (Das war eine _wahnsinnig_ entkoppelte Wirtschaft...) Harry sollte zu einer Telefonzelle gehen und seinen Vater anrufen, sobald er auf der anderen Seite war. Er musste sich anscheinend keine Sorgen machen, dass sein Gepäck gestohlen würde. Sein Koffer hatte den Status eines bedeutenden magischen Gegenstandes, etwas, das die meisten Muggel nicht bemerken würden; das war ein Teil dessen, was man in der Zaubererwelt bekommen konnte, wenn man bereit war, den Preis eines Gebrauchtwagens zu zahlen.
 
-"Hier trennen sich also unsere Wege, für eine Zeit", sagte Professor McGonagall. Sie schüttelte verwundert den Kopf. "Das war der merkwürdigste Tag meines Lebens seit ... seit vielen Jahre. Seit dem Tag, an dem ich erfuhr, dass ein Kind Du-weißt-schon-wen besiegt hat. Ich frage mich jetzt, rückblickend, ob das der letzte vernünftige Tag der Welt war."
+"Hier trennen sich also unsere Wege, für eine Zeit", sagte Professor McGonagall. Sie schüttelte verwundert den Kopf. "Das war der merkwürdigste Tag meines Lebens seit ... seit vielen Jahren. Seit dem Tag, an dem ich erfuhr, dass ein Kind Du-weißt-schon-wen besiegt hat. Ich frage mich jetzt, rückblickend, ob das der letzte vernünftige Tag der Welt war."
 
 Oh, als ob _sie_ irgendetwas hätte, worüber sie sich beschweren könnte. _Du denkst, dein Tag war surreal? Probier mal meinen._
 
@@ -608,7 +608,7 @@ Harry wandte sich zum Gehen, in den Tropfenden Kessel und hinaus in die Muggelwe
 
 Als seine Hand den Griff der Hintertür berührte, hörte er ein letztes Flüstern von hinten.
 
-"Hermione Granger."
+"Hermine Granger."
 
 "Was?" sagte Harry, seine Hand immer noch an der Tür.
 

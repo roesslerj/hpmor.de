@@ -26,7 +26,7 @@ Sie gingen hinaus, ohne ein Wort zu sagen, und gingen weiter, bis das entfernte 
 
 "Das gehört dazu, wenn man ein Held ist", sagte Harry. "Hast du gesehen, was der _Quibbler_ über _mich_ schreibt?"
 
-Für eine kurze Sekunde stellte Hermine sich vor, dass ihre Eltern einen Zeitungsartikel über sie lasen, und anstatt dass es darum ging, dass sie einen landesweiten Buchstabierwettbewerb gewonnen hatte oder auf eine andere Art und Weise, die sie sich ausgemalt hatte, in die Zeitung zu kommen, lautete die Schlagzeile "HERMIONE GRANGER SCHAFFT DRACO MALFOY SCHWANGER"
+Für eine kurze Sekunde stellte Hermine sich vor, dass ihre Eltern einen Zeitungsartikel über sie lasen, und anstatt dass es darum ging, dass sie einen landesweiten Buchstabierwettbewerb gewonnen hatte oder auf eine andere Art und Weise, die sie sich ausgemalt hatte, in die Zeitung zu kommen, lautete die Schlagzeile "HERMINE GRANGER MACHT DRACO MALFOY SCHWANGER".
 
 Das war genug, um die ganze Sache mit der Heldin zweimal zu überdenken.
 

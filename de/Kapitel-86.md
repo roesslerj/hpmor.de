@@ -708,7 +708,7 @@ Das Konzept der "Beweise" hatte eine ganz andere Bedeutung, wenn du es mit jeman
 
 "Die Auroren haben eine Regel", sagte Professor Quirrell. "Untersuche das Opfer. Viele Möchtegern-Verbrecher denken, dass sie nicht verdächtigt werden, wenn sie scheinbar Opfer eines Verbrechens sind. So viele Kriminelle stellen sich das vor, dass jeder ältere Auror es schon ein Dutzend Mal gesehen hat."
 
-"Sie wollen mir doch nicht ernsthaft weismachen, dass _Hermione_ -"
+"Sie wollen mir doch nicht ernsthaft weismachen, dass _Hermine_ -"
 
 Der Verteidigungsprofessor warf Harry einen dieser schlitzäugigen Blicke zu, die bedeuteten, dass er dumm war.
 
