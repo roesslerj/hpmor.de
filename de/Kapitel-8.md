@@ -12,9 +12,9 @@ Ein aufmerksamer Rezensent fragte, ob das, wenn Luna eine Seherin ist, bedeutet,
 
 * * *
 
-Keiner hatte um Hilfe gebeten, das war das Problem. Sie gingen einfach herum und redeten, aßen oder starrten in die Luft, während ihre Eltern Klatsch und Tratsch austauschten. Aus irgendeinem seltsamen Grund hatte sich niemand hingesetzt und ein Buch gelesen, was bedeutete, dass sie sich nicht einfach neben sie setzen und ihr eigenes Buch herausnehmen konnte. Und selbst als sie mutig die Initiative ergriffen hatte, indem sie sich hinsetzte und ihr drittes Buch _Hogwarts: Eine Geschichte_, schien niemand geneigt, sich neben sie zu setzen.
+Keiner hatte um Hilfe gebeten, das war das Problem. Sie gingen einfach herum und redeten, aßen oder starrten in die Luft, während ihre Eltern Klatsch und Tratsch austauschten. Aus irgendeinem seltsamen Grund hatte sich niemand hingesetzt und ein Buch gelesen, was bedeutete, dass sie sich nicht einfach neben sie setzen und ihr eigenes Buch herausnehmen konnte. Und selbst als sie mutig die Initiative ergriffen hatte, indem sie sich hinsetzte und zum dritten Mal ihr Buch _Hogwarts: Eine Geschichte_ las, schien niemand geneigt, sich neben sie zu setzen.
 
-Abgesehen davon, dass sie den Leuten bei den Hausaufgaben oder allem anderen, was sie brauchten, half, wusste sie nicht wirklich, wie man Leute kennenlernt. Sie _fühlte_ sich nicht so, als wäre sie eine schüchterne Person. Sie hielt sich selbst für ein Mädchen, das die Dinge in die Hand nimmt. Und doch war es irgendwie zu _unangenehm_, auf jemanden zuzugehen und zu sagen: "Ich kann mich nicht daran erinnern, wie man die lange Division macht", wenn es nicht irgendeine Anfrage gab... Was? Sie war nie in der Lage gewesen, herauszufinden, was. Und es schien kein Standard-Informationsblatt zu geben, was lächerlich war. Die ganze Angelegenheit, Leute zu treffen, war ihr nie sinnvoll erschienen. Warum musste _sie_ die ganze Verantwortung selbst übernehmen, wenn zwei Personen beteiligt waren? Warum halfen Erwachsene nie? Sie wünschte sich, ein anderes Mädchen würde einfach auf _sie_ zugehen und sagen: "Hermine, der Lehrer hat gesagt, ich soll mit dir befreundet sein."
+Abgesehen davon, dass sie den Leuten bei den Hausaufgaben oder allem anderen, was sie brauchten, half, wusste sie nicht wirklich, wie man Leute kennenlernt. Sie _fühlte_ sich nicht so, als wäre sie eine schüchterne Person. Sie hielt sich selbst für ein Mädchen, das die Dinge in die Hand nimmt. Und doch solange es keine Anfrage gab der Art "Ich kann mich nicht daran erinnern, wie man die lange Division macht", war es irgendwie zu _unangenehm_, auf jemanden zuzugehen und zu sagen: ... Was eigentlich? Sie war nie in der Lage gewesen, herauszufinden, was. Und es schien kein Standard-Informationsblatt zu geben, was lächerlich war. Die ganze Angelegenheit, Leute zu treffen, war ihr nie sinnvoll erschienen. Warum musste _sie_ die ganze Verantwortung selbst übernehmen, wenn zwei Personen beteiligt waren? Warum halfen Erwachsene nie? Sie wünschte sich, ein anderes Mädchen würde einfach auf _sie_ zugehen und sagen: "Hermine, der Lehrer hat gesagt, ich soll mit dir befreundet sein."
 
 Aber damit es ganz klar ist: Hermine Granger, die am ersten Schultag allein in einem der wenigen leeren Abteile saß, im letzten Waggon des Zuges, mit offener Abteiltür, nur für den Fall, dass irgendjemand aus irgendeinem Grund mit ihr reden wollte, war _nicht_ traurig, einsam, düster, deprimiert, verzweifelt oder von ihren Problemen besessen. Vielmehr las sie gerade _Hogwarts: Eine Geschichte_ zum dritten Mal und genoss es ziemlich, mit nur einem schwachen Anflug von Verärgerung im Hinterkopf über die allgemeine Unvernunft der Welt.
 
@@ -28,7 +28,7 @@ Das vermummte Gesicht drehte sich zu ihr um, und die Stimme sagte: "Nicht, wenn 
 
 "Up, down, strange, charm, truth, beauty, und warum suchst Du nach einer Erstklässlerin namens Hermine Granger?"
 
-Aus dieser Entfernung war es schwer zu erkennen, aber sie glaubte, den Jungen unter seinem Schal breit grinsen zu sehen. "Ah, du bist also _eine_ Erstklässlerin namens Hermine Granger", sagte die junge, gedämpfte Stimme. "Und dazu noch im Zug nach Hogwarts." Der Junge begann, auf sie und ihr Abteil zuzugehen, und sein Koffer schlitterte hinter ihm her. "Technisch gesehen war alles, was ich tun musste, dich zu _suchen_, aber es scheint, dass ich dazu bestimmt bin, mit dir zu reden oder dich einzuladen, meiner Gruppe beizutreten oder einen wichtigen magischen Gegenstand von dir zu bekommen oder herauszufinden, dass Hogwarts auf den Ruinen eines alten Tempels gebaut wurde oder so etwas. PC oder NPC, das ist hier die Frage?"
+Aus dieser Entfernung war es schwer zu erkennen, aber sie glaubte, den Jungen unter seinem Schal breit grinsen zu sehen. "Ah, _du_ bist also eine Erstklässlerin namens Hermine Granger", sagte die junge, gedämpfte Stimme. "Und dazu noch im Zug nach Hogwarts." Der Junge begann, auf sie und ihr Abteil zuzugehen, und sein Koffer schlitterte hinter ihm her. "Technisch gesehen war alles, was ich tun musste, dich zu _suchen_, aber es scheint, dass ich dazu bestimmt bin, mit dir zu reden oder dich einzuladen, meiner Gruppe beizutreten oder einen wichtigen magischen Gegenstand von dir zu bekommen oder herauszufinden, dass Hogwarts auf den Ruinen eines alten Tempels gebaut wurde oder so etwas. PC oder NPC, das ist hier die Frage?"
 
 Hermine öffnete den Mund, um darauf zu antworten, aber dann fiel ihr keine _mögliche_ Antwort ein... _was_ auch immer es war, das sie gerade gehört hatte, selbst als der Junge zu ihr hinüberging, in das Abteil schaute, zufrieden nickte und sich auf die Bank gegenüber von ihrer eigenen setzte. Sein Koffer huschte hinter ihm her, wuchs auf das Dreifache seines früheren Durchmessers an und schmiegte sich auf eine seltsam beunruhigende Weise an ihren eigenen Koffer.
 
@@ -44,9 +44,9 @@ Der Junge blinzelte dreimal. "Ich bin in _Büchern_? Warte, natürlich bin ich i
 
 "Meine Güte, wusstest du das nicht?", sagte Hermine. "Ich hätte jedenfalls hätte alles über mich herausgefunden, was ich konnte, wenn ich es gewesen wäre."
 
-Der Junge sprach eher trocken. "Miss Granger, es ist noch keine 72 Stunden her, dass ich in der Winkelgasse war und meinen Anspruch auf Ruhm entdeckt habe. Ich habe die letzten zwei Tage damit verbracht, wissenschaftliche Bücher zu kaufen. Glauben Sie mir, ich werde alles herausfinden, was ich kann." Der Junge zögerte. "Was _sagen_ den die Bücher über mich?".
+Der Junge sprach eher trocken. "Miss Granger, es ist noch keine 72 Stunden her, dass ich in der Winkelgasse war und meinen Anspruch auf Ruhm entdeckt habe. Ich habe die letzten zwei Tage damit verbracht, wissenschaftliche Bücher zu kaufen. Glauben Sie mir, ich werde alles herausfinden, was ich kann." Der Junge zögerte. "Was _sagen_ den die Bücher über mich?"
 
-Hermine Grangers Gedanken blitzten zurück, sie hatte nicht gewusst, dass sie über _diese_ Bücher getestet werden würde, also hatte sie sie nur einmal gelesen, aber das war erst einen Monat her, also war der Stoff noch frisch in ihrem Gedächtnis. "Du bist der Einzige, der jemals den Tötungsfluch überlebt hat, deshalb nennt man dich den Jungen-der-überlebt hat. Du wurdest am 31. Juli 1980 als Sohn von James Potter und Lily Potter, ehemals Lily Evans, geboren. Am 31. Oktober 1981 griff der Dunkle Lord, der nicht genannt werden darf, obwohl ich nicht weiß, warum nicht, euer Haus an. Du wurdest lebend mit der Narbe auf der Stirn in den Ruinen des Hauses deiner Eltern in der Nähe der verbrannten Überreste von Du-weißt-schon-wem gefunden. Großmeister Albus Percival Wulfric Brian Dumbledore hat Dich irgend versteck, aber niemand weiß wo. _Der Aufstieg und Untergang der Dunklen Künste_ behauptet, dass Du wegen der Liebe Deiner Mutter überlebt hast und dass Deine Narbe die gesamte magische Kraft des Dunklen Lords enthält und dass die Zentauren Dich fürchten, aber _Große Chronik der Zauberei des zwanzigsten Jahrhunderts_ erwähnt nichts dergleichen und _Geschichte der modernen Magie_ warnt davor, dass es eine Menge verrückter Theorien über Dich gibt."
+Hermine Grangers Gedanken blitzten zurück, sie hatte nicht gewusst, dass sie über _diese_ Bücher getestet werden würde, also hatte sie sie nur einmal gelesen, aber das war erst einen Monat her, also war der Stoff noch frisch in ihrem Gedächtnis. "Du bist der Einzige, der jemals den Tötungsfluch überlebt hat, deshalb nennt man dich den Jungen-der-lebt. Du wurdest am 31. Juli 1980 als Sohn von James Potter und Lily Potter, ehemals Lily Evans, geboren. Am 31. Oktober 1981 griff der Dunkle Lord, der nicht genannt werden darf, obwohl ich nicht weiß, warum nicht, euer Haus an. Du wurdest lebend mit der Narbe auf der Stirn in den Ruinen des Hauses deiner Eltern in der Nähe der verbrannten Überreste von Du-weißt-schon-wem gefunden. Großmeister Albus Percival Wulfric Brian Dumbledore hat Dich irgendwo versteck, aber niemand weiß wo. _Der Aufstieg und Untergang der Dunklen Künste_ behauptet, dass Du wegen der Liebe Deiner Mutter überlebt hast und dass Deine Narbe die gesamte magische Kraft des Dunklen Lords enthält und dass die Zentauren Dich fürchten, aber _Große Chronik der Zauberei des zwanzigsten Jahrhunderts_ erwähnt nichts dergleichen und _Geschichte der modernen Magie_ warnt davor, dass es eine Menge verrückter Theorien über Dich gibt."
 
 Der Mund des Jungen stand offen. "Wurde dir gesagt, dass du im Zug nach Hogwarts auf Harry Potter warten sollst, oder so ähnlich?".
 
@@ -90,7 +90,7 @@ Der Junge sah sie überrascht an, als hätte er eine andere Antwort erwartet. "N
 
 Das klang schon etwas interessanter. "Und?"
 
-Der Junge starrte sie ungläubig an. "Und?_Das_ ist nicht _genug_?"
+Der Junge starrte sie ungläubig an. "Und? _Das_ ist nicht _genug_?"
 
 "Und was willst Du von mir?", fragte Hermine.
 
@@ -124,7 +124,7 @@ Die grüne Flüssigkeit war immer noch da, aber noch während sie zusah, begann 
 
 Hermine starrte den Jungen an, der ein ziemlich selbstgefälliges Lächeln aufsetzte.
 
-Wortlose, wandlose Magie! In _seinem_ Alter? Wo er doch seine Schulbücher erst vor _drei Tagen_ bekommen hatte?
+Wortlose, stablose Magie! In _seinem_ Alter? Wo er doch seine Schulbücher erst vor _drei Tagen_ bekommen hatte?
 
 Dann erinnerte sie sich daran, was sie gelesen hatte, und sie keuchte und wich vor ihm zurück. _Alle magischen Kräfte des Dunklen Lords! In seiner Narbe!_
 
@@ -140,7 +140,7 @@ Hermine war so verwirrt, wie sie es noch nie in ihrem Leben gewesen war.
 
 Der Junge lächelte nun wieder über den Blick auf ihrem Gesicht. "Ich habe Dich _gewarnt_, dass das Herausfordern meines Einfallsreichtums dazu neigt, Dein Leben surreal zu machen. Denk bitte daran, wenn ich Dich das nächste Mal vor etwas warne."
 
-"Aber, aber," Hermine stammelte. "Was habst Du dann _getan_?"
+"Aber, aber," Hermine stammelte. "Was hast Du dann _getan_?"
 
 Der Blick des Jungen nahm eine messende, abwägende Qualität an, die sie noch nie bei jemandem in ihrem Alter gesehen hatte. "Du denkst, du hast das Zeug dazu eine eigenständige Wissenschaftlerin zu werden, mit oder ohne meine Hilfe? Dann lass uns mal sehen, wie _du_ ein verwirrendes Phänomen untersuchst."
 
@@ -197,7 +197,7 @@ Hermine fühlte einen Stich der Enttäuschung. Sie wünschte wirklich, sie _hät
 
 (Es sagte fast alles aus, was man über Hermine Granger wissen musste, dass sie sich davon nie hatte aufhalten oder es sogar ihre Liebe zu Prüfungen hatte beeinträchtigen lassen.)
 
-"Das Traurige ist", sagte der Junge, "dass du wahrscheinlich alles so gemacht hast, wie es im Buchs teht. Du hast eine Vorhersage gemacht, die zwischen einem verzauberten und einem nicht verzauberten Umhang unterscheiden würde, und Du hast sie getestet und die Nullhypothese, dass der Umhang nicht verzaubert war, verworfen. Aber wenn Du nicht die allerbesten Bücher liest, werden sie Dir nicht wirklich beibringen, wie man Wissenschaft _richtig_ betreibt. Gut genug, um _wirklich_ die richtige Antwort zu bekommen, meine ich, und nicht nur eine weitere Publikation herauszuhauen, über die sich Papa immer beschwert. Lassen mich also versuchen Dir zu erklären - ohne die Antwort zu verraten - was Du dieses Mal falsch gemacht hast, und dann gebe ich Dir noch eine Chance."
+"Das Traurige ist", sagte der Junge, "dass du wahrscheinlich alles so gemacht hast, wie es im Buchs steht. Du hast eine Vorhersage gemacht, die zwischen einem verzauberten und einem nicht verzauberten Umhang unterscheiden würde, und Du hast sie getestet und die Nullhypothese, dass der Umhang nicht verzaubert war, verworfen. Aber wenn Du nicht die allerbesten Bücher liest, werden sie Dir nicht wirklich beibringen, wie man Wissenschaft _richtig_ betreibt. Gut genug, um _wirklich_ die richtige Antwort zu bekommen, meine ich, und nicht nur eine weitere Publikation herauszuhauen, über die sich Papa immer beschwert. Lassen mich also versuchen Dir zu erklären - ohne die Antwort zu verraten - was Du dieses Mal falsch gemacht hast, und dann gebe ich Dir noch eine Chance."
 
 Sie begann, sich über den ach so überlegenen Ton des Jungen zu ärgern, obwohl er nur ein Elfjähriger wie sie war, doch gegenüber ihrem Drang, herauszufinden, was sie falsch gemacht hatte, war das nachrangig. "In Ordnung."
 
@@ -277,7 +277,7 @@ Ein paar Sekunden später war sie verschwunden.
 
 Dann traf sie die Erkenntnis und sie hatte das Gefühl, sich selbst zu treten. "Natürlich! _Du_ hast mir die Dose gegeben! Es ist nicht der Umhang, der verzaubert ist, es war die ganze Zeit die Limo!"
 
-Der Junge stand auf und verbeugte sich feierlich vor ihr. Er grinste jetzt breit. "Dann... darf ich dir bei deiner Recherche helfen, Hermine Granger?"
+Der Junge stand auf und verbeugte sich feierlich vor ihr. Er grinste jetzt breit. "Dann... darf ich dir bei _deiner_ Recherche helfen, Hermine Granger?"
 
 "Ich, ah... " Hermine spürte immer noch den Rausch der Euphorie, aber sie war sich nicht ganz sicher, wie sie _das_ beantworten sollte.
 
@@ -309,11 +309,11 @@ Das... _machte_ eine Menge Sinn.
 
 "Meinst du, du schaffst es allein zum Wagen der Vertrauensschüler?", fragte Harry Potter. "Ich habe so meine Gründe, warum ich mich nicht zu oft blicken lassen will."
 
-Plötzlich keuchte Neville und trat einen Schritt zurück. "Ich erinnere mich an diese Stimme! Du bist einer der Lords of Chaos! Du bist derjenige, der mir Schokolade geschenkt hat!"
+Plötzlich keuchte Neville und trat einen Schritt zurück. "Ich erinnere mich an diese Stimme! Du bist einer der Lords des Chaos! Du bist derjenige, der mir Schokolade geschenkt hat!"
 
 Was? Was, was, was?
 
-Harry Potter drehte seinen Kopf vom Fenster weg und erhob sich dramatisch. "Ich _niemals_!", sagte er mit einer Stimme voller Empörung. "Sehe ich aus wie ein Bösewicht, der einem Kind Süßigkeiten schenken würde?"
+Harry Potter drehte seinen Kopf vom Fenster weg und erhob sich dramatisch. "Ich? _Niemals_!", sagte er mit einer Stimme voller Empörung. "Sehe ich aus wie ein Bösewicht, der einem Kind Süßigkeiten schenken würde?"
 
 Nevilles Augen weiteten sich. "_Du_ bist Harry Potter? _Der_ Harry Potter? Du?"
 
@@ -325,7 +325,7 @@ Hermine setzte sich hart auf ihre Bank. Harry Potter schloss die Tür und setzte
 
 "Kannst du mir bitte erklären, was hier los ist?" sagte Hermine mit schwacher Stimme. Sie fragte sich, ob das Zusammensein mit Harry Potter bedeutete, immer so verwirrt zu sein.
 
-"Oh, also, was passiert ist, war, dass Fred und George und ich diesen armen kleinen Jungen am Bahnhof gesehen haben - die Frau neben ihm war für eine Weile weggegangen, und er sah wirklich verängstigt aus, als wäre er sicher, dass er von Todesstern oder so angegriffen werden würde. Nun, es gibt ein Sprichwort, dass die Angst oft schlimmer ist als die Sache selbst, also kam mir in den Sinn, dass dies ein Junge war, der tatsächlich davon profitieren könnte, zu sehen, dass sein schlimmster Albtraum wahr wurde und dass es nicht so schlimm war, wie er befürchtet hatte -"
+"Oh, also, was passiert ist, war, dass Fred und George und ich diesen armen kleinen Jungen am Bahnhof gesehen haben - die Frau neben ihm war für eine Weile weggegangen, und er sah wirklich verängstigt aus, als wäre er sicher, dass er vom Todesstern oder so angegriffen werden würde. Nun, es gibt ein Sprichwort, dass die Angst oft schlimmer ist als die Sache selbst, also kam mir in den Sinn, dass dies ein Junge war, der tatsächlich davon profitieren könnte, zu sehen, dass sein schlimmster Albtraum wahr wurde und dass es nicht so schlimm war, wie er befürchtet hatte -"
 
 Hermine saß mit weit offenem Mund da.
 
@@ -339,7 +339,7 @@ Okay, sie hatte _nicht_ richtig vermutet, worauf das hinauslaufen würde.
 
 Das brennende Feuer der Empörung, das einer von Hermines primären Antrieben war, sprudelte zum Leben, obwohl ein Teil von ihr irgendwie sah, was sie versuchten zu tun. "Das ist furchtbar! Du bist furchtbar! Der arme Junge! Was du getan hast, war _böse_!"
 
-"Ich glaube, das Wort, das Du suchst, ist _unterhaltsam_, und auf jeden Fall stellst Du die falsche Frage. Die Frage ist, hat es mehr Nutzen als Schaden gebracht, oder mehr Schaden als Nutzen? Wenn Du irgendwelche Argumente zu _dieser_ Frage beizutragen hast, bin ich froh, sie zu hören, aber ich werde keine anderen Kritiken akzeptieren, bis diese Frage geklärt ist. Ich stimme sicherlich zu, dass das, was ich getan habe, schrecklich und schikanös und gemein _aussieht_, da es sich um einen verängstigten kleinen Jungen handelt und so weiter, aber das ist wohl kaum der entscheidende Punkt, oder? Das nennt man übrigens _Konsequentialismus_, es bedeutet, dass die Frage, ob eine Handlung richtig oder falsch ist, nicht davon abhängt, ob sie schlecht oder gemein oder sonst wie _aussieht_, die einzige Frage ist, was sie am Ende bewirkt - was die Konsequenzen sind."
+"Ich glaube, das Wort, das Du suchst, ist _unterhaltsam_, und auf jeden Fall stellst Du die falsche Frage. Die Frage ist, hat es mehr Nutzen als Schaden gebracht, oder mehr Schaden als Nutzen? Wenn Du irgendwelche Argumente zu _dieser_ Frage beizutragen hast, bin ich froh, sie zu hören, aber ich werde keine anderen Kritiken akzeptieren, bis diese Frage geklärt ist. Ich stimme sicherlich zu, dass das, was ich getan habe, schrecklich und schikanös und gemein _aussah_, da es sich um einen verängstigten kleinen Jungen handelte und so weiter, aber das ist wohl kaum der entscheidende Punkt, oder? Das nennt man übrigens _Konsequentialismus_, es bedeutet, dass die Frage, ob eine Handlung richtig oder falsch ist, nicht davon abhängt, ob sie schlecht oder gemein oder sonst wie _aussieht_, die einzige Frage ist, was sie am Ende bewirkt - was die Konsequenzen sind."
 
 Hermine öffnete den Mund, um etwas absolut _Vernichtendes_ zu sagen, aber leider schien sie den Teil vernachlässigt zu haben, in dem sie an etwas dachte, das sie sagen wollte, bevor sie den Mund öffnete. Alles, was ihr einfiel, war: "Was ist, wenn er _Albträume hat_?"
 
@@ -349,7 +349,7 @@ Hermines Gehirn hustete immer wieder verwirrt, wenn sie versuchte, richtig wüte
 
 Harry Potters Gesicht glänzte vor Stolz. "Ich _mache_ es so eigenartig. Du siehst hier das Produkt einer Menge Schwieß und harter Arbeit."
 
-"Also... " sagte Hermine und brach unbeholfen ab.
+"Also..." sagte Hermine und brach unbeholfen ab.
 
 "Also", sagte Harry Potter, "wie gut kennst Du Dich mit Wissenschaft genau aus? Ich kann rechnen und kenne etwas Bayes'sche Wahrscheinlichkeitstheorie und Entscheidungstheorie und eine Menge Kognitionswissenschaft, und ich habe _Die Feynman-Vorlesungen_ (oder zumindest Band 1) gelesen und _Entscheidungen unter Unsicherheit: Heuristiken und Vorurteile_ und _Semantik: Sprache im Handeln und Denken_ und _Die Psychologie der Beeinflussung_ und _Rationale Entscheidungen in einer Unsicheren Welt_ und _Godel, Escher, Bach_ und _Einen Schritt weiter_ und -"
 
@@ -357,15 +357,15 @@ Das anschließende Quiz und Gegenquiz dauerte mehrere Minuten, bevor es durch ei
 
 Neville weinte jetzt tatsächlich. "Ich ging zum vorderen Wagen und fand einen Vertrauensschüler, aber er sagte mir, dass Vertrauensschüler nicht wegen Kleinigkeiten wie fehlenden Kröten belästigt werden sollten."
 
-Das Gesicht des Jungen-der-lebt veränderte sich. Seine Lippen verzogen sich zu einer dünnen Linie. Seine Stimme, wenn er sprach, war kalt und grimmig. "Was waren seine Farben? Grün und Silber?".
+Das Gesicht des Jungen-der-lebt veränderte sich. Seine Lippen verzogen sich zu einer dünnen Linie. Seine Stimme, wenn er sprach, war kalt und grimmig. "Was waren seine Farben? Grün und Silber?"
 
 "N-nein, sein Abzeichen war r-rot und gold."
 
 "_Rot und Gold!_", platzte Hermine heraus. "Aber das sind die Farben von _Gryffindor_!"
 
-Harry Potter _zischte_ daraufhin, ein beängstigendes Geräusch, das von einer lebenden Schlange hätte kommen können und sowohl sie als auch Neville zusammenzucken ließ. "Ich _nehme an_," spuckte Harry Potter, "dass das Auffinden der Kröte eines Erstklässlers nicht _heroisch_ genug ist, um eines _Gryffindor_-Vertrauensschüler würdig zu sein. Komm schon, Neville, _ich_ komme dieses Mal mit, mal sehen, ob der Junge-der-lebt mehr Aufmerksamkeit bekommt. Zuerst werden wir einen Vertrauensschüler finden, der einen Zauberspruch kennen sollte, und wenn das nicht funktioniert, werden wir einen Vertrauensschüler finden, der keine Angst hat, sich die Hände schmutzig zu machen, und wenn _das_ nicht funktioniert, werde ich anfangen, meine Fans zu rekrutieren, und wenn es sein muss, werden wir den ganzen Zug Schraube für Schraube auseinandernehmen."
+Harry Potter _zischte_ daraufhin, ein beängstigendes Geräusch, das von einer lebenden Schlange hätte kommen können und sowohl sie als auch Neville zusammenzucken ließ. "Ich _nehme an_," spuckte Harry Potter, "dass das Auffinden der Kröte eines Erstklässlers nicht _heroisch_ genug ist, um eines _Gryffindor_-Vertrauensschülers würdig zu sein. Komm schon, Neville, _ich_ komme dieses Mal mit, mal sehen, ob der Junge-der-lebt mehr Aufmerksamkeit bekommt. Zuerst werden wir einen Vertrauensschüler finden, der einen Zauberspruch kennen sollte, und wenn das nicht funktioniert, werden wir einen Vertrauensschüler finden, der keine Angst hat, sich die Hände schmutzig zu machen, und wenn _das_ nicht funktioniert, werde ich anfangen, meine Fans zu rekrutieren, und wenn es sein muss, werden wir den ganzen Zug Schraube für Schraube auseinandernehmen."
 
-Der Junge-der-lebt stand auf und nahm Nevilles Hand in seine, und Hermine erkannte mit einem plötzlichen Hirnhusten, dass sie fast gleich groß waren, obwohl ein Teil von ihr darauf bestanden hatte, dass Harry Potter einen Kopf größer und Neville mindestens halben Kopf kleiner war.
+Der Junge-der-lebt stand auf und nahm Nevilles Hand in seine, und Hermine erkannte mit einem plötzlichen Hirnhusten, dass sie fast gleich groß waren, obwohl ein Teil von ihr darauf bestanden hatte, dass Harry Potter einen Kopf größer und Neville mindestens einen halben Kopf kleiner war.
 
 "_Bleib hier!_" Harry Potter schnauzte sie an - nein, warte, seinen _Koffer_ - und er schloss die Tür fest hinter sich, als er ging.
 

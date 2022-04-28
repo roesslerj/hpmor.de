@@ -4,11 +4,11 @@ All eure Stützpunkt gehört J. K. Rowling.
 
 * * *
 
-1.000 BEWERTUNGEN IN 26 TAGEN WOOHOO AWESOME POWA! 30 TAGE 1.189 BEWERTUNGEN KOMBI GEHT WEITER! YEAH! IHR LEUTE SEID DIE BESTEN! DAS IST SPARTAAAAA!.
+1.000 BEWERTUNGEN IN 26 TAGEN! WOOHOO AWESOME POWA! 30 TAGE 1.189 BEWERTUNGEN! KOMBI GEHT WEITER! YEAH! IHR LEUTE SEID DIE BESTEN! DAS IST SPARTAAAAA!.
 
 Ahem.
 
-Die Quarks der dritten Generation hießen auch "Wahrheit" und "Schönheit", bevor sich "oben" und "unten" durchsetzten; mein Geburtsdatum ist ungefähr das von Hermine, und als ich elf war, benutzte ich "Wahrheit" und "Schönheit"
+Die Quarks der dritten Generation hießen auch "Wahrheit" und "Schönheit", bevor sich "oben" und "unten" durchsetzten; mein Geburtsdatum ist ungefähr das von Hermine, und als ich elf war, benutzte ich "Wahrheit" und "Schönheit".
 
 Als Teil I dieses Kapitels zum ersten Mal gepostet wurde, sagte ich, dass ich den ganzen Rest der Handlung verraten würde, wenn jemand vor dem nächsten Update errät, wovon der letzte Satz handelt.
 
@@ -36,7 +36,7 @@ Pause.
 
 "RAVENCLAW!"
 
-Harry blickte kurz zu seinem neuen Hauskameraden hinüber, mehr um einen kurzen Blick auf sein Gesicht zu werfen als alles andere. Er versuchte immer noch, sich von seiner Begegnung mit den Geistern unter Kontrolle zu bringen. Das Traurige, das wirklich Traurige, das wirklich wirklich Traurige war, dass er _sich_ wieder unter Kontrolle zu haben schien. Es schien unpassend zu sein. Als ob er mindestens einen Tag gebraucht hätte. Vielleicht ein ganzes Leben lang. Vielleicht einfach nie.
+Harry blickte kurz zu seinem neuen Hauskameraden hinüber, mehr um einen kurzen Blick auf sein Gesicht zu werfen als alles andere. Er versuchte immer noch, sich von seiner Begegnung mit den Geistern unter Kontrolle zu bringen. Das Traurige, das wirklich Traurige, das wirklich wirklich Traurige war, dass er sich wieder unter Kontrolle zu haben _schien_. Das schien unpassend zu sein. Als ob er mindestens einen Tag hätte brauchen sollen. Vielleicht ein ganzes Leben lang. Vielleicht einfach nie.
 
 "Ecke, Michael!"
 
@@ -44,9 +44,9 @@ Lange Pause.
 
 "RAVENCLAW!"
 
-Am Rednerpult vor dem riesigen Kopftisch stand Professor McGonagall und schaute sich scharf um, während sie einen Namen nach dem anderen rief, obwohl sie nur für Hermine und ein paar andere gelächelt hatte. Hinter ihr, auf dem höchsten Stuhl am Tisch - eigentlich eher ein goldener Thron - saß ein verhutzelter und bebrillter Alter mit einem silberweißen Bart, der fast bis zum Boden reichte, wenn er sichtbar wäre, und wachte mit wohlwollender Miene über die Sortierung; so stereotyp im Aussehen, wie ein weiser alter Mann nur sein kann, ohne tatsächlich orientalisch zu sein. (Obwohl Harry gelernt hatte, sich vor stereotypen Erscheinungen in Acht zu nehmen, seit er zum ersten Mal Professor McGonagall begegnet war und dachte, dass sie gackern müsste.) Der uralte Zauberer hatte jedem sortierten Schüler applaudiert, mit einem unerschütterlichen Lächeln, das irgendwie frisch erfreut für jeden schien.
+Am Rednerpult vor dem riesigen Kopftisch stand Professor McGonagall und schaute sich scharf um, während sie einen Namen nach dem anderen rief, wobei sie nur für Hermine und ein paar andere gelächelt hatte. Hinter ihr, auf dem höchsten Stuhl am Tisch - eigentlich eher ein goldener Thron - saß ein verhutzelter und bebrillter Alter mit einem silberweißen Bart, der fast bis zum Boden reichte, wenn er sichtbar war, und wachte mit wohlwollender Miene über die Sortierung; so stereotyp im Aussehen, wie ein weiser alter Mann nur sein kann, ohne tatsächlich orientalisch zu sein. (Obwohl Harry gelernt hatte, sich vor stereotypen Erscheinungen in Acht zu nehmen, seit er zum ersten Mal Professor McGonagall begegnet war und dachte, dass sie gackern müsste.) Der uralte Zauberer hatte jedem sortierten Schüler applaudiert, mit einem unerschütterlichen Lächeln, das irgendwie frisch erfreut für jeden schien.
 
-Auf der linken Seite des goldenen Throns saß ein Mann mit scharfen Augen und mürrischem Gesicht, der niemandem applaudierte und der es irgendwie schaffte, jedes Mal, wenn Harry ihn ansah, direkt zu ihm zurückzuschauen. Weiter links saß der bleiche Mann, den Harry im Tropfenden Kessel gesehen hatte, dessen Augen wie in Panik auf die umstehende Menge blickten und der gelegentlich in seinem Sitz zu zucken schien; aus irgendeinem Grund ertappte sich Harry immer wieder dabei, wie er ihn anstarrte. Links von dem Mann eine Reihe von drei älteren Hexen, die sich nicht sonderlich für die Schüler zu interessieren schienen. Dann auf der rechten Seite des hohen goldenen Stuhls eine rundliche Hexe mittleren Alters mit einem gelben Hut, die jeden Schüler außer den Slytherins beklatscht hatte. Ein kleiner Mann, der auf seinem Stuhl stand, mit einem pummeligen weißen Bart, der jedem Schüler applaudiert hatte, aber nur die Ravenclaws anlächelte. Und ganz rechts, den gleichen Platz wie drei kleinere Wesen einnehmend, das bergige Wesen, das sie alle begrüßt hatte, nachdem sie aus dem Zug ausgestiegen waren, und das sich Hagrid, Hüter der Schlüssel und des Geländes nannte.
+Auf der linken Seite des goldenen Throns saß ein Mann mit scharfen Augen und mürrischem Gesicht, der niemandem applaudierte und der es irgendwie schaffte, jedes Mal, wenn Harry ihn ansah, direkt zu ihm zurückzuschauen. Weiter links saß der bleiche Mann, den Harry im Tropfenden Kessel gesehen hatte, dessen Augen wie in Panik auf die umstehende Menge blickten und der gelegentlich in seinem Sitz zu zucken schien; aus irgendeinem Grund ertappte sich Harry immer wieder dabei, wie er ihn anstarrte. Links von dem Mann war eine Reihe von drei älteren Hexen, die sich nicht sonderlich für die Schüler zu interessieren schienen. Dann auf der rechten Seite des hohen goldenen Stuhls saß eine rundliche Hexe mittleren Alters mit einem gelben Hut, die jeden Schüler außer den Slytherins beklatscht hatte. Ein kleiner Mann, der auf seinem Stuhl stand, mit einem pummeligen weißen Bart, der jedem Schüler applaudiert hatte, aber nur die Ravenclaws anlächelte. Und ganz rechts, den gleichen Platz wie drei kleinere Wesen einnehmend, das bergige Wesen, das sie alle begrüßt hatte, nachdem sie aus dem Zug ausgestiegen waren, und das sich Hagrid, Hüter der Schlüssel und des Geländes nannte.
 
 "Ist der Mann, der auf seinem Stuhl steht, der Leiter von Ravenclaw?" flüsterte Harry in Richtung Hermine.
 
@@ -54,17 +54,17 @@ Ausnahmsweise antwortete Hermine nicht sofort; sie bewegte sich ständig von ein
 
 "Ja, das ist er", sagte einer der Vertrauensschüler, der sie begleitet hatte, eine junge Frau, die das Blau von Ravenclaw trug. Miss Clearwater, wenn Harry sich richtig erinnerte. Ihre Stimme war leise, vermittelte aber einen Hauch von Stolz. "Das ist der Zaubereiprofessor von Hogwarts, Filius Flitwick, der kenntnisreichste Zaubereimeister der Welt und ein ehemaliger Champion im Duellieren -"
 
-"Warum ist er so _kurz_?", zischte ein Schüler, an dessen Namen sich Harry nicht erinnerte. "Ist er ein _Halbblüter?_ "
+"Warum ist er so _kurz_?", zischte ein Schüler, an dessen Namen sich Harry nicht erinnerte. "Ist er ein _Halbblüter?_"
 
-Ein kühler Blick von der jungen Vertrauensschülerin. "Der Professor ist in der Tat koboldhafter Abstammung -".
+Ein kühler Blick von der jungen Vertrauensschülerin. "Der Professor ist in der Tat koboldhafter Abstammung -"
 
 "Was?" sagte Harry unwillkürlich, was Hermine und vier andere Schüler dazu veranlasste, ihn zum Schweigen zu bringen.
 
 Jetzt bekam Harry einen überraschend einschüchternden Blick von der Ravenclaw-Vertrauensschülerin zugeworfen.
 
-"Ich meine -", flüsterte Harry. "Nicht, dass ich ein _Problem_ damit hätte - es ist nur - ich meine - wie ist das _möglich?_ Man kann nicht einfach zwei verschiedene Spezies miteinander mischen und lebensfähige Nachkommen bekommen! Es müsste die genetischen Instruktionen für jedes Organ, das sich zwischen den beiden Spezies unterscheidet, durcheinanderbringen - es wäre so, als würde man versuchen," sie hatten keine Autos, also konnte er keine Analogie mit durcheinandergebrachten Motor-Blaupausen verwenden, "ein Halb-Kutsche-Halb-Boot oder so zu bauen..."
+"Ich meine -", flüsterte Harry. "Nicht, dass ich ein _Problem_ damit hätte - es ist nur - ich meine - wie ist das _möglich_? Man kann nicht einfach zwei verschiedene Spezies miteinander mischen und lebensfähige Nachkommen bekommen! Es müsste die genetischen Instruktionen für jedes Organ, das sich zwischen den beiden Spezies unterscheidet, durcheinanderbringen - es wäre so, als würde man versuchen," sie hatten keine Autos, also konnte er keine Analogie mit durcheinandergebrachten Motor-Blaupausen verwenden, "ein Halb-Kutsche-Halb-Boot oder so zu bauen..."
 
-Die Ravenclaw-Vertrauensschülerin sah Harry immer noch ernst an. "Warum _könnten_ Sie nicht eine Halb-Kutsche-Halb-Boot bauen?"
+Die Ravenclaw-Vertrauensschülerin sah Harry immer noch ernst an. "Warum kann man _nicht_ ein Halb-Kutsche-Halb-Boot bauen?"
 
 "_Hssh!_", rief ein anderer Vertrauensschüler, obwohl die Ravenclaw-Hexe nur leise gesprochen hatte.
 
@@ -94,7 +94,7 @@ Hermine riss sich los und rannte mit voller Wucht auf den Sprechenden Hut zu, ho
 
 "RAVENCLAW!"
 
-Und sprechen Sie über Ihre vorgefassten Meinungen. Harry verstand nicht, warum Hermine so angespannt gewesen war. In welchem verrückten alternativen Universum würde dieses Mädchen _nicht_ nach Ravenclaw sortiert werden? Wenn Hermine Granger nicht nach Ravenclaw ging, dann gab es keinen guten Grund für das Haus Ravenclaw zu existieren.
+So viel zu vorgefassten Meinungen. Harry verstand nicht, warum Hermine so angespannt gewesen war. In welchem verrückten alternativen Universum würde dieses Mädchen _nicht_ nach Ravenclaw sortiert werden? Wenn Hermine Granger nicht nach Ravenclaw ging, dann gab es keinen guten Grund für das Haus Ravenclaw zu existieren.
 
 Hermine kam am Ravenclaw-Tisch an und wurde pflichtbewusst bejubelt; Harry fragte sich, ob der Jubel lauter oder leiser gewesen wäre, wenn sie geahnt hätten, was für eine Konkurrenz sie an ihrem Tisch begrüßen würden. Harry kannte Pi bis 3.141592, weil die Genauigkeit auf einen Teil in einer Million für die meisten praktischen Zwecke ausreichend war. Hermine kannte hundert Ziffern von Pi, denn so viele Ziffern waren hinten in ihrem Mathelehrbuch abgedruckt.
 
@@ -102,7 +102,7 @@ Neville Longbottom ging nach Hufflepuff, worüber Harry froh war. Wenn dieses Ha
 
 (Obwohl Harry _recht_ gehabt hatte, zuerst einen Ravenclaw-Vertrauensschüler zu konsultieren. Die junge Frau hatte nicht einmal von ihrer Lektüre aufgeschaut oder Harry erkannt, sondern nur einen Zauberstab in Nevilles Richtung gestoßen und etwas gemurmelt. Danach hatte Neville einen benommenen Gesichtsausdruck angenommen und wanderte zum fünften Wagen von vorne und dem vierten Abteil links, in dem sich tatsächlich seine Kröte befand.)
 
-"Malfoy, Draco!", rief Slytherin, und Harry atmete ein wenig auf. Es hatte wie eine sichere Sache ausgesehen, aber man wusste nie, welches winzige Ereignis den Verlauf des Masterplans durcheinanderbringen könnte.
+"Malfoy, Draco!", ging zu Slytherin, und Harry atmete ein wenig auf. Es hatte wie eine sichere Sache ausgesehen, aber man wusste nie, welches winzige Ereignis den Verlauf des Masterplans durcheinanderbringen könnte.
 
 Professor McGonagall rief "Perks, Sally-Anne!", und aus den versammelten Kindern löste sich ein blasses, schmächtiges Mädchen, das seltsam ätherisch aussah - als würde sie auf mysteriöse Weise verschwinden, sobald man aufhörte, sie anzusehen, und nie wieder gesehen werden oder sich auch nur daran erinnern.
 
@@ -116,7 +116,7 @@ Alle Augen drehten sich starr um.
 
 Zum ersten Mal in seinem ganzen Leben hatte Harry das Gefühl, dass er vielleicht die Gelegenheit hatte, Lampenfieber zu erleben.
 
-Harry verdrängte dieses Gefühl sofort. Ganze Zimmer voller Leute, die ihn anstarrten, war etwas, an das er sich gewöhnen musste, wenn er im magischen Britannien leben oder überhaupt irgendetwas anderes Interessantes mit seinem Leben anfangen wollte. Ein selbstbewusstes und falsches Lächeln aufsetzend, hob er einen Fuß, um nach vorne zu treten -.
+Harry verdrängte dieses Gefühl sofort. Ganze Zimmer voller Leute, die ihn anstarrten, war etwas, an das er sich gewöhnen musste, wenn er im magischen Britannien leben oder überhaupt irgendetwas anderes Interessantes mit seinem Leben anfangen wollte. Ein selbstbewusstes und falsches Lächeln aufsetzend, hob er einen Fuß, um nach vorne zu treten -
 
 "Harry Potter!", rief die Stimme von Fred oder George Weasley, und dann "Harry Potter!", rief der andere Weasley-Zwilling, und einen Moment später hatte der gesamte Gryffindor-Tisch und bald darauf ein guter Teil von Ravenclaw und Hufflepuff den Ruf aufgenommen.
 
@@ -148,7 +148,7 @@ Harry Potter ging mit einem starren Lächeln nach vorne, fühlte sich innerlich 
 
 Sie bejubelten ihn für eine Arbeit, die er mit einem Jahr gemacht hatte. Eine Arbeit, die er noch nicht wirklich beendet hatte. Irgendwo, irgendwie, war der Dunkle Lord noch am Leben. Hätten sie auch so stark gejubelt, wenn sie das gewusst hätten?
 
-Aber die Macht des Dunklen Lords _wurde_ einmal gebrochen.
+Aber die Macht des Dunklen Lords _war_ einmal gebrochen worden.
 
 Und Harry würde sie wieder beschützen. Wenn es tatsächlich eine Prophezeiung gab und sie das besagte. Nun, eigentlich unabhängig davon, was irgendeine verflixte Prophezeiung sagte.
 

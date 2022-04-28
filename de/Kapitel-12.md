@@ -14,7 +14,7 @@ Flüsterflüsterflüster harry potter flüsterflüster slytherin flüsterflüste
 
 "RAVENCLAW!"
 
-Harry stimmte in den Applaus ein und begrüßte das junge Mädchen, das schüchtern auf den Ravenclaw-Tisch zuging, wobei der Saum ihrer Roben nun dunkelblau gefärbt war. Lisa Turpin schien hin- und hergerissen zwischen ihrem Impuls, sich so weit wie möglich von Harry Potter entfernt hinzusetzen, und ihrem Impuls, hinzurennen, sich gewaltsam an seine Seite zu drängen und damit zu beginnen, Antworten aus ihm herauszureißen.
+Harry stimmte in den Applaus ein und begrüßte das junge Mädchen, das schüchtern auf den Ravenclaw-Tisch zuging, wobei der Saum ihrer Roben nun dunkelblau gefärbt war. Lisa Turpin schien hin- und hergerissen zwischen ihrem Impuls, sich so weit wie möglich von Harry Potter entfernt hinzusetzen, und ihrem Impuls, hinzurennen, sich gewaltsam an seine Seite zu drängen und damit zu beginnen, Antworten aus ihm herauszuquetschen.
 
 Im Zentrum eines außergewöhnlichen und kuriosen Ereignisses zu stehen und dann in das Haus Ravenclaw sortiert zu werden, war in etwa so, als würde man in Barbecue-Soße getaucht und in eine Grube voller hungriger Kätzchen geworfen werden.
 
@@ -68,7 +68,7 @@ Harry applaudierte auch Zabini und ignorierte die seltsamen Blicke, die er von a
 
 Danach wurde kein weiterer Name mehr gerufen, und Harry stellte fest, dass "Zabini, Blaise" tatsächlich nahe am Ende des Alphabets klang. Toll, jetzt hatte er also _nur_ Zabini applaudiert... Na ja.
 
-Dumbledore stand wieder auf und ging auf das Podium zu. Offenbar war er im Begriff, eine Rede zu halten -.
+Dumbledore stand wieder auf und ging auf das Podium zu. Offenbar war er im Begriff, eine Rede zu halten.
 
 Und Harry hatte die Inspiration für einen _brillanten_ experimentellen Test.
 
@@ -76,17 +76,17 @@ Hermine hatte gesagt, dass Dumbledore der mächtigste lebende Zauberer sei, oder
 
 Harry griff in seinen Beutel und flüsterte: "Seltsaft".
 
-Damit der Seltsaft funktioniert, müsste er Dumbledore dazu bringen, während seiner Rede etwas _so_ Lächerliches zu sagen, dass er selbst in Harrys Zustand der mentalen Vorbereitung _noch_ ersticken würde. Zum Beispiel mussten alle Hogwarts-Schüler das ganze Schuljahr über keine Kleidung tragen, sonst würden sich alle in Katzen verwandeln.
+Damit der Seltsaft funktioniert, müsste er Dumbledore dazu bringen, während seiner Rede etwas _so_ Lächerliches zu sagen, dass es selbst in Harrys Zustand der mentalen Vorbereitung _noch_ übertroffen würde. Zum Beispiel mussten alle Hogwarts-Schüler das ganze Schuljahr über keine Kleidung tragen, sonst würden sich alle in Katzen verwandeln.
 
 Aber wenn _irgendjemand auf der Welt_ der Macht des Seltsaft widerstehen könnte, dann wäre es Dumbledore. Wenn das also funktionierte, war der Seltsaft buchstäblich _unbesiegbar_.
 
-Harry zog den Ring an Seltsaft-Dose unter dem Tisch hervor, da er dies etwas unauffälliger tun wollte. Die Dose machte ein leises zischendes Geräusch. Ein paar Köpfe drehten sich um, um ihn anzusehen, drehten sich aber bald wieder um, als -
+Harry zog den Ring der Seltsaft-Dose unter dem Tisch hervor, da er dies etwas unauffälliger tun wollte. Die Dose machte ein leises zischendes Geräusch. Ein paar Köpfe drehten sich um, um ihn anzusehen, drehten sich aber bald wieder um, als -
 
 "Willkommen! Willkommen zu einem neuen Jahr in Hogwarts!", sagte Dumbledore und strahlte die Schüler mit weit geöffneten Armen an, als ob ihn nichts mehr freuen könnte, als sie alle hier zu sehen.
 
 Harry nahm einen ersten Schluck Seltsaft und ließ die Dose wieder sinken. Er schluckte ein wenig von der Limo um, nicht zu ersticken, egal _was_ Dumbledore sagte -
 
-"Bevor wir unser Bankett beginnen, möchte ich ein paar Worte sagen. Und hier sind sie: Fröhliches fröhliches Bumm-Bumm-Sumpf-Sumpf-Sumpf! Danke schön!".
+"Bevor wir unser Bankett beginnen, möchte ich ein paar Worte sagen. Und hier sind sie: Fröhliches fröhliches Bumm-Bumm Sumpf-Sumpf-Sumpf! Danke schön!"
 
 Alle klatschten und jubelten, und Dumbledore setzte sich wieder.
 
@@ -94,13 +94,13 @@ Harry saß wie erstarrt da, während aus seinen Mundwinkeln Seltsaft rieselte. I
 
 Er hätte das wirklich _wirklich_ nicht tun sollen. Erstaunlich, wie viel _offensichtlicher_ das wurde, _eine Sekunde_ nachdem es _zu spät_ war.
 
-Im Nachhinein hätte er wohl merken müssen, dass etwas nicht stimmte, als er daran dachte, dass alle in Katzen verwandelt wurden... oder sogar schon vorher, an seine mentale Notiz erinnerte, sich nicht mit Dumbledore anzulegen... oder sein neu gefasster Entschluss, mehr Rücksicht auf andere zu nehmen... oder vielleicht, wenn er _ein einziges bisschen_ gesunden Menschenverstand gehabt hätte...
+Im Nachhinein hätte er wohl merken müssen, dass etwas nicht stimmte, als er daran dachte, dass alle in Katzen verwandelt wurden... oder sogar schon vorher, an seine mentale Notiz erinnerte, sich nicht mit Dumbledore anzulegen... oder sein neu gefasster Entschluss, mehr Rücksicht auf andere zu nehmen... oder vielleicht, wenn er _ein winziges bisschen_ gesunden Menschenverstand gehabt hätte...
 
 Es war hoffnungslos. Er war durch und durch korrupt. Heil dem dunklen Lord Harry. Du konntest nicht gegen das Schicksal ankämpfen.
 
 Jemand hat Harry gefragt, ob es ihm gut geht. (Andere begannen, sich am Essen zu bedienen, das auf magische Weise auf dem Tisch erschienen war, was auch immer.)
 
-"Mir geht's gut", sagte Harry. "Entschuldigung. Um. War das eine... _normale_ Rede für den Schulleiter? Es... schien irgendwie niemand... sehr überrascht... "
+"Mir geht's gut", sagte Harry. "Entschuldigung. Um. War das eine... _normale_ Rede für den Schulleiter? Es... schien irgendwie niemand... sehr überrascht..."
 
 "Oh, Dumbledore ist natürlich verrückt", sagte ein älter aussehender Ravenclaw, der neben ihm saß und sich mit einem Namen vorgestellt hatte, an den sich Harry nicht einmal ansatzweise erinnern konnte. "Sehr umgänglich, unglaublich mächtiger Zauberer, aber völlig durchgeknallt." Er hielt inne. "Zu einem späteren Zeitpunkt würde ich auch gerne fragen, warum grüne Flüssigkeit aus Deinen Lippen kam und dann verschwand, obwohl ich vermute, dass Du dem Sprechenden Hut versprochen hast, auch darüber nicht zu sprechen."
 
@@ -206,7 +206,7 @@ Warum, ja. Das klang nach einer _erstaunlich_ guten Idee, nachdem Harry tatsäch
 
 Im Nachhinein so offensichtlich, und doch waren ihm Option 3c und Option 3d irgendwie nicht in den Sinn gekommen.
 
-Harry belohnte sich selbst mit +1 Punkt für sein Anti-Dark-Lord-Harry-Programm.
+Harry belohnte sich selbst mit +1 Punkt für sein Anti-Dunkler-Lord-Harry-Programm.
 
 Es war ein furchtbar grausamer Streich gewesen, den ihm der Hut gespielt hatte, aber über das Ergebnis konnte man aus konsequentialistischen Gründen nicht streiten. Es hat ihm allerdings eine bessere Vorstellung von der Perspektive des Opfers gegeben.
 
@@ -272,7 +272,7 @@ Harry schluckte schwer und versuchte, die plötzliche Gefühlswelle zu unterdrü
 
 "Sie sind es gewohnt, dass die Position des Verteidigers von Inkompetenten, Schurken und Pechvögeln besetzt wird. Für jeden, der ein Gespür für Geschichte hat, hat es einen ganz anderen Ruf. Nicht jeder, der hier unterrichtet hat, war der Beste, aber die Besten haben alle in Hogwarts unterrichtet. In solch erlauchter Gesellschaft und nach so langer Zeit der Vorfreude auf diesen Tag würde ich mich schämen, mir einen niedrigeren Standard als Perfektion zu setzen. Und so beabsichtige ich, dass jeder von Ihnen dieses Jahr immer als die _beste_ Verteidigungsklasse in Erinnerung behalten wird, die Sie je hatten. Was Sie in diesem Jahr lernen, wird für immer als Ihr festes Fundament in den Künsten der Verteidigung dienen, ganz gleich, wer Ihre Lehrer davor und danach waren."
 
-Professor Quirrells Gesichtsausdruck wurde ernst. "Wir haben eine _große_ Menge an verlorenem Boden aufzuholen und nicht viel Zeit, um ihn zurückzulegen. Daher beabsichtige ich, in einigen Punkten von den Konventionen des Hogwarts-Unterrichts abzuweichen und auch einige optionale Aktivitäten nach der Schule einzuführen." Er hielt inne. "Wenn das nicht ausreicht, kann ich vielleicht neue Wege finden, Sie zu motivieren. Sie sind meine lang erwarteten Schüler, und Sie _werden_ Ihr _sehr_ Bestes in meiner lang erwarteten Verteidigungsklasse geben. Ich würde eine Art furchtbare Drohung hinzufügen, wie "Sonst werden Sie schrecklich leiden", aber das wäre so klischeehaft, meinen Sie nicht? Ich bin stolz darauf, einfallsreicher zu sein als das. Danke!"
+Professor Quirrells Gesichtsausdruck wurde ernst. "Wir haben eine _große_ Menge an verlorenem Boden aufzuholen und nicht viel Zeit, um ihn zurückzulegen. Daher beabsichtige ich, in einigen Punkten von den Konventionen des Hogwarts-Unterrichts abzuweichen und auch einige optionale Aktivitäten nach der Schule einzuführen." Er hielt inne. "Wenn das nicht ausreicht, kann ich vielleicht neue Wege finden, Sie zu motivieren. Sie sind meine lang erwarteten Schüler, und Sie _werden_ Ihr _sehr_ Bestes in meiner lang erwarteten Verteidigungsklasse geben. Ich würde eine Art furchtbare Drohung hinzufügen, wie 'Sonst werden Sie schrecklich leiden', aber das wäre so klischeehaft, meinen Sie nicht? Ich bin stolz darauf, einfallsreicher zu sein als das. Danke!"
 
 Dann schien der Elan und die Zuversicht aus Professor Quirrell zu weichen. Sein Mund klaffte auf, als ob er sich plötzlich einem unerwarteten Publikum gegenübersähe, und er drehte sich mit einem krampfhaften Ruck um und schlurfte zu seinem Sitz zurück, zusammengekauert, als ob er gleich in sich zusammensacken und implodieren würde.
 

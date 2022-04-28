@@ -178,7 +178,7 @@ Fred und George beschlossen, dass Fred sprechen würde.
 
 George zog einen Gegenstand aus seinem Gewand und reichte ihn wortlos an Flume weiter. "Hast du das gesehen?", sagte Fred.
 
-Flume schaute auf die gestrige Ausgabe des _Tagespropheten_ und nickte finster. Die Schlagzeile auf der Zeitung lautete THE NEXT DARK LORD... und zeigte einen Jungen, den die Kamera irgendeines Schülers mit einem uncharakteristisch kalten und grimmigen Gesichtsausdruck eingefangen hatte.
+Flume schaute auf die gestrige Ausgabe des _Tagespropheten_ und nickte finster. Die Schlagzeile auf der Zeitung lautete DER NÄCHSTE DUNKLE LORD... und zeigte einen Jungen, den die Kamera irgendeines Schülers mit einem uncharakteristisch kalten und grimmigen Gesichtsausdruck eingefangen hatte.
 
 "Ich kann das nicht glauben, Malfoy", schnauzte Flume. "Auf den Jungen loszugehen, wenn er erst elf Jahre alt ist! Der Mann sollte zermahlen und zu Pralinen verarbeitet werden!"
 
