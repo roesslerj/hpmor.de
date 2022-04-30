@@ -232,7 +232,7 @@ _Dies ist der Umhang der Unsichtbarkeit von Ignotus Peverell, der durch seine Na
 
 _In Zukunft werde ich mit der Desillusionierung zurechtkommen müssen, fürchte ich. Es ist an der Zeit, dass der Umhang an dich, seinen Erben, zurückgegeben wird. Ich hatte daran gedacht, dies als Weihnachtsgeschenk zu machen, aber er wollte vorher wieder in deine Hand kommen. Er scheint zu erwarten, dass du ihn brauchst. Nutze ihn gut._
 
-_Zweifellos denkst du schon an alle möglichen wunderbaren Streiche, wie sie dein Vater zu seiner Zeit begangen hat. Wenn seine ganzen Missetaten bekannt würden, würden sich alle Frauen in Gryffindor versammeln, um sein Grab zu entweihen. Ich werde nicht versuchen, die Wiederholung der Geschichte zu verhindern, aber sei MÖGLICHST vorsichtig, um dich nicht zu verraten. Wenn Dumbledore eine Chance sieht, eines der Heiligtümer des Todes zu besitzen, würde er es bis zu seinem Tod nicht aus den Händen geben._
+_Zweifellos denkst du schon an alle möglichen wunderbaren Streiche, wie sie dein Vater zu seiner Zeit begangen hat. Wenn seine ganzen Missetaten bekannt würden, würden sich alle Frauen in Gryffindor versammeln, um sein Grab zu entweihen. Ich werde nicht versuchen, die Wiederholung der Geschichte zu verhindern, aber sei MÖGLICHST vorsichtig, um dich nicht zu verraten. Wenn Dumbledore eine Chance sähe, eines der Heiligtümer des Todes zu besitzen, würde er es niemals wieder aus den Händen geben..._
 
 _Frohe Weihnachten wünsche ich Dir!_
 
