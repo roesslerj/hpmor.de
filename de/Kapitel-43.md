@@ -512,7 +512,7 @@ Sie rannte auf den Dementor zu.
 
 "Alle!", rief Auror Komodo mit militärischem Befehlston. "_Geht ihr mit euren Gönnerinnen aus dem Weg!_ "
 
-"_FLITWICK!_ ", brüllte Professor Quirrell. "_BESCHWÖRE DEN ZAUBERSTAB DES TÖPFERS!_"
+"_FLITWICK!_ ", brüllte Professor Quirrell. "_HOLE DEN ZAUBERSTAB VON POTTER!_"
 
 Gerade als Hermine verstand, rief Professor Flitwick schon "_Accio!_", und sie sah, wie der Holzstab von dort, wo er gelegen hatte, hochschnellte und fast den Käfig des Dementors berührte.
 

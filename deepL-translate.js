@@ -105,6 +105,7 @@ async function run() {
       .replaceAll('Zeitdreher', 'Zeitumkehrer')
       .replaceAll('Dark Lord', 'Dunkler Lord')
       .replaceAll('Herr ', 'Mr. ')
+      .replaceAll('Herr. ', 'Mr. ')
       .replaceAll('Aftermath', 'Nachspiel')
       .replaceAll('Muggle', 'Muggel')
       .replaceAll('Snitch', 'Schnatz')
