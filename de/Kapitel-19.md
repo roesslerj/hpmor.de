@@ -24,7 +24,7 @@ Harry hoffte, dass diese Klasse nicht stressig sein würde und dass der brillant
 
 Harry lehnte sich in seinem Stuhl zurück und schenkte Draco und seinen Lakaien einen sehr ernsten Blick.
 
-"Du fragst, was ist unser Ziel?" rief Harry aus. "Ich kann mit einem Wort antworten. Es ist der Sieg. Sieg um jeden Preis - Sieg trotz aller Schrecken - Sieg, wie lang und schwer der Weg auch sein mag, denn ohne Sieg gibt es keinen -"
+"Du fragst, was unser Ziel ist?", rief Harry. "Das kann ich mit einem Wort antworten. Es ist der Sieg. Sieg um jeden Preis - Sieg trotz aller Schrecken - Sieg, wie lang und schwer der Weg auch sein mag, denn ohne Sieg gibt es keinen -"
 
 "_Rede über Snape,_" zischte Draco. "_Was hast du getan?_"
 
@@ -92,9 +92,9 @@ Harrys Herz sank. Er hatte offenbar etwas sehr Bedeutsames gesagt und er wusste 
 
 "In Ordnung", sagte Draco. Er grinste jetzt breit. "Also, so war die Reaktion in Slytherin. Zuerst waren alle Idioten so: 'Wir hassen Harry Potter! Lasst uns ihn verprügeln!'"
 
-Harry würgte. "Was ist _falsch_ mit dem Sprechenden Hut? Das ist nicht Slytherin, das ist _Gryffindor_ -"
+Harry würgte. "Was _stimmt nicht_ mit dem Sprechenden Hut? Das ist nicht Slytherin, das ist _Gryffindor_ -"
 
-"Nicht alle Kinder sind Wunderkinder", sagte Draco, wobei er auf eine böse-verschwörerische Art und Weise lächelte, als wolle er andeuten, dass er insgeheim mit Harrys Meinung übereinstimmte. "Und es hat ungefähr fünfzehn Sekunden gedauert, bis ihnen jemand erklärt hat, warum das vielleicht nicht so ein Gefallen für Snape ist, also ist alles gut. Wie auch immer, danach kam die zweite Welle von Idioten, die sagten: "Sieht so aus, als wäre Harry Potter doch nur ein weiterer Weltverbesserer gewesen.'"
+"Nicht alle Kinder sind Wunderkinder", sagte Draco, wobei er auf eine böse-verschwörerische Art und Weise lächelte, als wolle er andeuten, dass er insgeheim mit Harrys Meinung übereinstimmte. "Und es hat ungefähr fünfzehn Sekunden gedauert, bis ihnen jemand erklärt hat, warum das vielleicht nicht so ein Gefallen für Snape ist, also ist alles gut. Wie auch immer, danach kam die zweite Welle von Idioten, die sagten: 'Sieht so aus, als wäre Harry Potter doch nur ein weiterer Weltverbesserer.'"
 
 "Und dann?" sagte Harry und lächelte, obwohl er keine Ahnung hatte, warum _das_ dumm war.
 
@@ -110,7 +110,7 @@ Harry machte sein Lächeln breiter.
 
 Harrys Gesicht war nun neutral. Daran hatte er nicht gedacht und das hätte er wirklich, _wirklich_ tun sollen. "Und daraus hast du geschlossen...?"
 
-"Snapes Laderaum war ein Geheimnis von Dumbledore und _Du hast das Geheimnis_!" Draco sah jubelnd aus. "Es kann nicht mächtig genug sein, um Dumbledore komplett zu vernichten, sonst hätte Snape es schon längst benutzt. Snape weigert sich, seinen Einfluss für irgendetwas anderes zu nutzen, als Hausoberhaupt von Slytherin in Hogwarts zu bleiben, und selbst dann bekommt er nicht immer, was er will, also muss es Grenzen geben. Aber es _muss_ wirklich gut sein! Vater versucht schon seit _Jahren_, Snape dazu zu bringen, es ihm zu sagen!"
+"Snapes Halt war ein Geheimnis von Dumbledore und _Du hast das Geheimnis_!" Draco sah jubelnd aus. "Es kann nicht mächtig genug sein, um Dumbledore komplett zu vernichten, sonst hätte Snape es schon längst benutzt. Snape weigert sich, seinen Einfluss für irgendetwas anderes zu nutzen, als Hausoberhaupt von Slytherin in Hogwarts zu bleiben, und selbst dann bekommt er nicht immer, was er will, also muss es Grenzen geben. Aber es _muss_ wirklich gut sein! Vater versucht schon seit _Jahren_, Snape dazu zu bringen, es ihm zu sagen!"
 
 "Und", sagte Harry, "jetzt denkt Lucius, dass _ich_ es ihm vielleicht sagen kann. Hast du schon eine Eule bekommen -"
 
@@ -134,7 +134,7 @@ Harry sah, dass Zombie-Quirrell durch die Türen herein taumelte.
 
 "Der Unterricht fängt gleich an", sagte Harry. "Ich werde darüber nachdenken, was du gesagt hast, es gibt viele Zeiten, in denen ich mir wünschte, ich hätte all dein Training, es ist nur so, dass ich nicht weiß, wie ich dir so schnell vertrauen kann -"
 
-"Das solltest du auch nicht", sagte Draco, "es ist noch zu früh. Siehst du? Ich gebe dir einen guten Rat, auch wenn es mir weh tut. Aber wir sollten uns vielleicht _beeilen_ und engere Freunde werden."
+"Das solltest du auch nicht", sagte Draco, "es ist noch zu früh. Siehst du? Ich gebe dir einen guten Rat, auch wenn es mir zum Nachteil gereicht. Aber wir sollten uns vielleicht _beeilen_ und engere Freunde werden."
 
 "Dafür bin ich offen", sagte Harry, der schon überlegte, wie er das ausnutzen könnte.
 
@@ -190,9 +190,9 @@ Professor Quirrell lachte. "Ah, nun _das_ war Nummer 2. Meine Güte, Mr. Potter,
 
 Es gab mehr Lachen, mit einem Unterton von Nervosität. Harry presste seinen Kiefer fest zusammen und sagte nichts. Eine Verweigerung würde nichts bewirken.
 
-"Aber nein. Der _erste_ Punkt war: 'Ich werde nicht herumgehen und starke, bösartige Feinde provozieren.' Die Geschichte der Welt würde ganz anders aussehen, wenn Mornelithe Falconsbane oder Hitler diesen elementaren Punkt begriffen hätten. Nun, _wenn_ Mr. Potter - nur _wenn_ Sie zufällig einen ähnlichen Ehrgeiz hegen, wie ich ihn als junger Slytherin hatte - selbst dann hoffe ich, dass es nicht Ihr Ehrgeiz ist, ein _dummer_ Dunkler Lord zu werden."
+"Aber nein. Der _erste_ Punkt war: 'Ich werde nicht herumgehen und starke, bösartige Feinde provozieren.' Die Geschichte der Welt würde ganz anders aussehen, wenn Mornelithe Falconsbane oder Hitler diesen elementaren Punkt begriffen hätten. Nun, _wenn_ Mr. Potter - nur _wenn_ - Sie zufällig einen ähnlichen Ehrgeiz hegen, wie ich ihn als junger Slytherin hatte - selbst dann hoffe ich, dass es nicht Ihr Ehrgeiz ist, ein _dummer_ Dunkler Lord zu werden."
 
-"Professor Quirrell", sagte Harry und knirschte mit den Zähnen, "ich bin ein _Ravenclaw_ und es ist nicht mein Bestreben, dumm zu sein, Punkt. Ich weiß, dass das, was ich heute getan habe, dumm war. Aber es war nicht _Dunkel!_ Ich war _nicht_ derjenige, der den ersten Schlag in diesem Kampf geführt hat!"
+"Professor Quirrell", sagte Harry und knirschte mit den Zähnen, "ich bin ein _Ravenclaw_ und es ist nicht mein Bestreben, dumm zu sein, Punkt. Ich weiß, dass das, was ich heute getan habe, dumm war. Aber es war nicht _Dunkel_! Ich war _nicht_ derjenige, der den ersten Schlag in diesem Kampf geführt hat!"
 
 "Sie, Mr. Potter, sind ein Idiot. Aber das war ich in Ihrem Alter auch. So habe ich Ihre Antwort vorweggenommen und den heutigen Unterrichtsplan entsprechend geändert. Mr. Gregory Goyle, würden Sie bitte nach vorne kommen?"
 
@@ -208,7 +208,7 @@ Harrys Augen weiteten sich bei diesem Anblick und ihm wurde klar, warum Mr. Goyl
 
 "Professor Quirrell", sagte Mr. Goyle, dessen Stimme nun ebenso verstärkt war wie die des Professors, "darf ich fragen, welche Stufe -"
 
-"6. _dann_ Du wirst nicht verletzt werden und ich auch nicht. Und wenn du eine freie Stelle siehst, nutze sie bitte."
+"6. _dann_ wirst Du nicht verletzt werden und ich auch nicht. Und wenn du eine freie Stelle siehst, nutze sie bitte."
 
 Mr. Goyle nickte und sah sehr erleichtert aus.
 
@@ -242,9 +242,9 @@ Professor Quirrells Gesicht verhärtete sich und Harry glaubte, einen Hauch von 
 
 Es gab einige Lacher im Klassenzimmer. Harry lachte nicht. Das war ganz und gar nicht richtig gewesen.
 
-"Auf jeden Fall. Während eines meiner ersten Kämpfe, nachdem ich auf eine besonders demütigende Art und Weise geschlagen worden war, verlor ich die Kontrolle und griff meinen Sparringspartner an -"
+"Auf jeden Fall. Während einer meiner ersten Kämpfe, nachdem ich auf eine besonders demütigende Art und Weise geschlagen worden war, verlor ich die Kontrolle und griff meinen Sparringspartner an -"
 
-_Yikes._
+_Ohje._
 
 "- zum Glück mit meinen Fäusten und nicht mit meiner Magie. Der Meister hat mich überraschenderweise nicht auf der Stelle vertrieben. Aber er sagte mir, dass es einen Makel in meinem Temperament gibt. Er erklärte es mir, und ich wusste, dass er Recht hatte. Und dann sagte er, dass ich lernen würde, wie man verliert."
 
@@ -254,7 +254,7 @@ Professor Quirrells Gesicht war ausdruckslos.
 
 Harry versuchte, sich das vorzustellen und scheiterte einfach. Es war unmöglich, dass so etwas dem ehrwürdigen Professor Quirrell passieren konnte.
 
-"Ich war schon damals ein Wunderkind der Kampfmagie. Mit zuaberstabloser Magie allein hätte ich jeden in diesem Dojo töten können. Ich habe es nicht getan. Ich habe gelernt zu verlieren. Bis heute erinnere ich mich daran als eine der unangenehmsten Stunden meines Lebens. Und als ich das Dojo acht Monate später verließ - was nicht annähernd genug Zeit war, aber alles war, was ich mir leisten konnte - sagte mir der Meister, dass er hoffte, ich würde verstehen, warum das notwendig gewesen war. Und ich sagte ihm, dass dies eine der wertvollsten Lektionen war, die ich je gelernt hatte. Das war und ist es noch immer."
+"Ich war schon damals ein Wunderkind der Kampfmagie. Mit zauberstabloser Magie allein hätte ich jeden in diesem Dojo töten können. Ich habe es nicht getan. Ich habe gelernt zu verlieren. Bis heute erinnere ich mich daran als eine der unangenehmsten Stunden meines Lebens. Und als ich das Dojo acht Monate später verließ - was nicht annähernd genug Zeit war, aber alles war, was ich mir leisten konnte - sagte mir der Meister, dass er hoffte, ich würde verstehen, warum das notwendig gewesen war. Und ich sagte ihm, dass dies eine der wertvollsten Lektionen war, die ich je gelernt hatte. Das war und ist es noch immer."
 
 Professor Quirrells Gesicht wurde bitter. "Ihr fragst euch sicher, wo dieses wunderbare _dojo_ ist, und ob Ihr dort lernen könnt. Das könnt ihr nicht. Denn nicht lange danach kam ein anderer Möchtegern-Schüler zu diesem versteckten Ort, zu diesem abgelegenen Berg. Er-desen-Name-nicht-genannt-werden-darf."
 
@@ -266,11 +266,11 @@ Professor Quirrells Gesicht war sehr hart. "Vielleicht hatte der Meister zu viel
 
 Es gab ein kollektives Keuchen.
 
-"Ihr kannst euch denken, was als nächstes passiert ist. Die Schüler versuchten, sich auf den Dunklen Lord zu stürzen und fielen um, betäubt wo sie standen. Und dann... "
+"Ihr könnt euch denken, was als nächstes passiert ist. Die Schüler versuchten, sich auf den Dunklen Lord zu stürzen und fielen um, betäubt wo sie standen. Und dann... "
 
-Professor Quirrells Stimme stockte für einen Moment, dann nahm er sie wieder auf.
+Professor Quirrells Stimme stockte für einen Moment, dann fuhr er fort.
 
-"Es gibt einen unverzeihlichen Fluch, den Cruciatus-Fluch, der unerträgliche Schmerzen erzeugt. Wenn der Cruciatus länger als ein paar Minuten ausgedehnt wird, erzeugt er permanente Unzurechnungsfähigkeit. Einer nach dem anderen kreuzigte der Dunkle Lord die Schüler des Meisters bis zum Wahnsinn und beendete sie dann mit dem Tötungsfluch, während der Meister gezwungen war, zuzusehen. Als alle seine Schüler auf diese Weise gestorben waren, folgte der Meister. Ich erfuhr dies von dem einzigen überlebenden Schüler, den der Dunkle Lord am Leben gelassen hatte, um die Geschichte zu erzählen, und der ein Freund von mir gewesen war..."
+"Es gibt einen unverzeihlichen Fluch, den Cruciatus-Fluch, der unerträgliche Schmerzen erzeugt. Wenn der Cruciatus länger als ein paar Minuten ausgedehnt wird, erzeugt er permanente Unzurechnungsfähigkeit. Einer nach dem anderen quälte der Dunkle Lord die Schüler des Meisters bis zum Wahnsinn und tötete sie dann mit dem Tötungsfluch, während der Meister gezwungen war, zuzusehen. Als alle seine Schüler auf diese Weise gestorben waren, folgte der Meister. Ich erfuhr dies von dem einzigen überlebenden Schüler, den der Dunkle Lord am Leben gelassen hatte, um die Geschichte zu erzählen, und der ein Freund von mir gewesen war..."
 
 Professor Quirrell wandte sich ab, und als er sich einen Moment später wieder umdrehte, wirkte er wieder ruhig und gefasst.
 
@@ -288,15 +288,15 @@ Harry fühlte sich, als müsste er sich übergeben. "Ich habe mein Temperament v
 
 "Das ist _nicht_ präzise", sagte Professor Quirrell. "Ich werde es noch genauer beschreiben. Es gibt viele Tiere, die so genannte Dominanzkämpfe austragen. Sie stürzen sich mit Hörnern aufeinander - und versuchen, sich gegenseitig niederzuschlagen, nicht sich zu zerfleischen. Sie kämpfen mit ihren Pfoten - mit eingezogenen Krallen. Aber warum mit eingezogenen Krallen? Wenn sie ihre Krallen benutzen würden, hätten sie doch sicher eine bessere Chance zu gewinnen? Aber dann könnte ihr Feind auch seine Klauen ausfahren und anstatt den Dominanzkampf mit einem Gewinner und einem Verlierer zu beenden, könnten beide schwer verletzt werden."
 
-Professor Quirrells Blick schien Harry direkt aus dem Wiederholungsbildschirm anzuschauen. "Was Sie heute demonstriert haben, Mr. Potter, ist, dass Sie - im Gegensatz zu den Tieren, die ihre Krallen eingezogen halten und die Ergebnisse akzeptieren - nicht wissen, wie man einen Dominanzkampf verliert. Als ein _Hogwarts-Professor_ dich herausforderte hat, hast du nicht klein beigegeben. Als es so aussah, als würdest du verlieren, hast du deine Krallen ausgefahren, ohne auf die Gefahr zu achten. Du hast _eskaliert,_ und dann bist du _wieder_ eskaliert. Es begann mit einer Ohrfeige von Professor Snape, der offensichtlich über dich dominierte. Anstatt zu verlieren, hast du zurückgeschlagen und zehn Punkte von Ravenclaw verloren. Schon bald hast du davon gesprochen, Hogwarts zu verlassen. Die Tatsache, dass du noch weiter in irgendeine unbekannte Richtung eskaliert bist und am Ende irgendwie gewonnen hast, ändert nichts an der Tatsache, dass du ein Idiot bist."
+Professor Quirrells Blick schien Harry direkt aus dem Wiederholungsbildschirm anzuschauen. "Was Sie heute demonstriert haben, Mr. Potter, ist, dass Sie - im Gegensatz zu den Tieren, die ihre Krallen eingezogen halten und die Ergebnisse akzeptieren - nicht wissen, wie man einen Dominanzkampf verliert. Als ein _Hogwarts-Professor_ dich herausforderte hat, hast du nicht klein beigegeben. Als es so aussah, als würdest du verlieren, hast du deine Krallen ausgefahren, ohne auf die Gefahr zu achten. Du hast _eskaliert_, und dann hast du _wieder_ eskaliert. Es begann mit einer Ohrfeige von Professor Snape, der offensichtlich über dich dominierte. Anstatt zu verlieren, hast du zurückgeschlagen und zehn Punkte von Ravenclaw verloren. Schon bald hast du davon gesprochen, Hogwarts zu verlassen. Die Tatsache, dass du noch weiter in irgendeine unbekannte Richtung eskaliert hast und am Ende irgendwie gewonnen hast, ändert nichts an der Tatsache, dass du ein Idiot bist."
 
 "Ich verstehe", sagte Harry. Seine Kehle war trocken. Das _war_ präzise. _Erschreckend_ präzise. Jetzt, wo Professor Quirrell es gesagt hatte, konnte Harry im Nachhinein sehen, dass es eine _genaue_ Beschreibung dessen war, was geschehen war. Wenn jemandes Modell von dir so gut war, musstest du dich fragen, ob er auch mit anderen Dingen Recht hatte, wie zum Beispiel deiner Absicht zu töten.
 
 "Das _nächste_ Mal, Mr. Potter, wenn du dich dafür entscheidest, einen Wettbewerb zu eskalieren, anstatt zu verlieren, kannst du _alle_ Einsätze verlieren, die du auf den Tisch legst. Ich kann nicht erraten, was sie heute waren. Ich kann mir vorstellen, dass sie für den Verlust von zehn Hauspunkten viel, viel zu hoch waren."
 
-_Wie das Schicksal des magischen Großbritanniens. Das war es, was er getan hatte._
+_Wie das Schicksal des magischen Großbritanniens. Das war es, was er gewettet hatte._
 
-Du wirst protestieren, dass du versucht hast, ganz Hogwarts zu helfen, ein viel wichtigeres Ziel, das große Risiken wert ist. Das ist eine _Lüge_. Wenn Du schlau gewesen wärst, ..."
+"Du wirst protestieren, dass du versucht hast, ganz Hogwarts zu helfen, ein viel wichtigeres Ziel, das große Risiken wert ist. Das ist eine _Lüge_. Wenn Du schlau gewesen wärst, ..."
 
 "Ich hätte die Ohrfeige genommen, gewartet und den bestmöglichen Zeitpunkt gewählt, um meinen Zug zu machen.", sagte Harry mit heiserer Stimme. "Aber das hätte bedeutet, dass ich _verloren_ hätte. Ihn dominant über mich sein zu lassen. Es war das, was der Dunkle Lord nicht mit dem Meister machen konnte, von dem er lernen wollte."
 
@@ -336,7 +336,7 @@ Harrys Atem kam in kurzen, panischen Zügen. Er hatte mehr Angst als nach dem Ve
 
 "Dann", Harry wurde übel, "werde ich es tun."
 
-Professor Quirrell drehte sich um und betrachtete die Slytherins. "Also... mit der vollen Zustimmung deines Lehrers und auf eine solche Art und Weise, dass Snape nicht für deine Handlungen verantwortlich gemacht werden kann... Möchte einer von euch seine Dominanz über den Jungen-der-lebt zeigen? Ihn herumschubsen, ihn zu Boden stoßen, ihn um Gnade betteln hören?"
+Professor Quirrell drehte sich um und betrachtete die Slytherins. "Also... mit der vollen Zustimmung eures Lehrers und auf eine solche Art und Weise, dass Snape nicht für deine Handlungen verantwortlich gemacht werden kann... Möchte einer von euch seine Dominanz über den Jungen-der-lebt zeigen? Ihn herumschubsen, ihn zu Boden stoßen, ihn um Gnade betteln hören?"
 
 Fünf Hände gingen hoch.
 
@@ -380,7 +380,7 @@ Professor Quirrell blickte über die Klasse. "Möchte noch jemand stark werden?"
 
 Einige Schüler blickten sich nervös um. Einige, so dachte Harry aus seiner hinteren Reihe, sahen aus, als würden sie den Mund öffnen, aber nichts sagen. Am Ende sprach niemand mehr.
 
-"Draco Malfoy wird einer der Generäle der Armeen deines Jahrgangs sein", sagte Professor Quirrell, "sollte er sich dazu herablassen, sich mit dieser außerschulischen Aktivität zu beschäftigen. Und jetzt, Mr. Potter, kommen Sie bitte nach vorne."
+"Draco Malfoy wird einer der Generäle der Armeen dieses Jahrgangs sein", sagte Professor Quirrell, "sollte er sich dazu herablassen, sich mit dieser außerschulischen Aktivität zu beschäftigen. Und jetzt, Mr. Potter, kommen Sie bitte nach vorne."
 
 * * *
 
@@ -396,7 +396,7 @@ Harrys Zauberstab lag auf Professor Quirrells Schreibtisch, nicht weil Harry irg
 
 Harry hatte Professor Quirrell angefleht, ihm ein paar Boxhandschuhe zu zaubern und sie anziehen zu lassen. Professor Quirrell hatte ihm einen stummen, verständnisvollen Blick zugeworfen und abgelehnt.
 
-_Ich werde nicht auf ihre Augen losgehen, ich werde nicht auf ihre Augen losgehen, ich werde nicht auf ihre Augen losgehen, es wäre das Ende meines Lebens in Hogwarts, ich werde verhaftet werden,_ skandierte Harry vor sich hin und versuchte, den Gedanken in sein Gehirn zu hämmern, in der Hoffnung, dass er dort bleiben würde, wenn seine Absicht zu töten die Oberhand gewinnen würde.
+_Ich werde nicht auf ihre Augen losgehen, ich werde nicht auf ihre Augen losgehen, ich werde nicht auf ihre Augen losgehen, es wäre das Ende meines Lebens in Hogwarts, ich würde verhaftet werden,_ skandierte Harry vor sich hin und versuchte, den Gedanken in sein Gehirn zu hämmern, in der Hoffnung, dass er dort bleiben würde, wenn seine Absicht zu töten die Oberhand gewinnen würde.
 
 Professor Quirrell kehrte zurück und eskortierte dreizehn ältere Slytherins aus verschiedenen Jahrgängen. Harry erkannte einen von ihnen als denjenigen, den er mit einem Kuchen getroffen hatte. Zwei andere aus dieser Konfrontation waren ebenfalls anwesend. Derjenige, der gesagt hatte, dass sie aufhören sollen, dass sie das wirklich nicht tun sollten, war nicht dabei.
 
@@ -410,7 +410,7 @@ Durch eine Art gegenseitiges Einverständnis war das Kuchen-Ziel an der Spitze d
 
 "Potter", sagte Professor Quirrell, "das ist Mr. Peregrine Derrick. Er ist besser als du und er ist dabei dir das zu zeigen."
 
-Derrick schritt vorwärts und Harrys Gehirn schrie widersprüchlich, er darf nicht weglaufen, er darf sich nicht wehren -.
+Derrick schritt vorwärts und Harrys Gehirn schrie widersprüchlich "ich darf nicht weglaufen" und "ich darf mich nicht wehren".
 
 Derrick blieb eine Armlänge entfernt von Harry stehen.
 
@@ -444,7 +444,7 @@ Harry taumelte ein paar Schritte zurück und richtete sich, bevor er sich selbst
 
 "Du _klingst_ nicht traurig", sagte Derrick.
 
-Harrys Augen weiteten sich vor Empörung, er _hatte_ es geschafft, das flehend klingen zu lassen -.
+Harrys Augen weiteten sich vor Empörung, er _hatte_ es geschafft, das flehend klingen zu lassen -
 
 Derrick stieß ihn, hart, und Harry fiel auf Händen und Knien auf die Matte.
 
@@ -458,7 +458,7 @@ Derrick lachte. "Das macht _Spaß_", sagte er.
 
 Alles was er tun musste, war zu sagen, dass es vorbei ist. Und die ganze Sache beim Büro des Schulleiters zu melden. Das wäre das Ende dieses _Verteidigungsprofessors_ und seines unglückseligen Aufenthalts in Hogwarts und... Professor McGonagall wäre darüber verärgert, aber...
 
-(Ein Bild von Professor McGonagalls Gesicht blitzte vor seinen Augen auf, sie sah nicht wütend aus, nur traurig -).
+(Ein Bild von Professor McGonagalls Gesicht blitzte vor seinen Augen auf, sie sah nicht wütend aus, nur traurig.)
 
 "Jetzt sag ihm, dass er besser ist als du, Potter", sagte die Stimme von Professor Quirrell.
 
@@ -466,13 +466,13 @@ Alles was er tun musste, war zu sagen, dass es vorbei ist. Und die ganze Sache b
 
 Harry begann sich aufzurichten und Derrick stellte einen Fuß auf seine Brust und schob ihn zurück auf die Matte.
 
-Die Welt wurde transparent wie Kristall. Die Handlungslinien und ihre Konsequenzen lagen in völliger Klarheit vor ihm ausgebreitet. Der Narr würde nicht erwarten, dass er zurückschlägt, ein schneller Schlag in die Leiste würde ihn lange genug betäuben für -.
+Die Welt wurde transparent wie Kristall. Die Handlungslinien und ihre Konsequenzen lagen in völliger Klarheit vor ihm ausgebreitet. Der Narr würde nicht erwarten, dass er zurückschlägt, ein schneller Schlag in die Leiste würde ihn lange genug betäuben für -
 
-"Versuchen Sie es noch einmal", sagte Professor Quirrell und mit einer plötzlichen scharfen Bewegung rollte sich Harry ab, sprang auf die Füße und wirbelte auf, wo sein eigentlicher Feind stand, der Verteidigungsprofessor -.
+"Versuchen Sie es noch einmal", sagte Professor Quirrell und mit einer plötzlichen scharfen Bewegung rollte sich Harry ab, sprang auf die Füße und wirbelte auf, wo sein eigentlicher Feind stand, der Verteidigungsprofessor -
 
 Professor Quirrell sagte: "Du hast keine Geduld."
 
-Harry zögerte. Sein in Pessimismus geübter Verstand zeichnete das Bild eines verhutzelten alten Mannes, dem Blut aus dem Mund floss, nachdem Harry ihm die Zunge herausgerissen hatte -.
+Harry zögerte. Sein in Pessimismus geübter Verstand zeichnete das Bild eines verhutzelten alten Mannes, dem Blut aus dem Mund floss, nachdem Harry ihm die Zunge herausgerissen hatte -
 
 Einen Moment später drückte Derrick Harry wieder auf die Matte und setzte sich dann auf ihn, was Harrys Atem zischend ausströmen ließ.
 
@@ -480,9 +480,9 @@ Einen Moment später drückte Derrick Harry wieder auf die Matte und setzte sich
 
 "Besser", sagte Professor Quirrell. "Das klang sogar aufrichtig."
 
-Er hatte es _ernst_ gemeint. Das war das Schreckliche, das Abscheuliche, es war aufrichtig _gewesen_. Harry keuchte schnell, Angst und kalte Wut durchströmten ihn -.
+Er hatte es _ernst_ gemeint. Das war das Schreckliche, das Abscheuliche, es war aufrichtig _gewesen_. Harry keuchte schnell, Angst und kalte Wut durchströmten ihn -
 
-"Verlieren", sagte Professor Quirrell.
+"Verliere", sagte Professor Quirrell.
 
 "Ich, verliere", presste Harry hervor.
 
@@ -496,7 +496,7 @@ Hände schubsten Harry und schickten ihn quer durch den Kreis der älteren Slyth
 
 "Ein, V-Verlierer, ich verliere, ich gebe auf, du gewinnst, du bist b-besser, als ich, bitte hör auf -"
 
-Harry stolperte über einen Fuß und stürzte zu Boden, seine Hände konnten ihn nicht ganz fangen. Er war für einen Moment benommen, dann begann er sich wieder aufzurappeln -.
+Harry stolperte über einen Fuß und stürzte zu Boden, seine Hände konnten ihn nicht ganz fangen. Er war für einen Moment benommen, dann begann er sich wieder aufzurappeln -
 
 "_Genug!_", sagte Professor Quirrells Stimme, die scharf genug klang, um Eisen zu schneiden. "Geht weg von Mr. Potter!"
 
@@ -570,7 +570,7 @@ Harry spürte ein brennendes Gefühl in seiner Kehle und riss sich krampfhaft zu
 
 Es gab eine schockierte Pause und dann brach ein Pandämonium unter den Ravenclaw-Schülern aus, sie johlten und pfiffen und jubelten.
 
-(Und im selben Moment fühlte Harry, dass daran etwas _falsch_ war, Professor McGonagall hatte Recht gehabt, es hätte Konsequenzen geben _müssen_, es hätte einen Preis geben müssen, den man hätte zahlen müssen, man konnte nicht einfach alles so zurückstellen, wie es war -).
+(Und im selben Moment fühlte Harry, dass daran etwas _falsch_ war, Professor McGonagall hatte Recht gehabt, es hätte Konsequenzen geben _müssen_, es hätte einen Preis geben müssen, den man hätte zahlen müssen, man konnte nicht einfach alles so zurückstellen, wie es war -)
 
 Aber Harry sah die begeisterten Gesichter in Ravenclaw und wusste, dass er unmöglich nein sagen konnte.
 

@@ -10,7 +10,7 @@ Jeder ausreichend fortgeschrittene J. K. Rowling ist ununterscheidbar von Magie.
 
 Es war Frühstückszeit am Freitagmorgen. Harry nahm einen weiteren großen Bissen von seinem Toast und versuchte dann, sein Gehirn daran zu erinnern, dass das Verschlingen seines Frühstücks ihn nicht wirklich schneller in die Kerker bringen würde. Auf jeden Fall hatten sie zwischen dem Frühstück und dem Beginn des Zaubertränke Unterrichts eine volle Stunde Lernzeit.
 
-Aber Kerker! In Hogwarts! Harrys Vorstellungskraft skizzierte bereits die Abgründe, die schmalen Brücken, die fackelbeleuchteten Schornsteine und die Flecken mit glühendem Moos. Würde es Ratten geben? Gäbe es _Drachen_?
+Aber Kerker! In Hogwarts! Harrys Vorstellungskraft skizzierte bereits die Abgründe, die schmalen Brücken, die fackelbeleuchteten Schornsteine und die Flecken mit glühendem Moos. Würde es Ratten geben? Würde es _Drachen_ geben?
 
 "Harry Potter", sagte eine leise Stimme hinter ihm.
 
@@ -24,7 +24,7 @@ Ernie nickte und drehte sich um, um zurück zum Hufflepuff-Tisch zu gehen.
 
 Harry aß weiter seinen Toast.
 
-Es war ungefähr vier Bissen später, als jemand "Entschuldigung" sagte und Harry sich umdrehte, um einen älteren Ravenclaw zu sehen, der ein wenig besorgt aussah -.
+Es war ungefähr vier Bissen später, als jemand "Entschuldigung" sagte und Harry sich umdrehte, um einen älteren Ravenclaw zu sehen, der ein wenig besorgt aussah -
 
 Einige Zeit später beendete Harry seinen dritten Teller mit Toast. (Er hatte gelernt, beim Frühstück viel zu essen. Er konnte immer leicht zu Mittag essen, wenn er den Zeitumkehrer nicht benutzen wollte.) Und da war noch eine Stimme hinter ihm, die sagte: "Harry?"
 
@@ -100,7 +100,7 @@ Das war der erste Gedanke, der Harry in den Sinn kam, als er Professor Severus S
 
 "Setzen Sie sich", sagte Professor Severus Snape. "Jetzt."
 
-Harry und ein paar andere Kinder, die herumstanden und sich unterhielten, stürmten zu den Tischen. Harry hatte geplant, neben Hermine zu landen, aber irgendwie fand er sich auf dem nächsten leeren Tisch neben Justin Finch-Fletchley wieder (es war eine Doppelstunde, Ravenclaw und Hufflepuff), wodurch er zwei Tische links von Hermine saß.
+Harry und ein paar andere Kinder, die herumstanden und sich unterhielten, stürmten zu den Tischen. Harry hatte geplant, neben Hermine zu landen, aber irgendwie fand er sich an dem nächsten leeren Tisch neben Justin Finch-Fletchley wieder (es war eine Doppelstunde, Ravenclaw und Hufflepuff), wodurch er zwei Tische links von Hermine saß.
 
 Severus setzte sich hinter das Lehrerpult und sagte ohne die geringste Überleitung oder Einleitung: "Hannah Abbott."
 
@@ -124,7 +124,7 @@ Harry stieß einen mentalen Seufzer aus. Das war viel zu schnell passiert, als d
 
 Als alle Anwesenden gezählt waren, ließ Severus seinen Blick über die gesamte Klasse schweifen. Seine Augen waren so leer wie ein Nachthimmel ohne Sterne.
 
-"Ihr seid hier", sagte Severus mit leiser Stimme, die die Schüler im Hintergrund anstrengte zu hören, "um die subtile Wissenschaft und exakte Kunst der Zaubertrankherstellung zu erlernen. Da hier wenig mit dem Zauberstab gefuchtelt wird, werden viele von euch kaum glauben, dass dies Magie ist. Ich erwarte nicht, dass Ihr die Schönheit des sanft köchelnden Kessels mit seinen schimmernden Dämpfen wirklich verstehst, die zarte Kraft der Flüssigkeiten, die durch die menschlichen Adern kriechen", dies in einem eher schmeichelnden, hämischen Ton, "den Geist betören, die Sinne umgarnen", dies wurde einfach immer gruseliger. "Ich kann euch beibringen, wie man Ruhm in Flaschen abfüllt, Mut braut und sogar den Tod stoppt - wenn ihr nicht so ein großes Rudel Dummköpfe seid, wie ich es normalerweise zu lehren habe."
+"Ihr seid hier", sagte Severus mit leiser Stimme, die die Schüler im Hintergrund anstrengte zu hören, "um die subtile Wissenschaft und exakte Kunst der Zaubertrankherstellung zu erlernen. Da hier wenig mit dem Zauberstab gefuchtelt wird, werden viele von euch kaum glauben, dass dies Magie ist. Ich erwarte nicht, dass Ihr die Schönheit des sanft köchelnden Kessels mit seinen schimmernden Dämpfen wirklich versteht, die zarte Kraft der Flüssigkeiten, die durch die menschlichen Adern kriechen", dies in einem eher schmeichelnden, hämischen Ton, "den Geist betören, die Sinne umgarnen", dies wurde einfach immer gruseliger. "Ich kann euch beibringen, wie man Ruhm in Flaschen abfüllt, Mut braut und sogar den Tod stoppt - wenn ihr nicht so ein großes Rudel Dummköpfe seid, wie ich es normalerweise zu lehren habe."
 
 Severus schien irgendwie den skeptischen Blick auf Harrys Gesicht zu bemerken, oder zumindest sprang sein Blick plötzlich dorthin, wo Harry saß.
 
@@ -158,7 +158,7 @@ Das war's.
 
 "Wissen Sie", sagte Harry eisig, "in einem meiner ziemlich _faszinierenden_ Muggel-Bücher wird eine Studie beschrieben, in der es Leute geschafft haben, sich selbst sehr schlau aussehen zu lassen, indem sie Fragen über zufällige Fakten stellten, die nur sie kannten. Offenbar haben die Zuschauer nur bemerkt, dass die Fragenden es wussten und die Antwortenden nicht, und haben es versäumt, die Unfairness des zugrunde liegenden Spiels zu berücksichtigen. Also, Professor, können Sie mir sagen, wie viele Elektronen sich im äußersten Orbital eines Kohlenstoffatoms befinden?"
 
-Severus' Lächeln wurde breiter. "Vier", sagte er. "Es ist eine nutzlose Tatsache, die sich jedoch niemand die Mühe machen sollte, aufzuschreiben. Und zu deiner Information, Potter, Asphodel und Wermut ergeben einen Schlaftrunk, der so mächtig ist, dass er als "Zug des lebenden Todes" bekannt ist. Was den Eisenhut betrifft, so handelt es sich um dieselbe Pflanze, die auch unter dem Namen Mönchsblut bekannt ist, wie du wissen würdest, wenn du _Eintausen Magische Gewürze und Pilze_ gelesen hättest. Du dachtest, du brauchst das Buch nicht aufzuschlagen, bevor du herkommst, was, Potter? Alle anderen von euch sollten sich das aufschreiben, damit ihr nicht so unwissend seid wie er." Severus hielt inne und sah ziemlich zufrieden mit sich selbst aus. "Und das wird sein... 5 Punkte? Nein, lasst uns aus Ravenclaw zehn Punkte für Wiederspruch abziehen."
+Severus' Lächeln wurde breiter. "Vier", sagte er. "Es ist eine nutzlose Tatsache, die sich jedoch niemand die Mühe machen sollte, aufzuschreiben. Und zu deiner Information, Potter, Asphodel und Wermut ergeben einen Schlaftrunk, der so mächtig ist, dass er als "Trank des lebenden Todes" bekannt ist. Was den Eisenhut betrifft, so handelt es sich um dieselbe Pflanze, die auch unter dem Namen Mönchsblut bekannt ist, wie du wissen würdest, wenn du _Eintausen Magische Gewürze und Pilze_ gelesen hättest. Du dachtest, du brauchst das Buch nicht aufzuschlagen, bevor du herkommst, was, Potter? Alle anderen von euch sollten sich das aufschreiben, damit ihr nicht so unwissend seid wie er." Severus hielt inne und sah ziemlich zufrieden mit sich selbst aus. "Und das sind dann... 5 Punkte? Nein, lasst uns von Ravenclaw zehn Punkte für Wiederspruch abziehen."
 
 Hermine keuchte, zusammen mit einer Reihe von anderen.
 
@@ -182,7 +182,7 @@ Die Klasse war völlig eingefroren.
 
 "Ich weigere mich, Ihre Autorität als Lehrer anzuerkennen und ich werde nicht Nachsitzen, weil sie es mir befehlen."
 
-Die Leute haben aufgehört zu atmen.
+Die Leute hörten auf zu atmen.
 
 Severus' Lächeln verschwand. "Dann wirst du -" seine Stimme stockte kurz.
 
@@ -252,7 +252,7 @@ Harry versuchte, "Was?" zu sagen und stellte fest, dass kein Ton herauskam.
 
 "Das ist lächerlich geworden. Ich denke, du durftest dir für einen Tag genug Ärger einhandeln, Potter. Du bist der störendste und widerspenstigste Schüler, den ich je gesehen habe. Ich weiß nicht mehr, wie viele Punkte Ravenclaw im Moment hat, aber ich bin mir sicher, dass ich es schaffen kann, sie alle auszulöschen. Zehn Punkte von Ravenclaw. Zehn Punkte von Ravenclaw. Zehn Punkte von Ravenclaw! Fünfzig Punkte von Ravenclaw! Jetzt setz Dich hin und schaut zu, wie der Rest der Klasse ihren Unterricht hat!"
 
-Harry steckte seine Hand in seinen Beutel und versuchte, "Marker" zu sagen, aber natürlich kamen keine Worte heraus. Für einen kurzen Moment hielt ihn das auf; und dann fiel Harry ein, M-A-R-K-E-R mit Fingerbewegungen zu buchstabieren, was auch funktionierte. B-L-O-C-K und er hatte einen Block mit Papier. Harry ging zu einem leeren Schreibtisch hinüber, nicht zu dem, an dem er ursprünglich gesessen hatte, und kritzelte eine kurze Nachricht. Er riss das Blatt Papier ab, steckte den Marker und den Block in eine Tasche seiner Robe, um schneller darauf zugreifen zu können, und hielt seine Nachricht hoch, nicht an Snape, sondern an den Rest der Klasse.
+Harry steckte seine Hand in seinen Beutel und versuchte, "Stift" zu sagen, aber natürlich kamen keine Worte heraus. Für einen kurzen Moment hielt ihn das auf; und dann fiel Harry ein, S-T-I-F-T mit Fingerbewegungen zu buchstabieren, was auch funktionierte. B-L-O-C-K und er hatte einen Block mit Papier. Harry ging zu einem leeren Schreibtisch hinüber, nicht zu dem, an dem er ursprünglich gesessen hatte, und kritzelte eine kurze Nachricht. Er riss das Blatt Papier ab, steckte den Stift und den Block in eine Tasche seiner Robe, um schneller darauf zugreifen zu können, und hielt seine Nachricht hoch, nicht an Snape, sondern an den Rest der Klasse.
 
 ICH GEHE.  
 WILL SONST JEMAND  
@@ -440,7 +440,7 @@ Severus und Dumbledore drehten sich um und sahen sie an.
 
 "Und ich habe ihm gesagt", sagte Minerva, ihre Stimme zitterte ein wenig, "dass du, ich und Severus die einzigen sind, die es wissen."
 
-"Was sie als Zugeständnis gemacht hat, um zu verhindern, dass ich einfach herumlaufe und Fragen stelle, wie ich es angedroht habe, wenn sie nicht redet", sagte Harry. Der Junge gluckste kurz. "Ich hätte wirklich einen von euch alleine erwischen sollen und euch sagen, dass sie mir alles erzählt hat, um zu sehen, ob ihr etwas verraten habt. Hätte wahrscheinlich nicht funktioniert, wäre aber einen Versuch wert gewesen." Der Junge lächelte wieder. "Die Bedrohung ist immer noch auf dem Tisch und ich erwarte, dass ich irgendwann _vollständig_ informiert werde."
+"Was sie als Zugeständnis gemacht hat, um zu verhindern, dass ich einfach herumlaufe und Fragen stelle, wie ich es angedroht habe, wenn sie nicht redet", sagte Harry. Der Junge gluckste kurz. "Ich hätte wirklich einen von euch alleine erwischen sollen und euch sagen, dass sie mir alles erzählt hat, um zu sehen, ob ihr etwas verraten hättet. Hätte wahrscheinlich nicht funktioniert, wäre aber einen Versuch wert gewesen." Der Junge lächelte wieder. "Die Bedrohung ist immer noch auf dem Tisch und ich erwarte, dass ich irgendwann _vollständig_ informiert werde."
 
 Severus warf ihr einen Blick voller Verachtung zu. Minerva hob ihr Kinn und ertrug es. Sie wusste, dass sie es verdient hatte.
 
@@ -456,7 +456,7 @@ Minerva war völlig verloren. Sie schaute zu Severus, um zu sehen, ob er dies ve
 
 "Ich nehme an", sagte Dumbledore langsam, "dass es aus deiner Sicht eine berechtigte Frage ist. Also, Mr. Potter, wenn Professor Snape Sie von nun an in Ruhe lässt, wird das das letzte Mal sein, dass dieses Thema aufkommt, oder werde ich Sie jede Woche mit einer neuen Forderung hier finden?"
 
-"_Mich_ in Ruhe lassen?" Harrys Stimme war empört. "Ich bin nicht sein einziges Opfer und schon gar nicht das verletzlichste! Habt ihr vergessen, wie wehrlos Kinder sind? Wie sehr sie schmerzen _erleiden_? Severus wird von nun an _jeden_ Schüler von Hogwarts mit angemessener und professioneller Höflichkeit behandeln, oder Sie werden einen anderen Zaubertränkemeister finden, oder Sie werden einen anderen Helden finden!"
+"_Mich_ in Ruhe lassen?" Harrys Stimme war empört. "Ich bin nicht sein einziges Opfer und schon gar nicht das verletzlichste! Habt ihr vergessen, wie wehrlos Kinder sind? Wie sehr sie Schmerzen _erleiden_? Severus wird von nun an _jeden_ Schüler von Hogwarts mit angemessener und professioneller Höflichkeit behandeln, oder Sie werden einen anderen Zaubertränkemeister finden, oder Sie werden einen anderen Helden finden!"
 
 Dumbledore begann zu lachen. Aus voller Kehle, warmes, humorvolles Lachen, als ob Harry gerade einen komischen Tanz vor ihm aufgeführt hätte.
 
@@ -484,7 +484,7 @@ Harry öffnete seinen Mund, dann schloss er ihn wieder. Er schien nun etwas unsi
 
 "_Was?_"
 
-"Ich kann nichts anderes sagen. Wie auch immer, ich denke das war's. Ich bin fertig."
+"Ich kann nicht mehr dazu sagen. Wie auch immer, ich denke das war's. Ich bin fertig."
 
 Stille.
 
@@ -506,7 +506,7 @@ Minerva McGonagall war so geschockt, wie sie es noch nie in ihrem Leben gewesen 
 
 "Das kann nicht dein Ernst sein", sagte Severus, seine Stimme so ausdruckslos wie sein Gesicht.
 
-"Ich bin sehr dafür", sagte Minerva langsam. Sie war so sehr dafür, dass ihr Herz unter ihren Gewändern wild pochte. "Aber was könnten wir den Schülern sagen? Sie haben das vielleicht nicht hinterfragt, solange Severus dabei war... schrecklich zu allen zu sein, aber -"
+"Ich bin sehr dafür", sagte Minerva langsam. Sie war so sehr dafür, dass ihr Herz unter ihren Gewändern wild pochte. "Aber was könnten wir den Schülern sagen? Sie haben das vielleicht nicht hinterfragt, solange Severus ... schrecklich zu allen war, aber -"
 
 "Harry kann den anderen Schülern erzählen, dass er ein schreckliches Geheimnis von Severus entdeckt hat und ihn ein bisschen erpresst hat", sagte Dumbledore. "Es stimmt doch, er hat herausgefunden, dass Severus Gedanken lesen kann, und er hat uns tatsächlich erpresst."
 
@@ -540,9 +540,9 @@ Harry sah sie an. Etwas Warmes berührte seinen Blick, kurz bevor es unterdrück
 
 Harry warf ihr noch einen Blick zu. Dieser war ein wenig skeptisch.
 
-"Die Disziplin der Schule ist durch Ihr Handeln schwer verletzt worden, Mr. Potter", sagte Minerva. "Es muss wiederhergestellt werden."
+"Die Disziplin der Schule ist durch Ihr Handeln schwer verletzt worden, Mr. Potter", sagte Minerva. "Sie muss wiederhergestellt werden."
 
-"Ich denke, Professor McGonagall, dass Sie die Bedeutung dessen, was Sie Schuldisziplin nennen, erheblich überschätzen, im Vergleich dazu, dass Geschichte von einem lebenden Lehrer unterrichtet wird oder Sie Ihre Schüler nicht quälen. Die Aufrechterhaltung der aktuellen Statushierarchie und die Durchsetzung ihrer Regeln scheint viel weiser und moralischer und wichtiger zu sein, wenn man oben stehst und die Durchsetzung machst, als wenn man unten steht, und ich kann bei Bedarf Studien dazu zitieren. Ich könnte mehrere Stunden über diesen Punkt sprechen, aber ich werde es dabei belassen."
+"Ich denke, Professor McGonagall, dass Sie die Bedeutung dessen, was Sie Schuldisziplin nennen, erheblich überschätzen, im Vergleich dazu, dass Geschichte von einem lebenden Lehrer unterrichtet wird oder Sie Ihre Schüler nicht quälen. Die Aufrechterhaltung der aktuellen Statushierarchie und die Durchsetzung ihrer Regeln scheint viel weiser und moralischer und wichtiger zu sein, wenn man oben stehst und die Durchsetzung macht, als wenn man unten steht, und ich kann bei Bedarf Studien dazu zitieren. Ich könnte mehrere Stunden über diesen Punkt sprechen, aber ich werde es dabei belassen."
 
 Minerva schüttelte den Kopf. "Mr. Potter, Sie unterschätzen die Bedeutung von Disziplin, weil Sie sie selbst nicht nötig haben -" Sie hielt inne. Das war nicht richtig rübergekommen und Severus, Dumbledore und sogar Harry warfen ihr seltsame Blicke zu. "Zum Lernen, meine ich. Nicht jedes Kind kann in Abwesenheit von Autorität lernen. Und es sind die anderen Kinder, die verletzt werden, Mr. Potter, wenn sie Ihr Beispiel als eines sehen, dem man folgen sollte."
 
@@ -578,7 +578,7 @@ Minerva wusste nicht, was sie sagen sollte. Sie kannte diese Person, die neben i
 
 Und Fawkes begann zu trällern.
 
-Es war zart und weich, wie ein Kamin, wenn er eine Melodie hätte, und es schwemmte über Minervas Geist, beruhigend, besänftigend, was es berührte...
+Es war zart und weich, wie ein Lagerfeuer, wenn er eine Melodie hätte, und es floss über Minervas Geist, beruhigend, besänftigend, für alles was es berührte...
 
 "_Was_ ist _das_?" flüsterte Harry neben ihr. Seine Stimme war instabil, schwankte, veränderte die Tonlage.
 
@@ -632,7 +632,7 @@ Er wusste es nicht. Er hatte es noch nicht herausgefunden. Sie spürte, wie sich
 
 Die ganze Ruhe des Phönix verschwand in einem Augenblick aus seinem Gesicht und Minerva fühlte sich, als ob sie ihn gerade erstochen hätte.
 
-"_Nein!_" sagte Harry. Seine Stimme war panisch. "Ich brauche es, ich werde nicht in der Lage sein, Hogwarts zu besuchen, ich werde nicht in der Lage sein zu schlafen!"
+"_Nein!_" sagte Harry. Seine Stimme war panisch. "Ich brauche ihn, ich werde nicht in der Lage sein, Hogwarts zu besuchen, ich werde nicht in der Lage sein zu schlafen!"
 
 "Du wirst schlafen können", sagte sie. "Das Ministerium hat die Schutzhülle für deinen Zeitumkehrer geliefert. Ich werde sie so verzaubern, dass sie sich nur zwischen 21 Uhr und Mitternacht öffnet."
 
@@ -640,19 +640,19 @@ Harrys Gesicht verzog sich. "Aber - aber ich -"
 
 "Mr. Potter, wie oft haben Sie den Zeitumkehrer seit Montag benutzt? Wie viele Stunden?"
 
-"Ich..." sagte Harry. "Warten Sie, lass mich zusammenzählen -" Er schaute auf seine Uhr.
+"Ich..." sagte Harry. "Warten Sie, lassen Sie mich zusammenzählen -" Er schaute auf seine Uhr.
 
 Minerva fühlte einen Anflug von Traurigkeit. Das hatte sie sich so gedacht. "Es waren also nicht nur zwei pro Tag. Ich vermute, wenn ich deine Mitbewohner fragen würde, würde ich herausfinden, dass du damit kämpfst, lange genug aufzubleiben, um zu einer vernünftigen Zeit schlafen zu gehen, und jeden Morgen früher und früher aufwachst. Richtig?
 
 Harrys Gesicht sagte alles, was sie wissen musste.
 
-"Mr. Potter", sagte sie sanft, "es gibt Schüler, die man nicht mit Zeitumkehrern betrauen kann, weil sie süchtig danach werden. Wir geben ihnen einen Zaubertrank, der ihren Schlafzyklus um das nötige Maß verlängert, aber am Ende nutzen sie den Zeitumkehrer für mehr als nur die Teilnahme an ihrem Unterricht. Und so müssen wir sie zurücknehmen. Mr. Potter, Sie haben den Zeitumkehrer als Lösung für alles benutzt, oft auf sehr dumme Art und Weise. Du hast es benutzt, um einen Erinnermich zurückzubekommen. Du bist auf eine für andere Schüler offensichtliche Art und Weise aus einem Schrank verschwunden, anstatt zurück zu gehen, nachdem du draußen warst, und mich oder jemand anderen zu holen, der dann kommt und die Tür öffnet."
+"Mr. Potter", sagte sie sanft, "es gibt Schüler, die man nicht mit Zeitumkehrern betrauen kann, weil sie süchtig danach werden. Wir geben ihnen einen Zaubertrank, der ihren Schlafzyklus um das nötige Maß verlängert, aber am Ende nutzen sie den Zeitumkehrer für mehr als nur die Teilnahme an ihrem Unterricht. Und so müssen wir sie zurücknehmen. Mr. Potter, Sie haben den Zeitumkehrer als Lösung für alles benutzt, oft auf sehr dumme Art und Weise. Du hast ihn benutzt, um einen Erinnermich zurückzubekommen. Du bist auf eine für andere Schüler offensichtliche Art und Weise aus einem Schrank verschwunden, anstatt zurück zu gehen, nachdem du draußen warst, und mich oder jemand anderen zu holen, der dann kommt und die Tür öffnet."
 
 Dem Gesichtsausdruck von Harry nach zu urteilen, hatte er daran nicht gedacht.
 
 "Und was noch wichtiger ist", sagte sie, "du hättest dich einfach in Professor Snapes Klasse setzen sollen. Und beobachten. Und am Ende der Stunde gehen. So wie du es auch getan hättest, wenn du keinen Zeitumkehrer besessen hättest. Es gibt einige Schüler, die man nicht mit Zeitumkehrern betrauen kann, Mr. Potter. Du bist einer von ihnen. Es tut mir leid."
 
-"Aber ich _brauche_ ihn!" platzte Harry heraus. "Was ist, wenn mich Slytherins bedrohen und ich fliehen muss? Es hält mich _sicher_ -"
+"Aber ich _brauche_ ihn!" platzte Harry heraus. "Was ist, wenn mich Slytherins bedrohen und ich fliehen muss? Es gibt mir _Sicherheit_ -"
 
 "Jeder andere Schüler in dieser Burg geht das gleiche Risiko ein, und ich versichere dir, dass sie überleben. Seit fünfzig Jahren ist kein Schüler mehr in dieser Burg gestorben. Mr. Potter, du wirst deinen Zeitumkehrer aushändigen und zwar jetzt."
 
@@ -660,13 +660,13 @@ Harrys Gesicht verzog sich vor Schmerz, aber er zog den Zeitumkehrer unter seine
 
 Von ihrem Schreibtisch zog Minerva eine der Schutzhüllen hervor, die nach Hogwarts geschickt worden waren. Sie schnappte den Deckel um die sich drehende Sanduhr des Zeitumkehrers und legte dann ihren Zauberstab auf den Deckel, um die Verzauberung zu vollenden.
 
-"_Das ist nicht fair!_" Harry kreischte. "Ich habe heute halb Hogwarts vor Professor Snape gerettet, ist es richtig, dass ich dafür bestraft werde? Ich habe Ihren Gesichtsausdruck gesehen, Sie _hassen_, was er getan hat!"
+"_Das ist nicht fair!_" kreischte Harry. "Ich habe heute halb Hogwarts vor Professor Snape gerettet, ist es richtig, dass ich dafür bestraft werde? Ich habe Ihren Gesichtsausdruck gesehen, Sie _hassen_, was er getan hat!"
 
-Minerva schwieg für einige Momente. Sie war zauberte.
+Minerva schwieg für einige Momente. Sie zauberte.
 
 Als sie fertig war und aufblickte, wusste sie, dass ihr Gesicht streng war. Vielleicht war es das Falsche, das zu tun. Und dann wiederum war es vielleicht das Richtige, das zu tun. Sie hatte ein eigensinniges Kind vor sich, und das bedeutete nicht, dass das Universum kaputt war.
 
-"_Fair_, Mr. Potter?", schnauzte sie. "Ich musste an _zwei aufeinanderfolgenden_ Tagen _zwei Berichte_ über die öffentliche Nutzung eines Zeitumkehrers beim Ministerium einreichen! Seien Sie _extrem_ dankbar, dass Sie den Zeitumkehrer behalten durften, sogar in seiner eingeschränkter Form! Der Schulleiter hat einen Floo-Anruf gemacht, um sich persönlich an das Ministerium zu wenden und wenn du nicht der Junge-der-lebt wärst, hätte selbst das nicht ausgereicht!"
+"_Fair_, Mr. Potter?", schnauzte sie. "Ich musste an _zwei aufeinanderfolgenden_ Tagen _zwei Berichte_ über die öffentliche Nutzung eines Zeitumkehrers beim Ministerium einreichen! Seien Sie _extrem_ dankbar, dass Sie den Zeitumkehrer behalten dürfen, sogar in seiner eingeschränkter Form! Der Schulleiter hat einen Floo-Anruf gemacht, um sich persönlich an das Ministerium zu wenden und wenn du nicht der Junge-der-lebt wärst, hätte selbst das nicht ausgereicht!"
 
 Harry schluckte.
 
@@ -698,7 +698,7 @@ Harry versuchte, nicht zu lächeln, denn wenn er lächelte, würde er anfangen z
 
 Es war zu viel. Es war einfach alles zu viel. Harry wäre fast auf die Dunkle Seite gewechselt. Seine Dunkle Seite hatte Dinge getan, die im Nachhinein verrück schienen. Seine Dunkle Seite hatte einen unmöglichen Sieg errungen, der genausogut echt oder nur auf die Laune eines verrückten Schulleiters zurückzuführen war. Seine Dunkle Seite hatte seine Freunde beschützt. Er konnte es einfach nicht mehr ertragen. Er brauchte Fawkes, um wieder für ihn zu singen. Er musste den Zeitumkehrer benutzen, um zu verschwinden und sich eine ruhige Stunde zu nehmen, um sich zu erholen, aber das war keine Option mehr und der Verlust war wie ein Loch in seiner Existenz, aber er konnte nicht daran denken, denn dann könnte er anfangen zu lachen.
 
-Zwanzig Minuten. Alle Schüler, die zu Mittag essen wollten, waren angekommen, fast keiner war abgereist.
+Zwanzig Minuten. Alle Schüler, die zu Mittag essen wollten, waren angekommen, fast keiner war gegangen.
 
 Das Klopfen eines Löffels schallte durch die Große Halle.
 
@@ -710,7 +710,7 @@ Harry drehte sich um und schaute auf die vier Tische.
 
 Es wurde immer schwieriger, nicht zu lächeln, aber Harry hielt sein Gesicht ausdruckslos, als er seine kurze und auswendig gelernte Rede hielt.
 
-"Die Wahrheit ist heilig", sagte Harry tonlos. "Einer meiner wertvollsten Besitztümer ist ein Button, auf dem steht 'Sprich die Wahrheit, auch wenn deine Stimme zittert'. Dies ist also die Wahrheit. Merkt euch das. Ich sage es nicht, weil ich dazu gezwungen werde, ich sage es, weil es wahr ist. Was ich in Professor Snapes Klasse getan habe, war töricht, dumm, kindisch und ein unentschuldbarer Verstoß gegen die Regeln von Hogwarts. Ich habe die Klasse gestört und meine Mitschüler um ihre unersetzliche Lernzeit gebracht. Alles nur, weil ich es nicht geschafft habe, mein Temperament zu kontrollieren. Ich hoffe, dass nicht ein einziger von euch jemals meinem Beispiel folgen wird. Ich werde auf jeden Fall versuchen, ihm nie wieder zu folgen."
+"Die Wahrheit ist heilig", sagte Harry tonlos. "Einer meiner wertvollsten Besitztümer ist ein Button, auf dem steht 'Sprich die Wahrheit, auch wenn deine Stimme zittert'. Dies ist also die Wahrheit. Merkt euch das. Ich sage das nicht, weil ich dazu gezwungen werde, ich sage es, weil es wahr ist. Was ich in Professor Snapes Klasse getan habe, war töricht, dumm, kindisch und ein unentschuldbarer Verstoß gegen die Regeln von Hogwarts. Ich habe die Klasse gestört und meine Mitschüler um ihre unersetzliche Lernzeit gebracht. Alles nur, weil ich es nicht geschafft habe, mein Temperament zu kontrollieren. Ich hoffe, dass nicht ein einziger von euch jemals meinem Beispiel folgen wird. Ich werde auf jeden Fall versuchen, ihm nie wieder zu folgen."
 
 Viele der Schüler, die Harry nun ansahen, hatten feierliche, unglückliche Blicke auf ihren Gesichtern, wie man sie bei einer Zeremonie zum Verlust eines gefallenen Champions sehen könnte. Bei den jüngeren Teilen des Gryffindor-Tisches war der Blick fast durchgängig.
 
