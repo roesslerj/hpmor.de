@@ -118,9 +118,9 @@ Da ich die ursprünglichen Kapitelüberschriften wenig hilfreich finde, hier ein
 - [Kapitel 114](Kapitel-114.md): 
 - [Kapitel 115](Kapitel-115.md): 
 - [Kapitel 116](Kapitel-116.md): 
-- [Kapitel 117](Kapitel-117.md): 
-- [Kapitel 118](Kapitel-118.md): 
-- [Kapitel 119](Kapitel-119.md): 
-- [Kapitel 120](Kapitel-120.md): 
+- [Kapitel 117](Kapitel-117.md): Danach: In der großen Halle
+- [Kapitel 118](Kapitel-118.md): Danach: Quirrels Begräbnis
+- [Kapitel 119](Kapitel-119.md): Danach: Im Büro des Schulleiters
+- [Kapitel 120](Kapitel-120.md): Danach: Draco Malfoy
 - [Kapitel 121](Kapitel-121.md): 
-- [Kapitel 122](Kapitel-122.md): 
+- [Kapitel 122](Kapitel-122.md): Danach: Harry und Hermine
