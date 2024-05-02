@@ -14,3 +14,7 @@ Jeder ist eingeladen die Übersetzung weiter zu verbessern. Einfach auf  das Sti
 [Hier das erste Kapitel](de/Kapitel-1.md)
 
 ... und für alle, die etwas spezifisches suchen, hier die [Kapitelübersicht](de/Kapiteluebersicht.md).
+
+# Alternative
+
+Inzwischen gibt es eine alternative Übersetzung unter [https://github.com/entorb/hpmor-de](https://github.com/entorb/hpmor-de), komplett mit E-Book.
